@@ -11,7 +11,7 @@ OUTPUT_FOLDER = 'mdata'
 
 # --- OpenWebUI API Configuration ---
 OPENWEBUI_API_URL = 'http://llm:3000/api/chat/completions'
-OPENWEBUI_TOKEN = 'your_api_key_here'
+OPENWEBUI_TOKEN = 'your_api_key_here' #this is a openwebui key
 OPENWEBUI_MODEL = "gemma3:27b"
 API_TIMEOUT = 60
 

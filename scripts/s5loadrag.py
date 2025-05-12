@@ -8,7 +8,7 @@ import time # Added for timing
 # Replace with your Open WebUI instance URL (e.g., "http://localhost:8080")
 OPENWEBUI_BASE_URL = "http://llm:3000" 
 # Replace with your generated Open WebUI API Key
-OPENWEBUI_API_KEY = "your_api_key_here" 
+OPENWEBUI_TOKEN = 'your_api_key_here' #this is a openwebui key
 # Replace with the *ID* of the Knowledge Collection you want to add files to
 # Find this ID in the OpenWebUI interface or via its API if available.
 KNOWLEDGE_COLLECTION_ID = "2e53e76e-05d1-4cd4-9791-cf0310551b4e" 
