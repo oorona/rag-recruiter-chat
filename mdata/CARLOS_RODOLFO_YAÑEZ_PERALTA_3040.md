@@ -1,0 +1,86 @@
+Nombre Candidato: CARLOS RODOLFO YAÑEZ PERALTA
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9834180338
+Correo Electronico: defkonx@pm.me
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Arbitraje, Delitos Electorales, Derecho, Derecho Corporativo, Despacho Aduanero, Doctorado, ELDP., Educación Continua, Licenciatura, Maestría, Mediación, Notarial, UDF, UNITEC, UVM, Valuación
+Tags Propósito: Accesibilidad, Atención Ciudadana, Atención Vulnerable, Calidad, Capacitación, Derechos Fundamentales, Dignidad, Eficiencia, Empatía, Equidad, Función Jurisdiccional, Grupos Vulnerables, Imparcialidad, Independencia Judicial, Justicia, Justicia Humana, Justicia Pronta, Lenguaje Respetuoso, Protocolos, Puertas Abiertas, Puntualidad, Respeto, Tecnología, Transparencia, Trato Digno.
+
+
+## Descripción del Candidato 
+
+Carlos Rodolfo Yáñez Peralta es candidato a Juez de Distrito en Quintana Roo, postulándose por el Poder Judicial de la Federación. Cuenta con estudios de Doctorado concluidos y una trayectoria académica que incluye licenciaturas y maestrías en Derecho, así como especializaciones en áreas como valuación y notarial.  Ha realizado diversos diplomados en derecho corporativo, despacho aduanero, arbitraje, mediación y prevención de delitos electorales.
+
+Su motivación para buscar el cargo es garantizar una justicia clara, eficiente y accesible en Quintana Roo.  Sus propuestas se centran en la modernización de los procesos judiciales, la puntualidad en la atención de casos, y un trato digno y respetuoso hacia todas las personas, con especial énfasis en los sectores vulnerables.  Busca consolidar un juzgado de "puertas abiertas" con personal capacitado en atención incluyente y protocolos para grupos vulnerables, promoviendo la transparencia y el acceso a la información.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.yanezperalta.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/drcarlosyanez
+- https://x.com/DrCarlosYanez
+- https://www.instagram.com/drcarlosyanez
+- https://www.youtube.com/@drcarlosyaC3B1ez
+- https://www.tiktok.com/@carlosrodolfoyanez
+- https://www.linkedin.com/in/carlos-yape/
+
+
+## Cursos
+
+- Diplomado en Derecho Corporativo   Universidad Tecnologia de México
+- ,Diplomado en Despacho Aduanero Directo con Representante Legal
+- ,Diplomado en Arbitraje,Diplomado en Mediación,Curso en Prevención de Delitos Electorales y Responsabilidades Administrativas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55508/11
+
+
+## Trayectoria Academica
+
+- Lic
+- Derecho (UVG) Mtría
+- Derecho (UNITEC) Esp
+- Valuación (UDF) Mtría
+- Notarial (ELDP) Doc
+- en D
+- en curso, Dr
+- H
+- C
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar una justicia clara, eficiente y accesible, que atienda con equidad a todas las personas en Quintana Roo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como aspirante a Juez Federal, visualizo una función jurisdiccional transformada en un servicio de excelencia. Garantizaré resoluciones jurídicas claras, puntuales y comprensibles. Promoveré el uso de tecnología para optimizar procesos, asegurar un trato digno por parte del personal y reafirmar la independencia e imparcialidad judicial. Impulsaré estándares de calidad que aseguren justicia pronta, expedita y humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Aspiro a consolidar una función jurisdiccional centrada en la excelencia. Emitiré resoluciones claras, puntuales y fundamentadas, en un juzgado eficiente y tecnológico, con personal capacitado y respetuoso. Aseguraré justicia pronta y accesible para todos, con énfasis en los sectores vulnerables, garantizando transparencia, respeto a los derechos fundamentales y una actuación plenamente independiente e imparcial.
+
+
+## Propuestas
+
+- Como Juez Federal, consolidaré un juzgado de puertas abiertas, donde toda persona sea escuchada con respeto. Mi equipo estará capacitado para orientar con claridad a los sectores más vulnerables. No habrá barreras entre la justicia y el pueblo. Me comprometo a construir un tribunal cercano, humano y accesible, donde la dignidad y el derecho a la información sean pilares fundamentales.
+- Imagine llegar a su audiencia a la hora pactada y ser atendido sin demoras. Con mi gestión, impulsaré un sistema que garantice puntualidad absoluta. Se respetarán los horarios establecidos, optimizando cada sesión. Recibirá notificaciones precisas y actualizaciones en tiempo real. Mi compromiso: un juzgado que respete su tiempo. ¡Una justicia puntual es una justicia verdaderamente humana!
+- Mi compromiso es lograr un juzgado donde la dignidad y el respeto sean el eje de la atención ciudadana. Capacitaré continuamente al personal en atención incluyente, lenguaje respetuoso y protocolos para grupos vulnerables. Estableceré estándares que prioricen la empatía y el trato digno. Cada persona será atendida con humanidad, reconociendo que detrás de cada expediente hay una historia que merece nuestra máxima consideración.
+

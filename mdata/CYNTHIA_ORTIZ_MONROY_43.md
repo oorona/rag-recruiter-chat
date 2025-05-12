@@ -1,0 +1,78 @@
+Nombre Candidato: CYNTHIA ORTIZ MONROY
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5579956144
+Correo Electronico: laministramasjoven@gmail.com
+Numero de lista en boleta: 23
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CNDH, COPECOL., Comunicación Política, Derecho, Derecho Internacional Humanitario, Derechos Humanos, FLACSO, Género, Inteligencia Jurídica, Legislación
+Tags Propósito: Abusos legales, Acceso a la justicia, Asesoría legal, Brigadas jurídicas, Comunidad, Confianza judicial, Corrupción, Criminalización de la pobreza, Defensores corruptos, Democracia jurídica, Derechos humanos, Discriminación, Eficiencia judicial, Equidad, Impunidad, Justicia, Justicia social, Movilidad, Observatorios ciudadanos, Pobreza, Protección a víctimas, Regulación, Sanciones, Suprema Corte, Transparencia, Transparencia judicial., Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Cynthia Ortiz Monroy es candidata a Ministra de la Suprema Corte de Justicia de la Nación, postulada por el Poder Legislativo Federal y aparece en la boleta con el número 23. Cuenta con licenciatura en Derecho y ha realizado cursos en temas de comunicación política, derecho internacional humanitario y armonización legislativa.
+
+Su motivación para buscar el cargo se centra en democratizar el acceso a la justicia, considerándola un derecho fundamental y no un privilegio. Propone transformar el sistema judicial mexicano, actualmente percibido como ineficaz y distante, a través de medidas como la regulación de abogados corruptos, la creación de asesoría legal comunitaria y la implementación de brigadas jurídicas para acercar la Suprema Corte a la ciudadanía, promoviendo la transparencia y una perspectiva inclusiva del derecho.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://www.cynthiaortiz.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Cynthia-Ortiz-Monroy/61574116446485/?mibextid=wwXIfr
+- https://x.com/cynthiaaor_
+- https://www.instagram.com/cynthiaaor/
+- https://www.youtube.com/channel/UCJ9rObl-lobTPfu6xVhoS5Q
+- https://www.tiktok.com/@cynthiaaor_?_t=ZM-8v6h1FzudlN&_r=1
+
+
+## Cursos
+
+- Diplomado Internacional en Comunicación Política Estratégica
+- Facultad Latinoamericana de Ciencias Sociales (FLACSO),Curso de Derecho Internacional Humanitario
+- Comisión Intersecretarial de Derecho Internacional Humanitario de México,Seminario de Armonización Legislativa
+- CNDH y Conferencia Permanente de Congresos Locales (COPECOL)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/32/6
+
+
+## Trayectoria Academica
+
+- Estudié Derecho, me he enfocado en la aplicación de inteligencia jurídica con perspectiva de género y derechos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque la justicia no puede ser un lujo ni un privilegio, quiero ser Ministra para que la justicia sea nuestra, de todas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En México más del noventa y cuatro por ciento de los delitos quedan impunes. 2 de cada 3 personas no confían en las y los jueces ni en el sistema judicial. La justicia no debe ser lenta ni difícil de entender, quienes juzgamos tenemos la responsabilidad de acercarla a la gente, hacerla clara y accesible. La justicia debe ser rápida, transparente y dejar de ser un privilegio de unos pocos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es transformar un sistema de justicia que considero ineficaz, distante y discriminatorio. Aspiro a construir un modelo accesible, transparente y equitativo, donde la justicia no sea privilegio, sino un derecho tangible para todas las personas. Actualmente en el acceso a justicia tienen ventaja quienes tienen poder económico y político, la corrupción es persistente y afecta a las víctimas quienes han sido abandonadas y no tienen protección de las autoridades. El cambio es urgente
+
+
+## Propuestas
+
+- Sanciones y Regulación a Defensores Corruptos: Buscaré la implementación de un mecanismo efectivo de denuncias y sanciones contra abogadas y abogados que lucran con la desesperación de las familias. Impulsaré un proceso de revisión de los casos que hayan y/o tengan malas defensas para erradicar la red de coyotes estafadores. Se crearán procedimientos eficientes de atención a denuncias de abusos de coyotes y abogadas y abogados que agravan los casos en lugar de defenderlos
+- Asesoría Legal Comunitaria y revisión de la criminalización de la pobreza: Quiero establecer centros de asesoría gratuita en comunidades vulnerables para prevenir estafas y garantizar que las familias comprendan los procesos judiciales, mi oficina tendrá una unidad móvil para llegar a quienes lo necesiten. Se hará una revisión de casos de criminalización de la pobreza, a través de una comisión que revisará la situación de las personas sin sentencias.
+- Ser una Ministra de calles: Democratizar el Derecho y Hacerlo Accesible. Realizaré brigadas jurídicas populares para que todas las personas conozcan los alcances y responsabilidades de la Suprema Corte, estoy comprometida con la enseñanza del derecho desde una perspectiva inclusiva y poniendo al centro la justicia social. Trabajaré de la mano de la ciudadanía para desarrollar observatorios ciudadanos que vigilen el trabajo del Corte. La transparencia será un eje transversal.
+

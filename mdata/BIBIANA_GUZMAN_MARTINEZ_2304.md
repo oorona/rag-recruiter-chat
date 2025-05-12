@@ -1,0 +1,73 @@
+Nombre Candidato: BIBIANA GUZMAN MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5612494666
+Correo Electronico: bibianaguzmancandidatajueza@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CJF, Derecho de Amparo, Derechos Humanos, EFFJ, Formación, Función Secretarial, Género, Igualdad, Maestra, Poder Judicial de la Federación, Secretarios, Violencia
+Tags Propósito: accesibilidad, derechos humanos, equidad, imparcialidad, independencia, infancia, justicia, nepotismo, perspectiva de género, rendición de cuentas, sensibilidad social., transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Bibiana Guzman Martinez es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría en Derecho de Amparo y cédula profesional. Su trayectoria incluye cursos en formación y derechos humanos dentro del Poder Judicial y la EFFJ.
+
+La candidata motiva su postulación en la oportunidad de impartir justicia y proteger los derechos humanos. Su visión de la función jurisdiccional se centra en una justicia cercana, eficiente, imparcial e independiente, con sensibilidad social y respeto a los derechos humanos, especialmente de grupos vulnerables y con perspectiva de género. Sus propuestas principales son la resolución imparcial de casos, la transparencia y cercanía de la justicia a la ciudadanía, y la erradicación del nepotismo.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Bibiana Guzman Martinez
+- https://www.instagram.com/Bibiana Guzmán Martinez
+- https://www.tiktok.com/Bibiana Guzmán Martinez
+
+
+## Cursos
+
+- Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Ciclo Escolar 2010, CJF,Género como Herramienta para la Igualdad, EFFJ,Responsabilidades de la Función Secretarial y Para Generar Espacios Libres de Violencia, EFFJ,Derechos Humanos en el Poder Judicial de la Federación, Derechos Humanos y Género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53525/11
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho de Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Es el espacio que me dará la oportunidad de impartir justicia, protegiendo los derechos humanos que pertenecen a todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser cercana a la gente, resolviendo con sensibilidad social, de manera eficiente, imparcial e independiente, para que a través de las decisiones tomadas se protejan o restituyan los derechos humanos vulnerados y con ello se construya un país más justo y equitativo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe tener como eje rector el respeto a los derechos humanos de todas las personas, especialmente aquellos que pertenezcan a grupos vulnerables, resolver con perspectiva de género y con una protección reforzada a nuestras niñas, niños y adolescentes.
+
+
+## Propuestas
+
+- Resolver con imparcialidad y de manera independiente, para garantizar resoluciones que salvaguarden los derechos humanos de las personas.
+- La justicia debe ser cercana a la gente, transparente y de puertas abiertas, por lo que es necesario que conozcan quiénes son los encargados de impartir justicia, brindando confianza para que, de ser el caso, puedan acercarse y de manera clara y sencilla explicar las sentencias que se dicten, dándolas a conocer a través de medios accesibles para todos.
+- Cero nepotismo para lo cual deben aplicarse de manera rigurosa los mecanismos institucionales que lo erradiquen.
+

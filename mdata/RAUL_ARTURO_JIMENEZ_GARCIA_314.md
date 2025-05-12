@@ -1,0 +1,77 @@
+Nombre Candidato: RAUL ARTURO JIMENEZ GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: HOMBRE
+Telefono: 6121401209
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Argumentación Jurídica, Código Nacional de Procedimientos Civiles y Familiares, Derecho, Derecho Civil, Derecho Mercantil, Juicios Orales, Justicia de Género, Licenciatura., Maestría, Resolución Judicial, Sistema de Justicia Penal Adversarial, Tratados Internacionales, UABCS
+Tags Propósito: Agilidad, Automatización, Capacitación Judicial, Carrera Judicial., Control, Corrupción, Derechos Humanos, Eficacia, Expedición, Igualdad, Imparcialidad, Imparcialidad Judicial, Justicia, Nepotismo, Plazos Legales, Prontitud, Resolución, Sanciones, Seguimiento, Sistema Electrónico, Transparencia, Trámite
+
+
+## Descripción del Candidato 
+
+RAUL ARTURO JIMENEZ GARCIA es candidato a Magistratura de Tribunales Colegiados de Circuito por Baja California Sur, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho por la UABCS y maestría en juicios orales en derecho civil y mercantil, egresando en 2010 y 2020 respectivamente. Ha participado en diversos cursos de actualización en áreas como amparo, argumentación jurídica, justicia penal, tratados internacionales, perspectiva de género y procedimientos civiles y familiares.
+
+Su motivación para buscar el cargo se centra en la administración de justicia imparcial, pronta y expedita, así como en la aplicación de sus conocimientos judiciales.  Su visión se orienta a la eficiencia en la función jurisdiccional, la erradicación del rezago y la protección de los Derechos Humanos. Entre sus propuestas destacan la capacitación constante de los servidores públicos del Poder Judicial, el combate a las dilaciones en los juicios de amparo a través de sistemas automatizados, y la elaboración de un plan de control para evitar corrupción y nepotismo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/profile.php?id=61574534893576
+
+
+## Redes Sociales
+
+- https://www.facebook.com/raularturo.jimenezgarcia.3
+- https://www.instagram.com/raularturojimenezgarcia/?utm_source=qr&igsh=djc3cWdza2h0aWdi
+- https://www.tiktok.com/@raul.arturo.jimen?_t=ZM-8v6Ryy9eegR&_R=1
+
+
+## Cursos
+
+- 2014 ¿FORO DE ANÁLISIS DE LA NUEVA LEY DE AMPARO¿,2016 ¿ARGUMENTACIÓN JURÍDICA¿, curso impartido con enfoque en el SISTEMA DE JUSTICIA PENAL ADVERSARIAL,2016 ¿APLICACIÓN DE LOS TRATADOS INTERNACIONALES EN RESOLUCIONES JUDICIALES¿ Curso,2020 ¿PRIMER CONVERSATORIO ESTATAL DE IMPARTICIÓN DE JUSTICIA CON PERSPECTIVA DE GÉNERO¿,2023 ¿SEMINARIO CÓDIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53737/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UABCS
+- Egresado en 2010
+- Maestría en juicios orales en derecho civil y mercantil
+- Egreso en 2020
+
+
+## Motivo para buscar el Cargo Publico
+
+Administrar justicia de forma imparcial, pronta y expedita. Aplicar los conocimientos judiciales adquiridos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Impartir justicia de forma eficaz y efectiva. Erradicar el rezago y emitir las resoluciones en el plazo de ley. Erradicar el nepotismo y la corrupción. Proteger los Derechos Humanos de las personas. Agilizar el trámite y resolución de cada uno de los asuntos competencia del Tribunal, emitiendo criterios con protección constitucional más amplia que restrictiva en la interpretación y aplicación de las leyes. Aportar una imagen de agilidad en la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El trámite y resolución de los asuntos competencia del tribunal colegiado de circuito, debe garantizar que sea cumplido en los plazos legales y cumplimiento con las formalidades respectivas, sin afectar la calidad de las resoluciones, privilegiando con ello el mandato constitucional que permitirá al final una ejecución más favorables para los justiciables sea que se resuelva en favor de los intereses de la persona quejosa o tercera interesada, debido a que la lentitud afecta finalmente a ambas.
+
+
+## Propuestas
+
+- La capacitación de jueces, magistrados y demás servidores públicos del poder judicial de la federación, es esencial que se realice de forma constante para que se mantengan actualizados en los temas legales de su competencia. Por lo anterior, propongo se intensifiquen estas capacitaciones pero sin afectar el desempeño de su función judicial para que a su vez no se afecte la producción de resultados en el trámite y resolución de los asuntos que conocen.
+- Combatir las dilaciones evidentes que existen en la resolución de los juicios de amparo, implementando mecanismos que hagan efectivo el cumplimiento de los plazos de ley, con un sistema electrónico automatizado que notifique de forma inmediata al órgano competente cuando un asunto no se haya dictado en el plazo correspondiente, el cual a su vez obligue a generar un expediente en el que se obligue a emitir inmediatamente la resolución, pero además se sancione al servidor responsable y se publique
+- Elaborar un plan de control efectivo y seguimiento para evitar casos de corrupción y nepotismo, que garanticen efectivamente la carrera judicial como la elección popular según corresponda al cargo, generando un plano de igualdad como de imparcialidad. Para lo anterior, se deben otorgar herramientas más públicas, accesibles y que generen una sanción como impedimento inmediato.
+

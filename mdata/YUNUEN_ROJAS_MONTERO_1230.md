@@ -1,0 +1,73 @@
+Nombre Candidato: YUNUEN ROJAS MONTERO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización Constante., Competencia Constitucional, Derechos Humanos, Estudios de Especialidad, Formación Integral, Impartición de Justicia, Juicios Orales Familiares, Juicios Orales Mercantiles, Poder Judicial de la Federación
+Tags Propósito: Acceso a la justicia, Calidad, Compromiso, Consecuencias jurídicas., Corrupción, Eficiencia, Empatía, Escucha, Herramientas, Humanismo, Imparcialidad, Independencia, Jurisdicción, Ley, Poder Judicial, Profesionalismo, Puertas abiertas, Renovación, Resolución de conflictos, Servicio público, Trabajo en equipo, Tramitación, Transparencia
+
+
+## Descripción del Candidato 
+
+YUNUEN ROJAS MONTERO es candidata a Magistratura de Tribunales Colegiados de Circuito en Michoacán, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría concluida y una trayectoria académica enfocada en la actualización constante en temas de competencia constitucional, juicios orales y derechos humanos, buscando beneficiar la impartición de justicia.
+
+La candidata basa su motivación en su conocimiento del funcionamiento de los tribunales colegiados, producto de su experiencia dentro del Poder Judicial de la Federación. Sus propuestas se centran en un sistema de justicia accesible, transparente y eficiente, con énfasis en el humanismo, el trabajo en equipo y la atención a las necesidades de los gobernados. Busca un servicio público que brinde certeza jurídica, apego a la ley y combata la corrupción.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/17oQimzyfR/
+- https://www.instagram.com/yunuen6824/
+- https://www.tiktok.com/@yunuenmontero12?_t=ZM-8v5yq5T2AKN&_r=1
+
+
+## Cursos
+
+- Maestría en Competencia Constitucional y Ordinaria,Diplomado en juicios orales mercantiles y familiares,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Estudios de Especialidad,Curso para Generar Espacios Libres de,Nociones Generales en Materia de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54717/10
+
+
+## Trayectoria Academica
+
+- Estudio y actualización constantes como parte de una formación integral, y para beneficio de la impartición de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Conozco la función de un tribunal colegiado al haber ocupado distintos cargos dentro del Poder Judicial de la Federación
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser desarrollada, en primer lugar, con profesionalismo, responsabilidad, compromiso, total independencia e imparcialidad; y, en segundo término, con humanismo y profundo sentido de servicio a los demás, tomando en consideración que, primordialmente, está centrada en el servicio al pueblo, a las y los gobernados que acuden a pedir una solución a sus conflictos jurídicos. Debe mostrar apertura y disposición a escuchar con respeto los puntos de vista de las partes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es de las profesiones más nobles que el ser humano tiene la posibilidad de realizar. Representa la aptitud y la capacidad de comprender los problemas de las y los gobernados pero desde sus consecuencias jurídicas, para dar una solución dentro del margen de aplicación de las leyes y que, además, sea acorde con los hechos manifestados por las partes. Implica estudio y análisis profundo, ya que las decisiones que se toman trascienden a la vida de las personas y sus pertenencias.
+
+
+## Propuestas
+
+- Las personas titulares deben ser personas accesibles, es decir, no deben mostrarse como personas inalcanzables o que están por encima de los demás. Mi propuesta en ese sentido es: fomentar el trabajo en equipo y con la visión de que la justicia debe impartirse con humanismo, sencillez y empatía. Reforzar el profesionalismo y la responsabilidad que nos asiste como servidores públicos y que, por lo mismo, se debe trabajar con un alto compromiso de servir al pueblo y a la impartición de justicia.
+- El sistema de justicia requiere de una renovación; es necesario que las y los gobernados tengan la seguridad de que serán escuchados y atendidos; de que sus problemas serán resueltos con total apego a la ley y sin influencias derivadas de la corrupción. Mi propuesta en ese sentido es: desarrollar un servicio con transparencia, de puertas abiertas, que permita a las partes tener la confianza de acudir a resolver sus dudas respecto de sus asuntos; para evitar que sean víctimas de engaños.
+- Conozco el funcionamiento de un tribunal y sé que el trabajo adecuado de cada una de sus partes es de suma importancia; mi propuesta en ese sentido es: Brindar un servicio de calidad, excelencia y, sobre todo, eficiente; para ello, trabajaré en los temas que impiden que la tramitación de los asuntos fluya adecuadamente, me cercioraré de que cada persona cuenta con las herramientas necesarias, tanto intelectuales como materiales, impulsando el compromiso hacia el servicio público.
+

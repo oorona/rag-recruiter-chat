@@ -1,0 +1,75 @@
+Nombre Candidato: JAIME ARTURO ORTEGA VELA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COLIMA
+Sexo: HOMBRE
+Telefono: 6677473350
+Correo Electronico: lic.jaimearturoortegavela@outlook.es
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización Profesional., Derecho Administrativo, Derecho Constitucional, Derecho Fiscal, Juicios Orales, Justicia Administrativa, Licenciatura en Contaduría, Licenciatura en Derecho, Maestría en Derecho, Seminarios, UNAM, Universidad de Salamanca
+Tags Propósito: Calidad, Cercanía, Colaboración., Confianza, Empatía, Equidad, Honradez, Impartición de justicia, Justicia, México, Poder Judicial, Profesionalismo, Servidor público, Sistema judicial, Ética judicial
+
+
+## Descripción del Candidato 
+
+JAIME ARTURO ORTEGA VELA es candidato a Magistrado de Tribunales Colegiados de Circuito por el Poder Legislativo Federal, representando a Colima. Cuenta con estudios de Licenciatura en Derecho y Contaduría Pública, además de una Especialidad en Justicia Administrativa y una Maestría en Ciencias del Derecho. Su trayectoria incluye diversos cursos y seminarios en áreas como Derecho Administrativo, Democracia y Juicios Orales.
+
+Su motivación para buscar el cargo se basa en su compromiso con México y su deseo de servir a la sociedad a través de la justicia. Su visión de la función jurisdiccional y la impartición de justicia se centra en el servicio a la sociedad, la empatía con los justiciables y la aplicación de principios éticos. Sus propuestas principales incluyen fortalecer la cultura de empatía y equidad dentro del Poder Judicial, y aumentar la cercanía entre los justiciables y los juzgadores para generar mayor confianza en las decisiones judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574574613063
+
+
+## Cursos
+
+- Seminario titulado ¿Ley Federal del Procedimiento Contencioso Administrativo¿,Curso ¿Democracia, Derechos Fundamentales y Juez Constitucional¿, impartido en la Universidad de Salamanca, España
+- ,Jornadas sobre Juicios Orales, Instituto de Investigaciones Jurídicas de la Universidad Nacional Autónoma de Méx,Seminario de Actualización en Materia Fiscal
+- Centro de Estudios Superiores en Materia de Derecho Fiscal y Admvo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54281/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Lic
+- en Contaduría Pública, Especialidad en Justicia Administrativa y Maestria en Ciencias del Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque mi compromiso con México es alto; mi capacidad está al servicio de la sociedad; y creo en la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como servidores públicos la tarea es servir a la sociedad; la empatía y cercanía con los justiciables son elementos que debemos maximizar para fortalecer el sistema judicial; el profesionalismo y honradez son pilares de un juzgador justo..
+
+
+## Vision sobre la Imparticion de Justicia
+
+Dedicar una vida a la impartición de justicia, con los elementos técnicos necesarios para hacerlo con alto nivel de calidad, y bajo el ejercicio de una Ética Judicial rigurosa, permitirá colaborar a la consolidación de un México más justo para todos, tarea para la que se necesita la colaboración de todos.
+
+
+## Propuestas
+
+- 1. La propuesta que hago consiste en que se fortalezca en el Poder Judicial de la Federación la cultura de todo servidor público bajo una mayor empatía y equidad de éste con aquellos que reciben justicia.
+- 2. Fortalecer los canales para aumentar la cercania del justiciable con el juzgador, a fin de que se genere una mayor confianza en las decisiones judiciales.
+- No proporcionó
+

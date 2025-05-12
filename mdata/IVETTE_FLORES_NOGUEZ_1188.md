@@ -1,0 +1,85 @@
+Nombre Candidato: IVETTE FLORES NOGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 7226091451
+Correo Electronico: ivettenoguezsies@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Derecho, Derecho Constitucional, Derecho Laboral, Especialización, Formación Judicial, Judicatura Federal, Justicia Laboral, Licenciatura, Maestría, Mediación, Reforma Laboral, Secretarios PJF., Tribunal Superior de Justicia
+Tags Propósito: Acceso a la justicia, Ciudadanía, Confianza ciudadana, Derechos humanos, Derechos laborales, Dignidad, Eficiencia judicial., Equidad, Equilibrio procesal, Imparcialidad, Justicia laboral, Justicia social, Legalidad, Modernización, Resolución de conflictos, Seguridad jurídica, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+IVETTE FLORES NOGUEZ es candidata a Magistraduras de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo y Legislativo Federal. Es Licenciada en Derecho con Maestría en Derecho Constitucional y Amparo, y cuenta con especialización en Derecho del Trabajo. Ha realizado diversos cursos de formación en materia laboral y judicial, incluyendo especialidades en la Escuela Federal de Formación Judicial y el Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo público se centra en su pasión por la justicia y la protección de los derechos de trabajadores y empleadores. Su visión para la función jurisdiccional se basa en un compromiso con la cercanía a la ciudadanía, el conocimiento de la realidad social y el apego a los principios constitucionales y derechos humanos. Sus propuestas incluyen fortalecer la confianza en el sistema judicial mediante procesos transparentes, garantizar una justicia social que considere tanto a trabajadores como a empleadores, y aprovechar los avances tecnológicos para agilizar los tiempos de resolución.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1JqAtuU3KU/
+- https://www.instagram.com/ivette.noguez.sies?igsh=dTl4bHRrYnZpenl6
+- https://www.tiktok.com/@ivette.noguez.sies?_t=ZM-8v5lP3m08Vr&_r=1
+
+
+## Cursos
+
+- Especialidad en Materia de Trabajo y Justicia Laboral
+- 2021
+- Escuela Federal de Formación Judicial
+- ,Curso Actualización sobre la Reforma en Materia de Justicia Laboral
+- Escuela Federal de Formación Judicial
+- ,Jornadas de Sensibilización sobre la Reforma en Materia de Justicia Laboral
+- Escuela de Federal de Formación Judicial
+- ,Curso de Formación y Preparación de Secretarios del PJF
+- 2016
+- Instituto de la Judicatura Federal
+- Escuela Judicial
+- ,Conferencias VII Congreso Mundial y XI Congreso Nacional de Mediación 2011 Tribunal Superior de Justicia Estado México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53313/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho, con una Maestría en Derecho Constitucional y Amparo y, Especialista en Derecho del Trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Por amor a México.Soy apasionada de la justicia y protección de los derechos de las personas trabajadoras y empleadoras.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Asumo el compromiso de que mi función jurisdiccional será cercana a la ciudadanía, con conocimiento de la realidad social, que contribuya a reducir las brechas de las desigualdades, con apego a los principios constitucionales y derechos humanos. A lo largo de mi trayectoria, he consolidado experiencia en la materia, lo que me permitirá dictar resoluciones fundadas, transparentes y en estricto apego a la norma, con especial énfasis en los principios de legalidad, equidad y justicia social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia social debe ser el eje central de la labor jurisdiccional en materia laboral, como un pilar fundamental para la construcción de una sociedad más justa, equitativa e inclusiva. Tengo la convicción de que la impartición de justicia tiene que ser transparente, cercana a la gente, por lo que mis resoluciones serán dictadas con sensibilidad social y humana, desde una visión progresista, con la convicción de que detrás de cada juicio hay una historia de vida.
+
+
+## Propuestas
+
+- Recobrar la confianza de la ciudadanía asegurando que cada resolución se dicte de forma imparcial y accesible, atendiendo que detrás de cada expediente hay una historia, una familia, un sueño, no solo de la base trabajadora, sino también de aquellas empresas que día con día contribuyen a la economía de México, para lo cual mi compromiso es fortalecer la confianza en el sistema judicial a través de procesos transparentes, apegados a la legalidad, así como una capacitación continua.
+- Lograr una justicia transparente, a través de las resoluciones que dicte, se salvaguardará la estabilidad y dignidad de las personas trabajadoras, sin menoscabar los derechos de las personas empleadoras, respetando en todo momento el equilibrio procesal y la seguridad jurídica, por lo cual asumo el compromiso de tener procesos transparentes, con la publicación clara y comprensible de los criterios jurídicos que ahí se adopten, para garantizar transparencia y la correcta aplicación de la ley.
+- Aprovechar los avances tecnológicos, por lo que seré una activista en la promoción y adopción del uso de tecnologías y herramientas electrónicas, que permitan reducir los tiempos de resolución, que garanticen un acceso rápido y eficiente a la justica, convencida de que la modernización no solo es clave para agilizar los procesos, hacer la justicia más accesible y fortalecer la confianza de la ciudadanía, sino que también reducirá el desgaste del personal judicial y el uso de recursos materiales.
+

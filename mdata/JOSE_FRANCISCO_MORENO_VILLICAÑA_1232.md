@@ -1,0 +1,71 @@
+Nombre Candidato: JOSE FRANCISCO MORENO VILLICAÑA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4434575454
+Correo Electronico: framovi77@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Adolescentes, Capacitación, Currículo., Defensa Pública, Especialización, Sistema Integral de Justicia Penal, Sistema Penal, Sistema Penal Acusatorio, Trayectoria Académica
+Tags Propósito: Acceso a la justicia, Capacitación, Conciliación, Derechos humanos, Eficiencia, Estado de derecho, Evidencia científica., Imparcialidad, Independencia, Investigación, Justicia, Justicia restaurativa, Mecanismos alternativos, Mediación, Participación ciudadana, Pruebas, Rendición de cuentas, Sistema de justicia penal, Tecnologías, Transparencia, Universalidad
+
+
+## Descripción del Candidato 
+
+José Francisco Moreno Villicaña es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura concluida y especialización en diversos cursos del Sistema de Justicia Penal, incluyendo temas de oralidad, acusatorio y justicia para adolescentes.
+
+Su motivación para el cargo público es promover un país más justo y garantizar el acceso a la justicia para los sectores más vulnerables. Propone fortalecer la especialización y capacitación continua de los operadores del sistema judicial, promover el uso de mecanismos alternativos de solución de conflictos como la mediación y la conciliación, así como fortalecer la investigación y la prueba a través de protocolos estandarizados y basados en evidencia científica. Su visión se centra en un sistema de justicia moderno, transparente, eficiente y garantizador del acceso igualitario a la justicia, fundamentado en los derechos humanos y la rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- CURSO DE ESPECIALIZACION DE LOS DEFENSORES PUBLICOS EN EL NUEVO SISTEMA DE JUSTICIA PENAL,CURSO ESPECIALIZADO PARA DE CAPACITACION EN EL SISTEMA PENAL ACUSATORIO PARA DEFENSORES PUBLICOS,CURSO ESPECIALIZACIÓN EN SISTEMA ACUSATORIO Y ORAL,CURSOS DE ESPECIALIZACION EN EL SISTEMA INTEGRALDE JUSTICIA PENAL PARA ADOLESCENTES
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54337/10
+
+
+## Trayectoria Academica
+
+- Mi trayectoria académica y profesional esta descrita en el currículo que se adjunto a esta plataforma
+
+
+## Motivo para buscar el Cargo Publico
+
+POR UN PAIS MÁS JUSTO, Y PARA QUE LOS SECTORES MAS VULNERABLES DE LA SOCIEDAD TENGAN ACCESO A LA JUSTICIA SIN LIMITACION
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+TENER UN SISTEMA JUSTICIA MODERNO, TRANSPARENTE Y CON EFICIENCIA, QUE PUEDA GARANTIZAR EL ACCESO IGUALITARIO A LA JUSTICIA PARA TODOS LOS CIUDADANOS. IMPARTIENDO RESOLUCIONES JUSTAS, PARA PODER FORTALECER EL ESTADO DE DERECHO. ASI COMO TAMBIEN LA IMPLEMENTACION DE TECNOLOGIAS QUE AGILICEN LOS PREOCESOS JUDICIALES. GARANTIZAR LAS PUBLICIDAD DE LOS ACTOS JUDICIALES Y PROMOVIENDO LA RENDICION DE CUENTAS DE LOS OPERADORES DEL SISTEMA. FOMENTAR LA PARTICIPACIÓN CIDADANA EN LA VIGILANCIA DEL SISTEMA
+
+
+## Vision sobre la Imparticion de Justicia
+
+LA IMPARTICION DE JUSTICIA ES UN CONCEPTO COMPLEJO, QUE VA MAS ALLA DE LA SIMPLE APLICACION DE LA LEY. LA IMPARTICION DE JUSTICIA ES UN PILAR FUNDAMENTAL EN CUALQUIER SOCIEDAD QUE ASPIRE A MANTENER EL ORDEN Y LA PAZ SOCIAL, Y ESTA SIEMPRE DEBE DE ESTAR AJUSTADA A LOS DERECHOS HUMANOS. LA IMPARTCION DE LA JUSTICIA DEBE DE SER UNIVERSAL, IMPARCIAL Y CON INDEPENDENCIA, ES DECIR SIN ESTAR SOMETIDOS E INFLUENCIADOS POR NADA, NI POR NADIE, PARA ASI PODER GARANTIZAR DECISIONES QUE SE BASEN EN LA LEY!
+
+
+## Propuestas
+
+- ESPECIALIZACIÓN Y CAPACITACIÓN OBLIGATORIA Y CONTINUA DE TODOS LOS OPERADORES DEL SISTEMA DE JUSTICIA PENAL, COMO LOS SON POLICIAS, MINISTERIOS PUBLICOS, DEFENSORES PÚBLICOS, JUECES Y MAGISTRADOS.
+- BUSCAR MAS EL USO DE MECANISMOS ALTERNATIVOS DE SOLUCION DE CONFLICTOS, PROMOVIENDO EL USO DE LA MEDIACION Y LA CONCILIACION, PARA ASI PODER LOGRAR UNA JUSTICIA MAS RESTAURATIVA, PRONTA Y EXPEDITA.
+- BUSCAR EL FORTALECIMIENTO DE LA INVESTIGACION Y LA PRUEBA. IMPLEMENTAR PROTOCOLOS DE INSVESTIGACION ESTANDARIZADOS Y BASADOS EN EVIDENCIA CIENTIFICA PARA EVITAR ERRORE Y SESGOS EN LA PRUEBAS.
+

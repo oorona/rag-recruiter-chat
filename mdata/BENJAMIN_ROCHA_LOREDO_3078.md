@@ -1,0 +1,77 @@
+Nombre Candidato: BENJAMIN ROCHA LOREDO
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, CJF, Competencia Constitucional, Código Nacional de Procedimientos Civiles y Familiares, Derecho Constitucional, EFJF, Formación Judicial., Género, Igualdad, Tribunal de Circuito, UASLP, Violencia
+Tags Propósito: acceso a la justicia, administración de justicia, argumentación jurídica, calidad de trato, cortesía, derechos humanos, desarrollo institucional, dignidad, evolución social, función judicial, hechos., instituciones jurídicas, juicio de amparo, justicia, justicia procedimental, lenguaje accesible, neutralidad, normas, reglas, resolución de conflictos, toma de decisiones, transparencia
+
+
+## Descripción del Candidato 
+
+BENJAMÍN ROCHA LOREDO es candidato a Juez/a de Distrito en San Luis Potosí, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Constitucional y Amparo, complementada por diversos cursos de actualización en temas legales y de igualdad de género impartidos por la Escuela Federal de Formación Judicial del CJF.
+
+Su motivación para buscar el cargo público se centra en su trayectoria en la administración de justicia y su deseo de servir a la Nación.  Sus propuestas principales incluyen la implementación de una justicia procedimental con apego a las normas, una calidad de trato respetuosa hacia justiciables y colaboradores, y la garantía de espacios para la expresión de las personas que buscan justicia, con resoluciones justificadas y accesibles. Considera que la función judicial federal es generalmente buena, pero perfectible, y que el compromiso con el desarrollo de las instituciones jurídicas debe provenir de las personas que las integran.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BrVz7cvoi/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Maestría en Derecho Constitucional y Amparo (Actualmente concluida, pendiente de titulación)
+- UASLP,Curso de Actualización sobre el Código Nacional de Procedimientos Civiles y Familiares; EFFJ del CJF,Curso Género como Herramienta para la Igualdad (Treceava Edición)
+- Escuela Federal de Formación Judicial del CJF; 2024
+- ,Curso para Generar Espacios Libres de Violencia I (2023)
+- Escuela Federal de Formación Judicial del CJF; 2023
+- ,Curso de Formación para Personas Secretarias de Tribunal de Circuito: Concurso Escolarizado Edición 2022
+- EFFJ del CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54478/11
+
+
+## Trayectoria Academica
+
+- Maestro en Competencia Constitucional y Ordinaria, por la ahora Escuela Federal de Formación Judicial;
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi vida profesional ha sido dedicada a la administración de justicia. Servir a la Nación es el orgullo más grande.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función judicial a nivel federal, en general, es buena. Grandes juristas se han encargado de enaltecer instituciones como el Juicio de Amparo, de gran reconocimiento a nivel mundial. Y, si bien, como todo en la vida, la función judicial es perfectible o mejorable, ello se realiza conforme evoluciona la vida en sociedad, pues finalmente, eso es lo que regula el derecho. No obstante, se requiere de la dotación de los insumos necesarios y suficientes para su ejercicio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desafortunadamente, son las personas quienes cada vez demuestran un nulo compromiso en el desarrollo de nuestras instituciones jurídicas, dentro y fuera de los tribunales jurisdiccionales. Es decir, somos las personas quienes debemos mejorar en todos los aspectos. Entonces, hay que ser parte de esas personas que construyen y abonan, en todos los aspectos de la vida, incluido por supuesto, el desempeño en la función judicial, y germinar esa idea en futuras generaciones; servir de ejemplo.
+
+
+## Propuestas
+
+- Durante el proceso de toma de decisiones, las personas juzgadoras, dejan de lado las necesidades de las y los justiciables, incluso, de las personas colaboradoras dentro de los tribunales. Por ello, mi principal propuesta, es implementar una verdadera justicia procedimental; esto es, actuar con apego a las normas, garantizando respuestas adecuadas a las conductas, emitiendo decisiones justas y realizando procesos de toma de decisiones justos.
+- Mi actuar siempre será, como lo ha sido a la fecha, con una calidad de trato hacia las personas justiciables y hacia las personas colaboradoras del juzgado. Exigiré, como también lo he hecho siempre, una adecuada calidad de interacción, entre todas las personas que estemos involucradas en los procedimientos sujetos a mi conocimiento. Garantizo la neutralidad, esto es, la toma de decisiones con base en principios, reglas y hechos del caso específico, con apertura y transparencia.
+- En la toma de decisiones y, sobre todo, en el dictado de mis sentencias, se garantizarán espacios de expresión a las personas que busquen justicia. Es decir, las personas tendrán oportunidad de explicarme, de viva voz, su situación particular. Siempre habrá un trato con dignidad y cortesía, con consideraciones por los derechos de todas las personas, sin tratos despectivos o denigrantes. Mis resoluciones se encontrarán debidamente justificadas, argumentadas y explicadas con un lenguaje accesible.
+

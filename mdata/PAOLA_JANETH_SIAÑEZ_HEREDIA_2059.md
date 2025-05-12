@@ -1,0 +1,78 @@
+Nombre Candidato: PAOLA JANETH SIAÑEZ HEREDIA
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: MUJER
+Telefono: 6562718866
+Correo Electronico: licpaolasianez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Asuntos Internacionales, Derecho del Trabajo, Derechos Humanos, Derechos de la Infancia, Doctorado en Derecho, Formación Judicial., Igualdad de Género, Justicia Laboral, Licenciatura en Derecho, Máster en Derecho Público, Poder Judicial de la Federación
+Tags Propósito: Acceso a la justicia, Autonomía judicial, Derecho, Derechos humanos, Empatía, Interculturalidad, Interseccionalidad, Justicia accesible, Justicia social, Optimización de recursos, Perspectiva de género, Resolución justa, Sentencias transformadoras.
+
+
+## Descripción del Candidato 
+
+Paola Janeth Siañez Heredia es candidata a Jueza/es de Distrito en Chihuahua, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado concluidos y posee especialización en Derecho del Trabajo y Justicia Laboral, además de diversos cursos en temas de derechos humanos y perspectiva de género. 
+
+Su motivación para buscar el cargo se basa en la necesidad de contar con juzgadores expertos y empáticos. Su visión para la función jurisdiccional se centra en facilitar el acceso a la justicia a través de la información clara y oportuna, la protección de los derechos humanos y la resolución eficiente de casos. Sus propuestas incluyen la provisión de información clara sobre los procesos judiciales, la justicia accesible para todos y la resolución justa, pronta y efectiva de los casos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EZEh41WUC/?mibextid=wwXIfr
+- https://www.x.com/Pao_Sianez
+- https://www.instagram.com/Pao_Sianez
+- https://www.linkedin.com/in/paola-siañez-heredia-270587pj
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral impartida por la Escuela Federal de Formación Judicial
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Curso Los Derechos de la Infancia y el Acceso a la Justicia impartido por el CJF, la SCJN y UNICEF
+- ,Curso Los Estados y sus Obligaciones Internacionales en Derechos Humanos
+- ,Género como Herramienta para la Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55603/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho y Asuntos Internacionales, Máster en Derecho Público y Doctorante en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Los nuevos juzgadores deben ser expertos en derecho, empáticos y receptivos a los problemas que aquejan a la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Facilitar el acceso a la justicia proporcionando a la ciudadanía información clara, efectiva y oportuna sobre los procesos que se ventilan en la vía judicial, pues muchas veces el desconocimiento de éstos ocasiona que se cometan injusticias en los casos que se plantean; garantizar la protección de los derechos humanos en los procesos judiciales; autonomía en la resolución de los casos que se me presenten; optimización de recursos para resolver cada caso de manera pronta y justa, entre otras.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En caso de resultar elegida como Jueza de Distrito, sin lugar a dudad impartiré justicia desde un enfoque de derechos humanos, con especial consideración de la perspectiva de género, interculturalidad e interseccional y siempre en favor de las personas que menos tienen, asegurando con ello una verdadera justicia social a través de sentencias transformadoras que contribuyan a la construcción de nuestro país.
+
+
+## Propuestas
+
+- Proporcionar información clara, oportuna y veraz sobre los procesos y procedimientos judiciales.
+- Justicia accesible para todas las personas sin discriminación ni exclusión.
+- Resolución de casos de manera justa, pronta, equitativa y efectiva.
+

@@ -1,0 +1,71 @@
+Nombre Candidato: EDUARDO CIPRIANO MANZANILLA AZNAREZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionado, nulo, vacío
+Tags Propósito: No proporcionó, ausencia, carencia, inexistente, nulo, vacío
+
+
+## Descripción del Candidato 
+
+EDUARDO CIPRIANO MANZANILLA AZNÁREZ es candidato a Juez/a de Distrito en JALISCO, postulándose a través del Poder Judicial de la Federación.
+
+No se cuenta con información adicional sobre su trayectoria académica, profesional, motivaciones para el cargo, o propuestas específicas, ya que no se proporcionaron datos al respecto en el perfil registrado. Su estatus en el sistema figura como "Sin captura".
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

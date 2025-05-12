@@ -1,0 +1,78 @@
+Nombre Candidato: GRICELDA ESBEYDA VENCES SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada Laboralista, Abogada Postulante, CDMMX, Derecho Internacional del Trabajo, Derecho Procesal Laboral, Derecho del Trabajo, Experiencia Laboral, Formación Judicial., JLCA, Juicio de Amparo, Justicia Laboral, Seguridad Social
+Tags Propósito: Acceso a la Justicia, Certeza, Compromiso, Corrupción, Derecho Laboral, Escucha, Expeditez, Género, Inmediatez, Jurisprudencia, Justicia, Ley Federal del Trabajo, Normatividad., Principios Procesales, Realidad, Renovación, Sencillez, Sentencias Justas, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gricelda Esbeyda Vences Sanchez es candidata a Jueza de Distrito en la Ciudad de México, postulándose al Poder Judicial de la Federación. Abogada laboralista con más de 10 años de experiencia en la JLCA de la CDMX y en despacho privado, actualmente cursa una Maestría en Derecho Procesal Laboral.
+
+Su motivación para el cargo público es servir a la ciudadanía a través de un sistema de justicia justo y renovado, con énfasis en el acceso a la justicia laboral, la transparencia y la consideración de las necesidades de los justiciables.  Sus propuestas incluyen garantizar el acceso a la justicia laboral de forma transparente, mantenerse actualizada académicamente para juzgar con perspectiva de género y de grupos vulnerables, y promover la cero tolerancia a la corrupción dentro del Tribunal.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ELd7QwFYz/?mibextid=wwXlfr
+- https://x.com/grisvences?s=11&t=zzihndR3q6a8JANEblu-Ylw
+- https://www.instagram.com/gricelda.vences?igsh=MW5kbzM5cTZwbG80ag3D3D&UTM_source=qr
+- https://www.tiktok.com/@grisvences4?_t=ZM-8v37GzITIqE&_R=1
+
+
+## Cursos
+
+- Maestría en Derecho Procesal Laboral, por el Centro de Estudios de Posgrado (termina en abril de 2025)
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral, por la Escuela Federal de Formación Judicial del CJF
+- ,Curso en Derecho Laboral Procesal y Derecho Internacional del Trabajo, por la Escuela Federal de Formación Judicial
+- ,Diplomado en Juicio de Amparo, versión 2024, por la SCJN, a través de las Casas de Cultura Jurídica
+- ,Diplomado en Seguridad Social, por la Escuela Federal de Formación Judicial del CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55080/11
+
+
+## Trayectoria Academica
+
+- Abogada laboralista, con mas de 10 años de experiencia en la JLCA de la CDMMX y en despacho, como abogada postulante
+
+
+## Motivo para buscar el Cargo Publico
+
+Porqué quiero servir a la ciudadanía a través de un sistema justo y renovado desde el compromiso con y para el pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional comprende varios aspectos, entre ellos, garantizar a los justiciables acceso a una justicia pronta y expedita, libre de formulismos; y en especial tratándose del derecho del trabajo, ya que, es la base de la sociedad y el sustento de las familias, por ello, se deben observar en todo momento los principios que rigen el procedimiento, muy en particular el principio de realidad, que significa juzgar las verdaderas razones del juicio por encima de formulismos procesales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia, necesita urgentemente ser renovada desde la raíz, tenemos en nuestras manos la posibilidad de construir nuevas realidades, cercanas a la gente, a los usuarios, a los justiciables, a los trabajadores con sed de justicia; no juzgando detrás de un escritorio, de un expediente; si no, escuchando a todas las partes, valorando las pruebas en conciencia, a verdad sabida como lo ordena la Ley Federal del Trabajo, para poder dictar sentencias justas y así impartir justicia.
+
+
+## Propuestas
+
+- Trabajar arduamente para garantizar a los justiciables que acuden a los Tribunales Laborales de Asuntos Individuales en busca de justicia, el acceso a la misma, de forma transparente; con la puerta siempre abierta para atender a quien lo requiera, explicándoles en todo momento la etapa procesal en la que se encuentre su procedimiento, hablando con verdad, compromiso y responsabilidad. Siempre atendiendo a los principios procesales que rigen los procedimientos, como el de sencillez e inmediatez.
+- Seguir preparándome académicamente para estar actualizada siempre y así juzgar con perspectiva de genero, perspectiva de grupos vulnerables, etc.; atendiendo a las jurisprudencias de la Suprema Corte de Justicia de la Nación, a los tratados internacionales y a lo ordenado en la Ley Federal del Trabajo, dictando sentencias que cumplan con todas estas normas y también que sean claras, precisas, entendibles, para las partes que intervengan en el juicio, pero principalmente para los trabajadores.
+- Cero tolerancia a la corrupción y a todas las   que puedan existir al interior del Tribunal; para garantizar a los usuarios, justiciables y trabajadores, un proceso cien por ciento transparente, libre de corrupción y con ello, generar certeza en las partes, en que su juicio o los procedimientos en que se encuentren involucrados serán juzgados con la normatividad y leyes aplicables y que no existirá ningún elemento  que haya influido en sus procedimientos y sentencias.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: NESTOR SALVADOR SAAVEDRA SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 5572465973
+Correo Electronico: nesaavedra.jurista@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho, Derecho Laboral, Formación Judicial, Igualdad de Género, Licenciatura, Posgrado, Seguridad Social, Universidad de Guadalajara.
+Tags Propósito: Acceso a la Justicia, Carrera Judicial, Ciudadanía, Derechos Humanos, Dilación Judicial, Eficiencia, Formación, Igualdad, Impartición de Justicia, Nepotismo, Plazos Legales, Resolución de Conflictos, Servicio Público., Supervisión Ética, Transparencia, Vulnerabilidad, Ética Judicial
+
+
+## Descripción del Candidato 
+
+NÉSTOR SALVADOR SAAVEDRA SÁNCHEZ es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Es Licenciado en Derecho con grado de Especialidad por la Escuela Federal de Formación Judicial, y cuenta con cursos en áreas como Derechos Humanos, Derecho Laboral y Argumentación Jurídica.
+
+Su motivación para buscar el cargo se centra en la función jurisdiccional y la impartición de justicia con enfoque en los Derechos Humanos. Propone mejorar la accesibilidad a la justicia, fortalecer la carrera judicial con formación en Derechos Humanos y eliminar el nepotismo, así como resolver los conflictos de fondo evitando dilaciones y promoviendo la ética en el actuar de los operadores jurídicos. Su visión de la función jurisdiccional la describe como un servicio a la ciudadanía que requiere responsabilidad, objetividad y un desempeño profesional, priorizando la igualdad y el bienestar social.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/nestor.saavedra.838575
+- https://x.com/nestor_sss
+- https://www.instagram.com/nes.saave
+- https://www.youtube.com/nestorsaavedra1705
+- https://www.tiktok.com/@abogado_nestorsaavedra
+
+
+## Cursos
+
+- Curso Genero como Herramienta para la Igualdad
+- Tercera Edición,Seminario de Derecho Colectivo,Seminario en Seguridad Social,Curso Derecho Laboral Procesal y Derecho Internacional del Trabajo,Curso Interpretación y Argumentación Jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55404/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad de Guadalajara, Grado de Especialidad, Escuela Federal de Formación Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Me apasiona la función jurisdiccional e impartición de justicia desde la perspectiva y salvaguarda de Derechos Humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es una función de servicio a la ciudadanía que merece un desempeño responsable, objetivo, profesional y de excelencia; aspecto pilar para el debido funcionamiento del Estado, ya que por esta vía se resuelven los conflictos judiciales, a través de la aplicación de normas jurídicas, privilegiando la igualdad sin discriminación alguna, que busca favorecer en todo momento el bienestar de la sociedad; de ahí que la administración de justicia está íntimamente ligada a la ética del Juzgador.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar a la sociedad un sistema accesible y eficiente que salvaguarde el respeto de los derechos humanos. La necesidad de un acercamiento hacia la ciudadanía y, más aún, con aquellos sectores considerados históricamente en situación de vulnerabilidad; lo anterior, desde una perspectiva o plano de igualdad, velando por que las personas reciban un trato justo, sin discriminación alguna y procurando se les imparta justicia apegado a derecho, actuando siempre bajo el principio de imparcialidad.
+
+
+## Propuestas
+
+- Mayor accesibilidad a la impartición de justicia, a través de diversos mecanismos que informen a la ciudadanía como hacer valer sus derechos cuando estimen que han sido vulnerados por alguna autoridad; a su vez, escuchar activamente las necesidades de la población a fin de identificar las áreas de oportunidad en el desarrollo de la función jurisdiccional. Actuaciones que, en conjunto, abonarían al desempeño de los servidores públicos y entendimiento de la sociedad en torno a sus derechos.
+- Fortalecimiento de la carrera judicial mediante la impartición de cursos, diplomados, seminarios, entre otros; en cuyo caso, se observe como uno de los ejes primordiales la sensibilización en torno a la protección de los Derechos Humanos; así como, generar oportunidades óptimas para el ingreso a dicha carrera, eliminando cualquier clase de nepotismo que pudiera impedir el arribó de los mejores perfiles para ocupar los cargos dentro de la función pública.
+- Resolver de fondo los conflictos jurisdiccionales sometidos a la potestad jurisdiccional, evitando formulismos que traigan consigo el retardo en la solución real de los juicios; lo que a la postre se traduciría en una impartición de justicia denegada debido a su dilación excesiva; así como respetar los plazos legalmente previstos para tal efecto. En concordancia con ello, establecer un mecanismo para verificar el actuar ético de todos los operarios en el desempeño de sus labores.
+

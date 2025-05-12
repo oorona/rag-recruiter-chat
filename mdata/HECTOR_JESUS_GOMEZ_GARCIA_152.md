@@ -1,0 +1,73 @@
+Nombre Candidato: HECTOR JESUS GOMEZ GARCIA
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 3315434741
+Correo Electronico: lic.hectorgomez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación Electoral., Derecho Constitucional, Derecho Electoral, Derecho Mercantil, Derecho Procesal Civil, Derecho Público, Diplomado, Justicia Civil, Justicia Familiar, Maestría, Posgrado, Universidad de Guadalajara
+Tags Propósito: Capacitación, Capital Humano, Certeza, Certeza Jurídica, Confianza, Credibilidad, Democracia, Derechos Humanos, Eficacia., Eficiencia, Elecciones, Imparcialidad, Independencia, Innovación, Jurisdicción Electoral, Justicia, Legalidad, Objetividad, Tecnología, Transparencia, Universidades
+
+
+## Descripción del Candidato 
+
+HÉCTOR JESÚS GÓMEZ GARCÍA es candidato a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulándose a través de la vía Nacional para el Poder Legislativo Federal. Cuenta con Maestría en Derecho Electoral y Público, así como diversos posgrados y diplomados en áreas relacionadas con el derecho constitucional, procesal y la justicia civil. 
+
+Su motivación para buscar el cargo es fortalecer la confianza ciudadana en la certeza de las elecciones. Su visión se centra en la responsabilidad y profesionalismo en la función jurisdiccional electoral, priorizando los principios de certeza, legalidad, independencia, imparcialidad y objetividad.  Sus propuestas incluyen la vinculación con universidades para promover el estudio del derecho electoral, la transparencia en la gestión y la capacitación continua de los integrantes del órgano jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/hector_gomezgarcia/
+
+
+## Cursos
+
+- Maestro en Derecho Electoral por el Instituto de Investigaciones y Capacitación Electoral
+- ,Maestro en Derecho Público por la Universidad Panamericana Campus Guadalajara
+- ,Posgrado en Derecho Constitucional y Amparo por la Universidad Panamericana Campus Guadalajara,Posgrado en Derecho Procesal Civil y Mercantil por la Universidad Panamericana Campus Guadalajara,Diplomado de Formación Inicial sobre el Nuevo Sistema de Justicia Civil y Familiar
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15878/9
+
+
+## Trayectoria Academica
+
+- Soy egresado de la Universidad de Guadalajara, y actualmente cuento con dos Maestrías, una de estas en materia electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Para que la ciudadanía tenga confianza de que cuentan con un profesional que garantizará la certeza de las elecciones.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Sin duda, la función jurisdiccional es un pilar en nuestro país, más aún aquella que se encarga de los temas electorales, pues ahí descansa uno de los ejes de nuestra democracia. Por tanto, el ejercicio de esta función debe siempre de tomarse con total responsabilidad y profesionalismo, garantizando que en cada determinación se encuentren vigentes los cinco principios rectores de la materia electoral: certeza, legalidad, independencia, imparcialidad y objetividad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la impartición de justicia debe estar enfocada en otorgar la mayor credibilidad, confianza y reconocimiento social. Esto, por medio de la excelencia, la constante capacitación e innovación, buscando siempre la protección de los Derechos Humanos y garantizando certeza jurídica, con procesos y resoluciones eficaces, eficientes, transparentes, tecnológicos e informativos.
+
+
+## Propuestas
+
+- La vinculación directa con todas las universidades de la circunscripción, para que la materia electoral se vuelva parte del tronco común académico. Así como, ser facilitadores de capital humano para cumplir con este objetivo.
+- Buscar la mayor transparencia y apertura con toda la ciudadanía.
+- La constante capacitación y actualización de todos los integrantes del órgano jurisdiccional.
+

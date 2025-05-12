@@ -1,0 +1,76 @@
+Nombre Candidato: ALLAN WILLEBALDO HERNANDEZ ISLAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: 7712428279
+Correo Electronico: willebaldohislas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho Penal, Derechos Humanos, Especialidad, FES Aragón, Honores., INDEPAC, Licenciatura, Litigio Estratégico, Maestría, Secretaría de Juzgado, UNAM
+Tags Propósito: Acceso a la justicia, Confianza social, Corrupción, Eficiencia, Fiscalización, Hidalgo., Influyentismo, Integridad, Justicia, Nepotismo, Participación ciudadana, Poder Judicial, Puertas abiertas, Respaldo ciudadano, Sentencias claras, Transparencia
+
+
+## Descripción del Candidato 
+
+ALLAN WILLEBALDO HERNANDEZ ISLAS es candidato a Magistrado de los Tribunales Colegiados de Circuito en Hidalgo, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y Derechos Humanos, y una sólida formación académica que incluye especialidades en Derecho Penal, Secretaría de Juzgado y Litigio Estratégico en Derechos Humanos.
+
+Su motivación para buscar el cargo se centra en el servicio público y su visión busca un Poder Judicial íntegro, transparente y accesible para todos los ciudadanos, con énfasis en la erradicación de la corrupción, el nepotismo y el influyentismo. Sus propuestas incluyen la apertura del proceso judicial a la ciudadanía, la emisión de sentencias claras y fundadas, y una gestión eficiente que respete la vida personal de los trabajadores.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/will.bush.35
+- https://x.com/allan_hedz?s=11&t=aChp3EiXHh6S2hiziRgy0Q
+- https://instagram.com/willebaldo_islas?igsh=MTFnY3IIYnhldWFtOA3D3D&utm_-source=qr
+- https://www.tiktok.com/@willebaldoislas?_t=ZM-8v10tjPlwaj&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho Penal en la Facultad de Derecho de la Universidad Nacional Autónoma de México (Con honores),Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, por el Instituto de la Judicatura Federal,Maestría en Derechos Humanos en el Instituto de Estudios Superiores en Derecho Penal (INDEPAC),Diplomado de Especialización en Litigio Estratégico en Derechos Humanos por el INDEPAC,Maestría en Derecho en la FES Aragón de la UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53908/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Esp
+- en Derecho Penal (con honores) por la UNAM
+- Maestro en Derechos Humanos por el INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a los demás es una vocación de vida y hoy estoy aquí para cumplir con mi vocación de ayudar al pueblo de Hidalgo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La impartición de justicia no debe ser solo para unos cuantos, sino para los que más la necesitan, busco la formación de un Poder Judicial digno y para todos, en el que no haya más corrupción, nepotismo e influyentismo que tanto daño le han hecho a la institución y en el que la sociedad tenga un papel activo como fiscalizadores del actuar judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para mí, la impartición de justicia debe generar confianza social, esto es, que el pueblo se sienta protegido por sus instituciones judiciales para que no duden en acudir a ellas. Se debe erradicar la idea atroz de que el que tiene dinero puede mover la balanza de la justicia a su favor, ya que con esta reforma eso se acabó. También busco una justicia más ágil y entendible para todas las partes, a fin de que sepan a detalle los motivos de uno u otro sentido.
+
+
+## Propuestas
+
+- Desterraremos la corrupción, el nepotismo y el influyentismo, con un actuar íntegro y transparente, en el que no haya cabida al dudar del juzgador, se acabará eso de reunirse con una de las partes en lo oscurito o el famoso alegato de oreja con solo uno de los contendientes, ya que ello se puede prestar a muchas malas interpretaciones. Se acabará el dar trabajo a recomendados o familiares que no tengan la capacidad suficiente, en perjuicio del personal que realmente trabaja.
+- Propiciaremos un trabajo de puertas abiertas, más cercano a la gente, en el que un día de cada semana, cualquier persona pueda asistir a la ponencia a mi cargo y ver de manera directa como se realiza la función, así como aclarar las dudas en lo relativo al actuar de su magistrado.
+- Se impulsará un trabajo más eficiente, esto a través de sentencias sencillas y entendibles para todas las personas, pero fundadas y motivadas, a fin de que cualquier ciudadano pueda comprender el sentido y alcance de la decisión tomada; esto a su vez, implicará que el personal labore eficazmente, sin necesidad de quitarle tiempo a su vida persona y/o familiar para atender las cargas de trabajo imperantes. Soy Willebaldo y en Hidalgo quiero ser tu respaldo.
+

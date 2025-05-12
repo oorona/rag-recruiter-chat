@@ -1,0 +1,76 @@
+Nombre Candidato: HECTOR HUGO COVARRUBIAS FLORES
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2212671761
+Correo Electronico: hhcovarrubias@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Justicia, Asesoría Jurídica, CMEP Xalapa., Control de Constitucionalidad, Derecho del Trabajo, Derechos Humanos, Doctorado en Derecho Procesal, Formación Judicial, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Pueblos Indígenas, SCJN, UAT, UNAM
+Tags Propósito: acceso a la justicia, bien común, corrupción, derechos humanos, diversidad sexual, eficiencia, equidad, estabilidad laboral, evaluación, grupos vulnerables, imparcialidad, independencia, inteligencia artificial, justicia, justicia comunitaria, justicia rápida, lenguaje ciudadano, migración, nepotismo, personas con discapacidad, perspectiva de género, pueblos indígenas, rendición de cuentas, supervisión., tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+HÉCTOR HUGO COVARRUBIAS FLORES es candidato a Juez/a de Distrito en Veracruz, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho y una trayectoria académica que incluye licenciaturas en la UAT, maestría en la UNAM y doctorado en el CMEP Xalapa. Su motivación para buscar el cargo público es impartir justicia con equidad, imparcialidad e independencia, priorizando el bien común.
+
+Su visión se centra en erradicar el nepotismo y fortalecer la independencia judicial, promoviendo la igualdad de acceso a la justicia, especialmente para grupos vulnerables. Propone el uso de tecnologías de la información e inteligencia artificial para mejorar la eficiencia de los procesos jurisdiccionales, así como la transparencia en el quehacer judicial, incluyendo la publicación de resoluciones en lenguaje accesible y la implementación de mecanismos de evaluación.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://drhectorcovarrubias.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ERQoqNSuh/
+- https://x.com/DrHectorCova?t=8IzllY8T-TOptrz1SyY_mw&s=09
+- https://www.instagram.com/drhectorcovarrubias?igsh=aTkxY3R1aG00MDE0
+- https://www.tiktok.com/@drhectorcovarrubiasf?_t=ZM-8uYUfnZEAjO&_r=1
+- https://mx.linkedin.com/in/dr-hC3A9ctor-hugo-covarrrubias-flores-3a281b84?
+
+
+## Cursos
+
+- Reforma en Derechos Humanos y nuevo control de Constitucionalidad, SCJN, 2013,Acceso a la Justicia, Derechos Humanos de Pueblos y Comunidades Indígenas, 2021,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, 2009,Especialidad en Asesoría Jurídica 3ra
+- Generación Escuela Federal de Formación Judicial,2024,Especialidad en Derecho del Trabajo y Justicia Laboral, Escuela Federal de Formación Judicial, 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52927/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciado en Derecho por la UAT; Maestro en Derecho por la UNAM y Doctor en Derecho Porcesal por el CMEP Xalapa
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia real a todas y todos con equidad, imparcialidad e independencia siempre viendo por el bien común.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Erradicar el nepotismo imperante a efecto de evitar que familiares o amigos, obtengan puestos sin tener los méritos y la capacidad profesional para ello, respetando la estabilidad laboral del personal comprometido con el servicio público de manera profesional, honesto y eficiente. Tener autonomía para emitir las resoluciones con independencia, imparcialidad, transparencia, eficacia y accesible a todas las personas, respetuosa de derechos humanos, con rendición de cuentas y transparencia total.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia rápida y expedita, priorizando resolver el fondo del asunto sobre formalismos jurídicos. Impartir justicia con equidad, de manera imparcial e independiente. Ser un juez de puertas abiertas en el que se escuche a todas las partes con respeto a su dignidad humana. Aplicar los Protocolos de la SCJN cuando se vean involucrados derechos de las personas infantes, mujeres, LGBTTTQ+, indígenas, migrantes y personas con discapacidad y hacer uso de la tecnología para ser mas eficientes.
+
+
+## Propuestas
+
+- Fortalecer la independencia judicial, para que los jueces estén libres de presiones políticas y económicas, centrandose en ver por el bien común de nuestra realidad social. De igual forma fomentar la igualdad sustantiva de acceso a la justicia para todas las personas: niñas, niños, adolescentes, adultos mayores, personas de las comunidades rurales e indígenas, mujeres, personas del colectivo LGBTTTQ+, migrantes y trabajadores, siendo proactivos y juzgando con perspectiva de derechos humanos.
+- Hacer uso de las tecnologías de la información e inteligencia artificial para mejorar la eficiencia y eficacia en los procesos y procedimientos jurisdiccionales; con base en ello, establecer estándares y metas de desempeño para todo el personal del juzgado, incluida la persona titular del Juzgado. También con el uso de la tecnología ahorrar tiempo y recursos económicos para las partes, promoviendo los juicios en línea se ahorra papel y atendiendo las audiencias virtuales se ahorra dinero.
+- Transparentar el quehacer jurisdiccional que no haya lugar a la corrupción y al nepotismo; en cuanto a las resoluciones publicarlas en lenguaje ciudadano accesible a todas las personas; establecer mecanismos de evaluación y supervisión para garantizar la calidad exhaustiva y eficiente de la justicia. Implementar también la justicia en las comunidades más lejanas, para mejorar la atención a grupos vulnerables y establecer programas de educación en derechos humanos para toda la ciudadanía.
+

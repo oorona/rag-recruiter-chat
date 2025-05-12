@@ -1,0 +1,81 @@
+Nombre Candidato: BEATRIZ ROJAS MENDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 9601069095
+Correo Electronico: abogadabrojasm@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, BUAP, Corte IDH, Derecho Constitucional, Derecho Laboral, ELDP., Formación, Género, Igualdad, Jurisprudencia, Justicia Laboral, Maestría, Poder Judicial, Seguridad Social
+Tags Propósito: acceso a la justicia, ambiente laboral digno, calidad de resoluciones, capacitación, confianza institucional, consistencia jurisdiccional, derechos humanos, dignidad humana, enfoque humano., equidad, imparcialidad, integridad, justicia cercana, justicia con perspectiva de género, justicia laboral, paz social, perspectiva de género, responsabilidad ética, vocación de servicio
+
+
+## Descripción del Candidato 
+
+Beatriz Rojas Méndez es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulándose a los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Abogada egada de la BUAP con especialidad laboral y actualmente cursando una maestría en Derecho Constitucional y Amparo, cuenta con diversos cursos y diplomados en justicia laboral, género, seguridad social y jurisprudencia de la Corte Interamericana de Derechos Humanos.
+
+Su motivación para el cargo es continuar impartiendo justicia laboral con perspectiva de género y salvaguardar derechos.  Su visión de la función jurisdiccional se centra en la imparcialidad, la humanidad y el respeto a los derechos, buscando transformar vidas a través de decisiones justas. Sus propuestas incluyen fomentar un ambiente laboral digno para los colaboradores jurisdiccionales, implementar buenas prácticas para mejorar la calidad de las resoluciones y acercar la justicia a la ciudadanía a través de canales de comunicación accesibles.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61569011459833
+- https://x.com/Juezabetyrojas
+- https://www.instagram.com/juezabeatrizrojas/
+- https://www.tiktok.com/@jueza.beatriz.roj
+- https://www.linkedin.com/in/beatriz-rojas-méndez-400973338
+
+
+## Cursos
+
+- Curso de Actualización sobre la Reforma en Materia de Justicia Laboral por el Instituto de la Judicatura Federal
+- ,Curso de Género como Herramienta para la Igualdad, impartido por la Escuela Federal de Formación Judicial
+- ,Diplomado en Materia de Seguridad Social, impartido por el Instituto de la Judicatura Federal
+- ,Diplomado Actualización sobre la Jurisprudencia de la Corte IDH dirigido a Juezas y Jueces de la de la Región
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Instituto de la Judicatura F
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54718/10
+
+
+## Trayectoria Academica
+
+- Abogada por la BUAP, especialista laboral y actualmente inscrita en maestría en Derecho Constitucional y Amparo, ELDP
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser magistrada para continuar impartiendo justicia laboral con perspectiva de género y salvaguardar derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es el pilar que sostiene la justicia y la paz social. Es un acto de profunda responsabilidad ética, cuyo propósito es transformar la vida de las personas mediante decisiones imparciales, humanas y con perspectiva de derechos. Al ejercerla con sensibilidad, firmeza y compromiso, se garantiza que cada voz sea escuchada, que la dignidad sea respetada y que la ley se convierta en un instrumento de equidad, esperanza y confianza en las instituciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es el arte de equilibrar la ley con la dignidad humana. Es un servicio que exige empatía, integridad y compromiso con la verdad. Cuando se ejerce con perspectiva de género y enfoque en derechos humanos, transforma vidas, repara desigualdades y fortalece la confianza social. Es más que resolver conflictos: es construir un país más justo, donde cada persona sepa que su historia importa y que la justicia está al alcance de todas y todos.
+
+
+## Propuestas
+
+- Propongo fomentar un ambiente de trabajo digno, inclusivo y respetuoso para los colaboradores jurisdiccionales, garantizando condiciones laborales justas, capacitación continua y mecanismos efectivos de participación y retroalimentación. Respetar sus derechos fortalece su compromiso, mejora la calidad de las resoluciones y humaniza la función jurisdiccional, haciendo del Poder Judicial de la Federación un ejemplo de integridad, equidad y justicia desde su interior.
+- Propongo la implementación de buenas prácticas jurisdiccionales que fortalezcan la calidad y consistencia de las resoluciones, basadas en mi experiencia, dedicación y esmero constante. Continuaré trabajando con entrega, estudio riguroso y compromiso absoluto, asegurando decisiones justas, con perspectiva de derechos y enfoque humano. La seriedad y responsabilidad que me han distinguido seguirán guiando mi actuar para alcanzar resultados ejemplares en la impartición de justicia.
+- Me comprometo a ejercer una justicia cercana, escuchando a la gente y entendiendo sus realidades. Propondré canales accesibles de comunicación y seguimiento, para que quienes acuden al tribunal sepan que su voz importa. Estaré atenta a sus necesidades y trabajaré con responsabilidad, claridad y entrega, para rendir buenas cuentas de esta encomienda, con resultados que reflejen compromiso, sensibilidad y verdadera vocación de servicio.
+

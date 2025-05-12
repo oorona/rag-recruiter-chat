@@ -1,0 +1,75 @@
+Nombre Candidato: ELENA MARCIAL DIAZ
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8334363414
+Correo Electronico: elenamarcialdiaz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Código Nacional de Procedimientos Civiles y Familiares, Derechos de niños, Derechos humanos, Juicio de amparo, Licenciatura en Derecho, Promedio 9.5., Sistema Constitucional Mexicano, Sistema Interamericano de Derechos Humanos, Suprema Corte, Universidad Interamericana del Norte, adolescentes
+Tags Propósito: Acceso a la justicia, Asistentes intérpretes, Bien común, Colaboración intersectorial, Compromiso, Derechos humanos, Derechos humanos., Dignidad humana, Honestidad, Humanismo, Imparcialidad, Independencia, Justicia social, Lenguas indígenas, Mecanismos alternativos de solución de controversias, Objetividad, Participación ciudadana, Prevención del delito, Respeto a la ley, Servicio público, Transparencia, Violencia, Ética
+
+
+## Descripción del Candidato 
+
+Elena Marcial Díaz es candidata a Jueza/es de Distrito en Tamaulipas, postulándose por el Poder Judicial de la Federación. Es licenciada en Derecho, con un promedio de 9.5, y cuenta con diversos cursos y diplomados en áreas como juicio de amparo, derechos humanos y procedimientos civiles y familiares. 
+
+Su motivación para el cargo público es contribuir al servicio del país.  En su visión sobre la función jurisdiccional y la impartición de justicia, destaca la importancia de la transparencia, la ética, el respeto a las leyes y un enfoque humanista. Sus propuestas incluyen la implementación de intérpretes de lenguas indígenas en los tribunales, el establecimiento de convenios de colaboración con diversos sectores para fortalecer el sistema de justicia y un mayor impulso a la certeza jurídica con un compromiso con el bien común y la prevención de la violencia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/elena.marcialdeluna
+- https://www.instagram.com/elenamarcialdiaz
+- https://www.youtube.com/@ElenaMarcialDiaz
+- https://www.tiktok.com/@elena.marcial.daz
+
+
+## Cursos
+
+- DIPLOMADO: JUICIO DE AMAPARO,DPLOMADO : LA SUPREMA CORTE Y LOS DERECHOS HUMANOS,SEMINARIO: ANALISIS DEL NUEVO CODIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES,CURSO: LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES EN EL SISTEMA CONSTITUCIONAL MEXICANO,CURSO: DIALOGOS CON EL SISTEMA INTERAMERICANO DE DERECHOS HUMANOS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53743/11
+
+
+## Trayectoria Academica
+
+- Estudié en la Universidad Interamericana del Norte, donde concluí la Licenciatura en Derecho Titulada por promedio 9
+- 5
+
+
+## Motivo para buscar el Cargo Publico
+
+ES UNA GRAN OPORTUNIDAD SERVIR AL PUEBLO Y A MI PAÍS, ME SIENTO ORGULLOSA DE PODER HACERLO Y CONTRIBUIR A ESTE PROYECTO.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+MÉXICO REQUIERE DE PERSONAS COMPROMETIDAS CON LA TRANSPARENCIA, LA ÉTICA Y POR SUPUESTO EL RESPETO A LAS LEYES, CON UN ENFOQUE HUMANISTA, ACTUAR CON OBJETIVIDAD, IMPARCIALIDAD, INDEPENDENCIA, GARANTIZANDO EL DERECHO HUMANO A TRAVÉS DE RESOLUCIONES, DANDO RESPUESTA Y SOLUCIÓN A LA PROBLEMATICA SOCIAL QUE ACTUALMENTE AFECTA A TODA LA CIUDADANÍA, DESTACANDO SU COMPROMISO CON LA JUSTICIA SOCIAL.
+
+
+## Vision sobre la Imparticion de Justicia
+
+HOY MÁS QUE NUNCA MÉXICO NECESITA DE JUZGADORES CON ÉTICA, CON VALOR Y CON UN PROFUNDO SENTIDO HUMANO, DANDO PRIORIDAD A LOS GRUPOS MÁS VULNERABLES, QUE HAGA DE CADA RESOLUCIÓN UN REFLEJO DE LA VERDAD, RESPETANDO SIEMPRE LA DIGNIDAD HUMANA, PROTEGIENDO LOS DERECHOS FUNDAMENTALES A TRAVÉS DE LAS LEYES. LA JUSTICIA DEBE SER PRONTA Y EXPEDITA, DE MANERA COMPLETA E IMPARCIAL, SIN OBSTÁCULOS PARA QUE EL PUEBLO PUEDA ACCEDER A ELLA.
+
+
+## Propuestas
+
+- PARA QUE LA JUSTICIA SEA MAS ACCESIBLE AL PUEBLO ES NECESARIO SEGUIR IMPLEMETANDO DE MANERA TOTAL EN TODOS LOS TRIBUNALES, ASISTENTES INTÉRPRETES DE LENGUAS INDÍGENAS, QUE CONOZCAN SU LENGUA Y CULTURA, AUNQUE ES SU DERECHO, MUCHOS LOS DESCONOCEN Y POR LO TANTO SE ENCUENTRAN RECLUÍDOS EN ALGÚN CENTRO DE READAPTACIÓN SOCIAL, SIN SABER DE QUÉ DELITOS SE LES ACUSA, PUES LO QUE PARA ELLOS SEGÚN SU COSTUMBRE ESTÁ PERMITIDO, PUEDE SER UN DELITO TIPIFICADO POR LA LEY.
+- PARA PODER FORTALECER EL SISTEMA DE IMPARTICIÓN DE JUSTICIA, SE PUEDE ESTABLECER CONVENIOS DE COLABORACIÓN CON EL SECTOR PÚBLICO, PRIVADO, SOCIAL, FOMENTANDO LA PARTICIPACIÓN CIUDADANA, PROMOVIENDO LOS MECANISMOS ALTERNATIVOS DE SOLUCIÓN DE CONTROVERSIAS, BRINDANDO PLÁTICAS DE ASESORAMIENTO Y PREVENCIÓN EN EL SECTOR EDUCATIVO, EN COLABORACIÓN CON LOS PADRES DE FAMILIA.
+- DAR MAYOR IMPULSO A LA CERTEZA, ACTUANDO CON HONESTIDAD, SIN DISTINCIÓN DE CLASE SOCIAL, COMPROMETIDOS CON EL BIEN COMÚN, PARA QUE LA CIUDADANÍA VUELVA A CONFIAR EN LA JUSTICIA, DONDE LA FALTA DE VALORES Y OPORTUNIDADES QUEDA EXPUESTA A TRAVÉS DE LOS DELITOS QUE SE COMETEN, NO SOLO EN LOS ACTOS DELICTIVOS, SINO TAMBIÉN DENTRO DEL HOGAR, LA VIOLENCIA TOMA FUERZA PERDIÉNDOSE EL RESPETO POR LAS LEYES Y POR LOS DERECHOS HUMANOS, TRATANDO DE NORMALIZAR LOS HECHOS DELICTIVOS EN LA SOCIEDAD.
+

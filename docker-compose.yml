@@ -1,0 +1,56 @@
+services:
+  app:
+    build: .
+    container_name: candidate-assistant-app
+    restart: unless-stopped
+    ports:
+      - "5000:5000" # Map host port 5000 to container port 5000
+    volumes:
+      # Option 1: Mount local code for development hot-reloading (Flask debug mode recommended)
+      # Comment this out for production to use code baked into the image.
+      - ./backend:/app/backend
+
+      # Option 2: Mount the mdata folder from the host to the container
+      # ./mdata on the HOST is mapped to /app/mdata inside the CONTAINER
+      # ':ro' makes the volume read-only within the container, which is safer
+      # The container will now read candidate files directly from your local ./mdata folder.
+      - ./mdata:/app/mdata:ro # <--- MODIFIED/ENSURED THIS LINE
+
+    env_file:
+      - .env # Load environment variables from .env file
+    environment:
+      # Override or set additional environment variables if needed
+      - FLASK_ENV=${FLASK_ENV:-production} # Default to production if not set in .env
+      # Ensure the application knows where to look inside the container if not using default logic
+      # If your candidate_service.py relies *only* on the default relative path logic,
+      # this environment variable might be redundant, but explicit can be clearer.
+      # Setting it ensures the app looks at /app/mdata even if default logic changes.
+      # - MDATA_FOLDER=/app/mdata # <--- ADDED/ENSURED (Optional but Recommended)
+
+    # depends_on:
+    #   - llm # Uncomment if your llm service is also defined in this compose file
+    networks:
+      - app-network # Use a custom network
+
+  # --- LLM Service Example (Unchanged) ---
+  # llm:
+  #   image: ghcr.io/open-webui/open-webui:main # Or the specific image you use
+  #   container_name: open-webui
+  #   ports:
+  #     - "8080:8080" # Assuming default Open WebUI port - adjust if needed
+  #   volumes:
+  #     - open-webui:/app/backend/data # Persist Open WebUI data
+  #   environment:
+  #     - 'OLLAMA_BASE_URL=http://host.docker.internal:11434' # Example for Ollama running on host
+  #   extra_hosts: # Ensures the backend can reach Ollama if running on host
+  #     - "host.docker.internal:host-gateway"
+  #   restart: unless-stopped
+  #   networks:
+  #     - app-network
+
+networks:
+  app-network:
+    driver: bridge
+
+# volumes: # Uncomment if using the llm service example above
+#   open-webui:

@@ -1,0 +1,74 @@
+Nombre Candidato: MICHEL PALOMA HERNANDEZ RIVERA
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8444192127
+Correo Electronico: mphriveralic@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la información, Crímenes contra mujeres, Defensoría pública, Derecho Constitucional, Derechos LGBTQ+, Doctorado, Habilidades blandas, Juicio de Amparo, Licenciatura en Derecho, Maestría., Protección de datos, Psicología Clínica, Transparencia
+Tags Propósito: Acceso a la justicia, Ambiente laboral, Asertividad, Calidad, Calidez, Cambio social., Celeridad, Confianza, Derechos, Desarrollo, Eficacia, Empatía, Equidad, Estado de Derecho, Gandhi, Imparcialidad, Justicia, Objetividad, Puertas abiertas, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+MICHEL PALOMA HERNANDEZ RIVERA es candidata a Jueza/es de Distrito en Coahuila, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo, además de una Licenciatura en Derecho, Psicología Clínica y estudios de Doctorado. Su trayectoria académica se complementa con cursos en transparencia, acceso a la información, derechos de grupos vulnerables y juicio de amparo. 
+
+La candidata manifiesta su motivación para el cargo en su deseo de servir a los sectores más vulnerables de la sociedad. Su visión de la función jurisdiccional se centra en la confiabilidad, accesibilidad y protección de los derechos ciudadanos, con un enfoque en la justicia eficaz, transparente e imparcial. Sus propuestas incluyen la celeridad y calidad en la impartición de justicia para recuperar la confianza en el sistema, la creación de un ambiente laboral sano y seguro para el personal jurisdiccional, y la promoción de la apertura, asertividad y empatía en la función judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/mphriveralic
+- https://www.x.com/@mphriveralic
+- https://www.tiktok.com/@michel.paloma
+
+
+## Cursos
+
+- Curso transparencia, acceso a la información pública y protección de datos personales ¿ II,Debida diligencia en crímenes cometidos contra mujeres y personas lesbianas, gays, bisexuales, trans, intersex
+- ,Curso sobre Juicio de Amparo,Curso habilidades blandas enfocadas a la defensoría pública,Diplomado sobre el Juicio de Amparo 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53470/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho Maestría en Derecho Constitucional y Amparo Licenciada en Psicología Clínica y Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo las herramientas, los conocimientos y el deseo de ver por los sectores más vulnerables de la sociedad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser confiable, accesible y sobre todo velar por la protección de los derechos de la sociedad, considero que una de las principales funciones es aplicar la justicia de una manera eficaz, eficiente, transparente, imparcial, creo que el ideal es un Juez comprometido, accesible y sensible a las problemáticas sociales, un Juez de puertas abiertas que conozca la problemática real y aplique la ley de una manera justa pero en beneficio de los más necesitados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que la impartición de justicia debe ser justa, equitativa, transparente, pronta e imparcial, que garantice el Estado de Derecho y el acceso a la justicia para todos, sin discriminación alguna ni favoritismos, la interpretación y la aplicación de las leyes no solo puede ser de manera objetiva e imparcial, sino humana, efectiva y confiable.
+
+
+## Propuestas
+
+- Considero que uno de los principales problemas a los que nos enfrentamos es que la sociedad está enojada, está herida, y considero que como Juzgadores podemos aportar un granito de arena de nuestra parte para lograr con nuestro trabajo, esfuerzo y resultados que la sociedad vuelva a creer en ellos mismos, en el sistema, en sus juzgadores y en sus leyes, para eso, una de las propuestas es precisamente el juzgar con celeridad, calidad, objetividad y calidez.
+- Otro de los puntos importantes es lograr que el personal del Órgano Jurisdiccional pueda trabajar en un ambiente laboral sano, seguro, libre de violencia de cualquier tipo, considero que cualquier persona, independientemente de la labor que realice, tendrá éxito en lo que hace y respeto por lo que hace en la medida en la que pueda disfrutar lo que hace. Cito a Gandhi... Nosotros tenemos que ser el cambio que queremos ver en el mundo.
+- Creo firmemente que la confianza de la sociedad y la fortaleza de un órgano jurisdiccional se pueden lograr con apertura, con asertividad y con empatía, debemos ser un Juez de puertas abiertas, accesible, que tenga el firme compromiso de crecer y de ayudar a su personal a que se desarrolle y crezca... cuando tratamos de ser mejores de lo que somos, todo a nuestro alrededor también se vuelve mejor.
+

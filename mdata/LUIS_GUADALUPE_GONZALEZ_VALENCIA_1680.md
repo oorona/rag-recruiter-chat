@@ -1,0 +1,90 @@
+Nombre Candidato: LUIS GUADALUPE GONZALEZ VALENCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9212680116
+Correo Electronico: Gonzalezvalencialuisguadalupe@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación, Derecho, Derechos Humanos, Derechos Socioeconómicos, Formación Judicial, Formación., Justicia Laboral, Justicia Penal, Poder Judicial de la Federación, Proceso Penal Acusatorio, Secretarios, Tribunales, Violencia
+Tags Propósito: Bienestar Social, Burocracia, Capacitación, Ciudadanía, Derechos Humanos, Dignidad Humana, Excelencia, Formalismos, Grupos Minoritarios, Humanización de la Justicia, Imparcialidad, Independencia, Justicia, Justicia Comprensible, Justicia Efectiva, Justicia Pronta, Legalidad, Ley, Libre Desarrollo., Objetividad, Paradigmas, Paridad de Género, Paz, Poder Judicial, Profesionalismo, Reparación del Daño, Sentencias Claras, Servicio Público, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+LUIS GUADALUPE GONZALEZ VALENCIA es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Justicia Penal y Proceso Penal Acusatorio, además de una especialización en Justicia Laboral. Su trayectoria incluye diversos cursos de formación en el Poder Judicial de la Federación, abarcando temas como derechos humanos, procesos penales y desahogo de audiencias.
+
+El candidato expresa su motivación para el cargo en la búsqueda de la justicia, fundamentada en su capacidad, experiencia y deseo de servir.  Su visión se centra en un Poder Judicial que sea proactivo en la resolución de conflictos, cercano a la ciudadanía y sensible a los derechos humanos, especialmente de grupos vulnerables. Propone humanizar la justicia, fortalecer la legitimidad del Poder Judicial a través de resoluciones éticas y oportunas, y enfocarse en la capacitación constante de jueces y magistrados para responder a las necesidades de la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://luisgpeglezvalencia.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1XpbdNFHim/
+- https://x.com/LuisGlzVal?t=1A_lC0EIWVmKnMwIdis4Iw&s=09
+- https://www.instagram.com/luis_gonzalez_valencia?igsh=Nngzc3Y4bTJveGg1
+- https://youtube.com/@gonzalezvalencialuisguadalupe?si=NCu9QrTCW-6WYU1J
+- https://www.tiktok.com/@gonzlez.valencia?_t=ZS-8v1Cvdnozwe&_r=1
+
+
+## Cursos
+
+- Curso de formación para personas secretarias del Poder Judicial de la Federación en la Esc
+- Fed
+- de Formación Judicial,Curso Taller Desahogo de Audiencias por el Inst
+- de Est
+- Sup
+- Juan Bosco,Curso de preparación y capacitación p/secretarios de tribunales unitarios y colegiados por el Inst
+- de la Judicatura Fed,Taller de Sensibilización en Derechos Humanos hacia la Cultura del Respeto a las Personas/ Inst
+- de la Judicatura Fed
+- ,Curso Derechos Socioeconómicos Contenido y Aplicación p/ generar Espacios Libres de Violencia
+- Esc
+- Fed
+- Form
+- Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53362/10
+
+
+## Trayectoria Academica
+
+- Soy Lic
+- en Derecho, cursé la Mtr
+- en Justicia Penal y Proceso Penal Acusatorio y la especialización en Justicia Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Persigo la Justicia, creo en la ley, tengo la capacidad experiencia y deseo de servir que pueden marcar la diferencia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión, es la de un Poder Judicial que no sólo dicta sentencias, sino que sana heridas; que no retrasa soluciones, sino que las anticipa; que no se rinde ante la burocracia, sino que actúa con valor y compromiso; cercano a la gente, que garantice la reparación del daño y promueva los derechos humanos, tanto de víctimas como de imputados, con especial sensibilidad hacia los grupos en situación de vulnerabilidad. La justicia debe ser siempre un puente hacia la paz y el bienestar de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como juez comprometido con la dignidad humana y el servicio público, concibo una impartición de justicia que sea pronta, efectiva y comprensible, que no se pierda en papeles ni se esconda tras tecnicismos. Un Poder Judicial que resuelva los conflictos con sentencias breves, claras y apegadas a la realidad, sin excesos burocráticos ni formalismos que retrasen las soluciones, una justicia que no imponga castigos por rutina, sino que repare el daño desde la raíz, con sensibilidad y firmeza.
+
+
+## Propuestas
+
+- Humanizar la justicia, que no se pierda en papeles ni se esconda tras tecnicismos, sino que llegue a tiempo, con respuestas claras, humanas, verdaderas y prácticas. La justicia que propongo habla con voz sencilla, se expresa con el corazón y actúa con rigor; protege a la víctima, respeta al imputado y abraza a quienes han sido históricamente ignorados. Porque la justicia no puede ser privilegio de pocos, ni castigo ciego, sino un acto profundo de humanidad en busca del bien común.
+- Fortalecer la legitimidad del Poder Judicial, a través de resoluciones humanas, imparciales, justas y oportunas, ponderando los principios éticos de la labor judicial: Independencia, Imparcialidad, Objetividad, Profesionalismo, Excelencia y Paridad de Género, construyendo una justicia que escuche, que vea, que sienta y que actúe en beneficio de la sociedad.
+- Capacitarnos constantemente en torno a los requerimientos de la ciudadanía, de contar con Jueces y Magistrados capaces de advertir la realidad de la situación que se vive y resolver con legalidad, garantizando la identidad, el libre desarrollo de la personalidad y los derechos, respetando a los grupos minoritarios, cambiando de este modo paradigmas en la mentalidad social y legal de la impartición de justicia.
+

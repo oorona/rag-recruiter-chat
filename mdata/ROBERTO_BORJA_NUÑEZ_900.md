@@ -1,0 +1,74 @@
+Nombre Candidato: ROBERTO BORJA NUÑEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 3338090818
+Correo Electronico: rborjan@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Características sexuales, Cocinero, Derecho del Trabajo, Formación profesional., Función judicial, Identidad de género, Igualdad de género, Inteligencia artificial, Justicia Laboral, No discriminación, Orientación sexual, Perspectiva de género, Violencia
+Tags Propósito: accesibilidad, atención oportuna, capacidad, congruencia, empatía, experiencia, formación judicial, honestidad, humildad, imparcialidad, justicia, magistrado, pueblo mexicano., rapidez, realidad social, responsabilidad social, soluciones justas
+
+
+## Descripción del Candidato 
+
+ROBERTO BORJA NUÑEZ es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose en funciones. Abogado por la UAEM Morelos con especialización en Derecho del Trabajo y Justicia Laboral, cuenta con formación adicional en temas de género, no discriminación, orientación sexual e inteligencia artificial aplicada a la función judicial, así como cursos para la prevención de la violencia.
+
+Su motivación para el cargo se basa en ofrecer soluciones justas, rápidas y congruentes con la realidad social, enfatizando la honestidad, sensibilidad y cercanía a la ciudadanía en el ejercicio de la función jurisdiccional. Propone una atención rápida a las demandas, el acercamiento del poder judicial a la sociedad y la formación de jueces y magistrados con responsabilidad social, buscando impartir una justicia pronta, sencilla y justa para todos.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://www.instagram.com/borja_roberto?igsh=bnV6YnljaGx5bHpn&utm_source=qr
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/12GHHdrvXKA/?mibextid=wwXIfr
+- https://x.com/borja_roberto?s=11
+
+
+## Cursos
+
+- Curso género como herramienta para la igualdad,Curso la función judicial y la no discriminación como desigualdad estructural,Curso juzgar con perspectiva de orientación sexual, identidad y expresión de género y características sexuales,Seminario virtual
+- Descubriendo nuevas posibilidades: la inteligencia artificial en la función judicial,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52217/10
+
+
+## Trayectoria Academica
+
+- Abogado por la UAEM Morelos; Especialista en Derecho del Trabajo y Justicia Laboral EFFJ
+- Cocinero formado en ESGAMEX
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser tu Magistrado para brindarte soluciones justas, rápidas y congruentes con nuestra realidad social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función del juez y magistrado debe ser honesta, sensible y cercana a los problemas del pueblo. Ser una persona juzgadora obliga a servir por vocación y ejercer todos los días el cargo con humildad, sencillez y empatía con sus compañeros de trabajo y con las personas que ponen en sus manos su patrimonio, libertad y hasta su vida. Ser Magistrado es una gran responsabilidad que estoy dispuesto a cumplir hasta el límite de mis capacidades.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe brindarse a todos por igual. La justicia debe ser rápida. La justicia debe solucionar los problemas de fondo. La justicia debe impartirse por personas honestas, con capacidad y experiencia comprobables que aseguren al pueblo de México que sus problemas serán resueltos por un ser humano sensible y capaz de entender la realidad social de nuestro país.
+
+
+## Propuestas
+
+- Atención rápida y oportuna a las personas que demandan soluciones justas y reales.
+- Acercar la función de los jueces y magistrados a todos los sectores del pueblo mexicano.
+- Formación de jueces y magistrados con responsabilidad social, para que resuelvan los problemas de manera pronta, sencilla y justa.
+

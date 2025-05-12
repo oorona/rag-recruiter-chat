@@ -1,0 +1,79 @@
+Nombre Candidato: ELIZABETH TOLENTINO DELGADILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Bloque de Constitucionalidad, Derecho., Derechos Humanos, FES Acatlán, Juicio de Amparo, Justicia, Protección de Datos Personales, Seminario Adversarial, Superación Docente, Suprema Corte de Justicia, UNAM
+Tags Propósito: celeridad, derechos de la infancia, derechos de las mujeres, derechos humanos, dignidad humana, estado de derecho, grupos vulnerables, igualdad., imparcialidad, justicia, legalidad, paz social, perspectiva de género, rendición de cuentas, responsabilidad, seguridad jurídica, transparencia, trato justo, ética
+
+
+## Descripción del Candidato 
+
+Elizabeth Tolentino Delgadillo es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Licenciatura y Maestría en Derecho por la FES Acatlán de la UNAM. Su trayectoria profesional se respalda en diversos cursos especializados en temas como derechos humanos, protección de datos personales, juicio de amparo y perspectiva de género, impartidos por instituciones como la UNAM y la Suprema Corte de Justicia de la Nación.
+
+La candidata expresa como motivación para buscar el cargo público su experiencia y conocimientos profesionales. Sus propuestas se centran en impartir justicia con apego a la legalidad, seguridad jurídica, imparcialidad y transparencia, con especial atención a la protección de los derechos humanos, perspectiva de género y los derechos de grupos vulnerables, así como en garantizar un trato digno e igualitario a todas las personas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BHGZNNyMm/
+- https://x.com/ElizabethTolenD
+- https://www.instagram.com/mtratolentino
+- https://www.tiktok.com/@mtratolentinoelizabeth?_t=ZM-8v4DUchbqJ5&_r=1
+
+
+## Cursos
+
+- Aplicación Judicial del Bloque de Constitucionalidad a partir de la Reforma en Derechos Humanos de junio de 2011, UNAM
+- ,El Derecho a la Protección de Datos Personales (2da edición), Agencia Española de Protección de Datos Personales
+- ,Seminario Internacional  Adversarial Immersion Seminar
+- Justice Mexico
+- Sede  LAW, UNIVERSITY,de Género en el ámbito  Superación Docente, SUAyED, FES Acatlán, UNAM
+- ,Juicio de Amparo, Edición 2021, Suprema Corte de Justicia de la Nación, Casas de la Cultura Jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55037/10
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestra en Derecho de la Facultad de Estudios Superiores Acatlán, FES Acatlán, UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar el cargo público porque tengo la experiencia y conocimientos adquiridos en mi trayectoria profesional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mantener la legalidad, imparcialidad, responsabilidad y prontitud en la función jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Cuidar que en la impartición de justicia se actúe con ética, sentido social, profesionalismo, disciplina y estricto apego al Estado de Derecho para garantizar y lograr la paz social en el País.
+
+
+## Propuestas
+
+- Impartir justicia con apego a la legalidad, seguridad jurídica, imparcialidad, transparencia, celeridad y rendición de cuentas.
+- Análizar y estudiar cada asunto competencia de la Magistratura, para fijar y aplicar criterios jurídicos en las sentencias que se dicten, con estricta protección en materia de derechos humanos, perspectiva de género, derechos de grupos vulnerables, derechos de las mujeres, niñas y niños, y de la comunidad de las personas en general.
+- Impartir justicia con respeto a la dignidad de las personas, concediendo un trato justo, imparcial, igualitario y humano.
+

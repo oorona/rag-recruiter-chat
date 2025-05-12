@@ -1,0 +1,80 @@
+Nombre Candidato: OCTAVIO HERIBERTO LOPEZ ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9936735378
+Correo Electronico: tavolopeztabasco@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Conciliación, Control de Convencionalidad, Convenios Laborales, DDHH, Derecho Laboral, Derecho Público, Derecho del Trabajo, Doctorado H.C, Doctorando en Derecho., Interpretación Jurídica, Investigación, Justicia Laboral, Maestría en Derecho, Mediación, Seguridad Social, Universidad de La Coruña
+Tags Propósito: Accesibilidad, Acceso a la información, Asesoría legal, Burocracia., Capacitación, Cero privilegios, Conciliación, Confianza ciudadana, Corrupción, Derechos, Derechos humanos, Eficiencia, Equidad, Estado de derecho, Honestidad, Humanismo, Imparcialidad, Integridad, Juicios transparentes, Justicia, Lenguaje claro, Profesionalismo, Resolución de conflictos, Servicio público, Supervisión ciudadana, Tecnología, Transformación social, Transparencia
+
+
+## Descripción del Candidato 
+
+OCTAVIO HERIBERTO LOPEZ ORTEGA es candidato a Jueces/es de Distrito en Tabasco, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con maestría y estudios doctorales en derecho, incluyendo especializaciones en derecho del trabajo, seguridad social y derechos humanos. Su trayectoria académica se complementa con cursos en derecho público global, argumentación jurídica, conciliación y control de convencionalidad.
+
+Motivado por brindar justicia, defender derechos y contribuir a la transformación social, López Ortega propone un sistema de impartición de justicia sin privilegios, con supervisión ciudadana y transparencia. Busca facilitar el acceso a la justicia a través de un lenguaje claro y procesos comprensibles, así como agilizar la resolución de conflictos mediante la tecnología y la capacitación continua.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/tavolopeztabascomx
+- https://x.com/taviolopeztab
+- https://www.instagram.com/taviolopeztabasco/
+- https://www.tiktok.com/@taviolopeztabasco
+
+
+## Cursos
+
+- Estancia de Investigación, Derecho Público Global, Universidad de La Coruña, España,Curso de interpretación y argumentación jurídica aplicada a materia laboral, Escuela Federal de Formación Judicial,Taller: Conciliación, mediación y elaboración de convenios en materia laboral, Escuela Federal de Formación Judicial,Seminario: Control de convencionalidad aplicado a grupos vulnerables, Corte Interamericana de Derechos Humanos, Brasil
+- ,Seminario de Especialización en el Nuevo Sistema de Justicia Laboral, Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53933/11
+
+
+## Trayectoria Academica
+
+- Doctorado H
+- C, maestría en derecho, esp
+- en derecho del trabajo y seguridad social, esp
+- en DDHH, doctorando en derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar justicia para todas las personas, defender los derechos, abonar a la transformación social, eficientemente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia imparcial, accesible y transparente, basada en el humanismo y el servicio al pueblo. Su ejercicio exige honestidad, integridad y compromiso con la verdad, asegurando que nadie esté por encima de la ley. Debe combatir la corrupción, proteger los derechos humanos y fortalecer el Estado de derecho. Solo así se logra un sistema judicial profesional y de excelencia, que ostente la confianza ciudadana, consolidando una sociedad más justa y equitativa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La función jurisdiccional debe garantizar justicia imparcial, accesible y transparente, basada en el humanismo y el servicio al pueblo. Su ejercicio exige honestidad, integridad y compromiso con la verdad, asegurando que nadie esté por encima de la ley. Debe combatir la corrupción, proteger los derechos humanos y fortalecer el Estado de derecho. Solo así se logra un sistema judicial profesional y de excelencia, que ostente la confianza ciudadana, consolidando una sociedad más justa y equitativa.
+
+
+## Propuestas
+
+- 1.CERO PRIVILEGIOS. Implementaré un sistema de impartición de justicia sin distinciones por estatus económico, político o social. Estableceré mecanismos de supervisión ciudadana y solicitaré visitas aleatorias en las que se convoque a la ciudadanía para garantizar imparcialidad. Buscaré sanció severa para cualquier acto fuera de la ley que se sucite en el tribunal. Además, promoveré los juicios transparentes, con acceso público a información relevante para evitar corrupción y favoritismos.
+- 2.JUSTICIA DE PUERTAS ABIERTAS Y LENGUAJE CLARO. Todos los procesos judiciales serán comprensibles para la ciudadanía. Eliminaré tecnicismos innecesarios en sentencias y resoluciones, permitiendo que cualquier persona entienda su situación legal. Fomentaré audiencias públicas y el acceso libre a expedientes en plataformas digitales (difusión). Además, ofreceré con ahínco la conciliación y la asesoría legal la defensoría pública, que no se excluya a nadie de la justicia.
+- 3.RESOLVER EL FONDO DEL PROBLEMA EN TIEMPO Y FORMA. priorizaré soluciones integrales en cada caso, evitando dilaciones procesales innecesarias. Reduciré los plazos máximos para resolver conflictos, incorporando tecnología para agilizar trámites y disminuir burocracia. Fomentaré la capacitación al personal para enfocarse en la esencia del problema en lugar de fallos basados en tecnicismos. Pero sobretodo demostraré que la justicia no solo se administra, se construye entre todas y todos.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: JOSE LUIS DIAZ NICAZO
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5580363496
+Correo Electronico: joludini@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Anticorrupción, Diplomado, Evaluación del Desempeño, Evidencia Digital, Formación Académica., Presupuesto Basado en Resultados, Rendición de Cuentas, SHCP, Supervisión, UNAM, Universidad de Chile, Ética Administrativa
+Tags Propósito: Acceso a la Justicia, Automatización, Capacitación Judicial, Confianza Ciudadana, Derechos Humanos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Experiencia, Grupos Vulnerables, Jurisprudencia, Justicia, Objetividad, Plazos Procesales, Poder Judicial, Reformas Legales, Rendición de Cuentas, Seguridad Jurídica, Sistemas de Control., TIC, Transparencia
+
+
+## Descripción del Candidato 
+
+José Luis Díaz Nicazo es candidato a Juez/a de Distrito en México, postulando a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, complementada por formación en temas como el Sistema Nacional Anticorrupción, ética administrativa, análisis de evidencia digital y diplomados en supervisión policial, presupuesto basado en resultados y rendición de cuentas.
+
+Su motivación para el cargo es fortalecer el Poder Judicial con transparencia y experiencia. Propone garantizar el acceso ágil a la justicia, optimizar los plazos procesales a través de las TIC, e implementar sistemas de control y rendición de cuentas. Su visión se centra en una justicia accesible, imparcial, eficiente y con respeto a los derechos humanos, buscando fortalecer la confianza ciudadana en el sistema judicial a través de la capacitación continua y la innovación tecnológica.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@JOSELUI38575167
+- https://www.youtube.com/@joseluisdiaz8912
+- https://www.tiktok.com/nica021072
+
+
+## Cursos
+
+- SISTEMA Nacional Anticorrupción
+- ,ANÁLISIS de Evidencia Digital
+- ,ÉTICA y Responsabilidades Administrativas
+- ,Diplomado, Supervisión y Rendición de Cuentas en la Policía, la UNAM y la Universidad de Chile,Diplomado en Presupuesto Basado en Resultados, Unidad de Evaluación del Desempeño, SHCP
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53066/11
+
+
+## Trayectoria Academica
+
+- Mi formación académica se ha enriquecido con diversos cursos y diplomados
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir con transparencia y experiencia para fortalecer la institución y mejorar el Poder Judicial, con justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar el acceso ágil a la justicia, evitando la saturación en el juzgado, a través capacitaciones en derechos humanos que garantice el acceso a la justicia para los grupos vulnerables, para tener una formación multidisciplinaria para la aplicación de mecanismos alternativos en las resoluciones. Se deberá de optimizar el sistema judicial, garantizando su mayor eficiencia y equidad en la impartición de justicia. Con ello, la ciudadanía tendrá un sistema confiable y cercano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Promover la justicia accesible, imparcial y eficiente, que garantice seguridad jurídica y derechos fundamentales. Promoviendo la transparencia y la igualdad a la ciudadanía, pudiendo mejorarla con las TIC, la capacitación judicial para resolver asuntos que conlleven una mejor impartición de la justicia. Estas acciones fortalecerán la confianza ciudadana y proporcionarán el respeto a los derechos humanos, consolidando un Estado de Derecho donde la justicia sea efectiva y percibida como justa.
+
+
+## Propuestas
+
+- La capacitación continua y especializada que permitirá resolver asuntos que abarcan temas de competencia, es importante recibir capacitación constante y especializada. incluyendo cursos de actualización sobre las reformas legales, el uso de nuevas tecnologías y sobre la aplicación de jurisprudencia al caso concreto, relacionadas con las materias de las que seré competente. Esto permitirá una mayor calidad en toma de decisiones y evitará errores que puedan derivar de vulneración a los derechos.
+- Optimizar los plazos procesales, que permitan mejorar la eficiencia en el sistema de gestión, mediante el uso de las TIC que permitan el seguimiento en tiempo real de los casos, la digitalización de documentos y la automatización de los procedimientos administrativos, lo que podría reducir los tiempos de las resoluciones, garantizar la aplicación de los derechos humanos y tener una justicia más oportuna para la ciudadanía.
+- Implementar sistemas de control y rendición de cuentas para asegurar que las decisiones judiciales sean objetivas, motivadas y transparentes. Esto fortalecerá la confianza de la ciudadanía en la justicia.
+

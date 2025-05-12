@@ -1,0 +1,84 @@
+Nombre Candidato: CLAUDIA ESTHELA ESPINOZA CID
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: 6621035695
+Correo Electronico: claudia.e.espinoza@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acusatorio, Alimentación, Ciencias sociales., Defensa, Derecho, Derecho internacional privado, Desarrollo, Doctorado, Estado de Derecho, Estudios sociales, Investigación, Junta restaurativa, Masculinidades, Mediación, Oral, Seguridad nacional, Sistema procesal penal
+Tags Propósito: acceso a la justicia, adolescencia, aprendizaje., competencia mixta, derechos humanos, discriminación, empoderamiento, enfoque social, función educativa, género, inclusión, infancia, interpretación del derecho, justicia, juzgados de distrito, metodología basada en evidencia, población LGBTTI+, pobreza, región, sistema judicial, transformación, violencia, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+CLAUDIA ESTHELA ESPINOZA CID es candidata a Jueza/és de Distrito en Sonora, postulada por el Poder Ejecutivo Federal. Cuenta con un doctorado en Ciencias Sociales y una trayectoria académica en derecho, incluyendo especializaciones en derecho internacional privado.  Su motivación para buscar el cargo se basa en su experiencia laboral e investigadora, comprendiendo la importancia de la justicia para la transformación del país.
+
+Su visión de la función jurisdiccional se centra en salvaguardar los derechos humanos y facilitar el acceso a la justicia para todas las personas, considerándola un mecanismo educativo. Propone implementar metodologías basadas en evidencia científica con enfoque social, de género y regional, para atender a personas en situación de vulnerabilidad, mujeres y población LGBTTI+ en situación de violencia o discriminación, y niños, niñas y adolescentes que interactúan con los juzgados de distrito.  Dispone de perfiles en diversas redes sociales y su curriculum vitae está disponible en la plataforma del INE.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/claudiaespinozacid
+- https://x.com/clauespinozacid
+- https://www.instagram.com/claudiaespinozacid
+- https://www.youtube.com/@claudiaespinozacid
+- https://www.tiktok.com/@claudiaespinozacid
+
+
+## Cursos
+
+- Taller para realizar una junta restaurativa
+- American Bar Association Iniciativa para el Estado de Derecho ¿ Unison,Curso introductorio en seguridad nacional
+- Colegio de Defensa Nacional de la Secretaría de la Defensa Nacional(Defensa),Curso de Posgrado
+- Estudios sociales de las masculinidades
+- Centro de Investigación en Alimentación y Desarrollo, A
+- C
+- ,Curso
+- Antecedentes, fundamentos y principios rectores del sistema procesal, penal, acusatorio y oral
+- SECINSJP,Diplomado en Formación de Mediadores, Instituto de Mediación de México, S
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53351/11
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho y maestra en derecho internacional privado por Unison, y doctora en ciencias sociales por Colson
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi experiencia laboral y como investigadora comprendo la importancia de la justicia para la transformación de México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional desde mi óptica debe salvaguardar e impulsar el respeto a los derechos humanos y trabajar para que todas las personas, sin importar sus condiciones, accedan a la justicia. Asimismo, considero que esta función puede ser un mecanismo educativo ya que las decisiones no solo deben ser acatadas, también deben cumplir una función formativa a nivel individual, social y comunitario. Las sentencias pueden convertirse en lecciones sobre empatía social y respeto hacia los demás.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desde mi visión la impartición de justicia debe tener enfoque social y ético porque es urgente construir un sistema judicial más justo, inclusivo y que brinde respuesta a las necesidades de la sociedad mexicana. Considero que la interpretación y aplicación del derecho deben buscar cambiar positivamente las vidas de las personas. Solo con operadores que procuren cercanía con las personas involucradas en los procesos de justicia se podrán comprender y atender de mejor manera sus necesidades.
+
+
+## Propuestas
+
+- Propongo el diseño, la implementación, el monitoreo y la evaluación de una metodología con enfoque social y basada en evidencia científica. Dicha metodología estará focalizada en la atención adecuada de personas en situación de vulnerabilidad por pobreza y que sean parte en procesos de los juzgados de distrito con competencia mixta. A través del modelo a plantear habrán de tomarse en cuenta necesidades, condiciones, desafíos y particularidades de las diversas regiones que conforman nuestro país.
+- Propongo el diseño, la implementación, el monitoreo y la evaluación de una metodología basada en evidencia científica para impartir justicia con un enfoque social, de género y región. La herramienta se enfocará en mujeres y población LGBTTI+ en situación de violencia o discriminación y que sean parte en procesos de los juzgados de distrito con competencia mixta. En ella se procurará considerar las necesidades, condiciones, desafíos y particularidades de las diversas regiones que integran México.
+- Propongo el diseño, la implementación, el monitoreo y la evaluación de un plan integral de atención mediante estrategias basadas en evidencia científica y con perspectiva de región para niños, niñas y adolescentes antes, durante y después de su paso por los juzgados de distrito con competencia mixta. Con este plan se contempla ofrecer acompañamiento a infancias y adolescencias para que puedan vivir la experiencia judicial como una oportunidad de empoderamiento personal y aprendizaje.
+

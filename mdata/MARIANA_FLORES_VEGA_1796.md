@@ -1,0 +1,76 @@
+Nombre Candidato: MARIANA FLORES VEGA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 2285026252
+Correo Electronico: vegamara@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Adolescencia, Capacitación, Congreso, Derecho, Derechos Humanos, Formación Académica, Juicio de Amparo, Justicia, Materia Familiar., Niñez, Víctimas
+Tags Propósito: Amparo., Capacitación, Ciudadanía, Contexto, Derechos Humanos, Eficiencia, Empatía, Equidad, Evaluación, Excelencia, Género, Independencia, Integridad, Justicia, Legislación, Protección, Sensibilidad, Tecnología, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Mariana Flores Vega es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal para el estado de Veracruz. Cuenta con Maestría en Derechos Humanos y Juicio de Amparo, complementada por diversos cursos en temas de justicia, derechos humanos y atención a víctimas. Su trayectoria incluye estudios en la Universidad Veracruzana y experiencia en el Poder Judicial del Estado.
+
+Motiva su candidatura el deseo de contribuir a una justicia más accesible e igualitaria, enfocándose en la capacitación continua de los juzgadores, la inversión en tecnología para agilizar procesos y un enfoque empático y sensible en la impartición de justicia, especialmente hacia grupos vulnerables. Sus propuestas incluyen mecanismos de evaluación del desempeño judicial basados en calidad y no solo cantidad, y un acercamiento a la ciudadanía para garantizar una justicia cercana y con perspectiva humana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/MarianaFloresVega
+- https://www.instagram.com/mariana_flores_vega/profilecard/?igsh=MXE5YWNraWZscHZ2dg==
+
+
+## Cursos
+
+- Videoconferencia  y Expectativas de la Nueva Justicia  (2021)
+- ,Curso  de Apoyo a Víctimas y Violaciones de Derechos  (2024)
+- ,Congreso: Segundo Congreso de Ciencias Penales, Justicia Constitucional y Derechos de Niñas, Niños y Adolescentes (2023),Segundo Concurso de Oposición para ocupar quince plazas de Juez de Primera Instancia Especializado en Materia Familiar
+- ,Conversatorio sobre Niñas, Niños y Adolescentes (2022)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53315/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho: Universidad Veracruzana, campus Xalapa
+- Maestría en Derechos Humanos y Juicio de Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir desde una posición de mayor impacto, justicia para todos. Se acabaron los privilegios para unos cuántos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estoy consciente de que la Magistratura es una posición que exige un compromiso ético inquebrantable, independencia de criterio y una constante búsqueda de la excelencia. Me encuentro preparada para asumir esta responsabilidad, guiada por los valores que han regido mi vida profesional y personal: integridad, dedicación y un firme respeto a mi misma y a quienes me rodean.
+
+
+## Vision sobre la Imparticion de Justicia
+
+He aprendido la importancia de atender los casos con sensibilidad y compromiso, especialmente aquellos relacionados con grupos en situación de vulnerabilidad y categorías sospechosas. Mi formación académica, que incluye una Maestría en Derechos Humanos y Juicio de Amparo, me ha permitido integrar un enfoque especializado y humanista. Este conocimiento ha sido indispensable para abordar los retos del derecho contemporáneo, donde la protección y promoción de los derechos humanos es fundamental.
+
+
+## Propuestas
+
+- Capacitación Continua consistente en programas de formación y actualización para jueces, juezas, magistradas y magistrados, asegurando que estén a la vanguardia y actualizados en reformas y criterios novedosos así como en temas de derechos humanos y equidad de género. A la par establecer mecanismos de evaluación periódica del desempeño de las magistradas y magistrados, que no solo tomen en cuenta cantidad de casos resueltos, sino también la calidad de las decisiones y su impacto en la sociedad.
+- Invertir en tecnología para que todos los juzgadores y personal cuenten con equipo de cómputo actualizado, novedoso que permita la rapidez para elaborar resoluciones, puesto que son las herramientas de trabajo, así como el acceso al programa IUS del Máximo Tribunal del País y precedentes, legislaciones actualizadas, que actúan en conjunto con la resolución de asuntos. esto beneficia al dar como resultado expeditez y trabajos de excelencia en forma y fondo.
+- Como madre de familia y funcionaria del Poder Judicial del Estado, estoy interesada en aplicar la ley con un enfoque empático, una justicia sensible y comprometida con los sectores más vulnerables, con conciencia legal, equidad no sólo justicia, darle a cada quien lo que necesita de acuerdo al contexto. Cercana a las personas, se acabó la institución donde los Magistrados y Magistradas no empatizaban con la ciudadanía, contrario a ello crear conciencia que el trabajo es para la gente.
+

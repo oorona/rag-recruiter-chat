@@ -1,0 +1,80 @@
+Nombre Candidato: RAMON SANCHEZ MAGAÑA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4431215550
+Correo Electronico: ramysa25@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Administración de Justicia, Ciencias Sociales, Derecho, Derecho Procesal Penal, Derechos Humanos, Formación de Jueces, Juicio de Amparo, Juicios Orales, Licenciatura., Maestría, Posgrado, SCJN, Sistema Acusatorio, Sistema de Justicia Penal, Universidad Michoacana
+Tags Propósito: Acceso a la Justicia, Cercanía Ciudadana, Confianza Institucional, Coordinación Interinstitucional, Debido Proceso, Derechos Humanos, Eficiencia, Eficiencia Judicial, Equidad, Estado de Derecho, Flexibilidad Procesal, Igualdad, Juicio de Amparo, Justicia, Operadores del Derecho., Paz Social, Servicios Legales Gratuitos, Sistema Judicial, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ramón Sánchez Magaña es candidato al Poder Legislativo Federal, con trayectoria en las Magistraturas de Tribunales Colegiados de Circuito en Michoacán. Cuenta con maestría en Derecho Procesal Penal y una formación continua a través de diversos diplomados en áreas como juicio de amparo, derechos humanos y el nuevo sistema de justicia penal, impartidos por la UMSNH y la SCJN. 
+
+Su motivación para buscar el cargo público se centra en lograr una justicia más transparente, accesible y cercana a la ciudadanía. Sus propuestas incluyen fortalecer la coordinación interinstitucional, garantizar el acceso a la justicia para todos los sectores de la población, y flexibilizar los criterios de procedencia del juicio de amparo para facilitar su acceso a la ciudadanía. Busca consolidar un sistema judicial eficiente, confiable y que equilibre la aplicación de la ley con el respeto al debido proceso.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15ZQEjHhCJ/?mibextid=wwXIfr
+- https://x.com/ramonsm_26?s=21&t=7tfcSzCN35p_PxSVVJCG2A
+- https://www.instagram.com/ramonsm26_?igsh=MTFoOTR6bWlzaDVkcQ3D3D&utm_source=qr
+- https://www.tiktok.com/@ramonsm_26?_t=ZM-8v4waXeEtoU&_r=1
+
+
+## Cursos
+
+- Profesional: Universidad Michoacana de San Nicolás de Hidalgo
+- Facultad de Derecho y Ciencias Sociales, Sección 01
+- ,Maestría en Derecho Procesal Penal en Juicios Orales y Especialidad en Impartición y Administración de Justicia [UMSNH]
+- ,Diplomados sobre Juicio de Amparo y Derechos Humanos para su defensa, ambos Edición 2024, impartidos por la [SCJN]
+- ,Diplomados: en Juicio de Amparo, Derechos Humanos para su defensa, La Suprema Corte y Derechos Humanos Ed
+- 2022 y 2023
+- ,Diplomados: Formación Inicial para Jueces Nuevo Sistema de Justicia Penal, y en Sistema Acusatorio y Juicios Orales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55001/10
+
+
+## Trayectoria Academica
+
+- Primaria Constitución del 57; secundaria ESFU 2; preparatoria en Uruapan, Mich; licenciatura y posgrado UMSNH; maestría
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero una justicia más transparente, que supere antiguas barreras, de fácil acceso y cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es fundamental que la sociedad confíe en las instituciones, para ello, quien labore en el Poder Judicial Federal o Local, debe ser más sensible a las problemáticas sociales. Mi visión es fortalecer la cercanía del sistema judicial con la ciudadanía, asegurando que los procesos sean claros, ágiles y accesibles para todos, priorizando siempre la protección de los más vulnerables y la consolidación de un sistema que equilibre la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión se fundamenta en la consolidación de un sistema judicial que sea eficiente, confiable y cercano a la sociedad, asegurando que cada decisión contribuya al fortalecimiento del Estado de derecho y a la protección de los derechos humanos. Aspiro a una impartición de justicia que no solo resuelva conflictos, sino que también genere confianza ciudadana, fomente la paz social y promueva un modelo de justicia que equilibre la firmeza en la aplicación de la ley con el respeto al debido proceso.
+
+
+## Propuestas
+
+- Coordinación interinstitucional: Es fundamental fomentar una mayor comunicación entre las diferentes instancias de la justicia, incluyendo la Fiscalía, la Defensoría Pública y el Poder Judicial de la Federación, especialmente entre este último y el Poder Judicial del Estado. Una colaboración más estrecha permitirá una resolución más ágil de los casos, especialmente en aquellos que involucran delitos complejos, reduciendo los tiempos procesales y mejorando la transparencia del sistema judicial.
+- Acceso a la Justicia para todos: Asegurar que todos los sectores de la población, especialmente los más vulnerables, tengan acceso fácil y efectivo a la justicia, proporcionando servicios legales gratuitos de calidad y garantizando la igualdad de condiciones en el conflicto judicial. Estas medidas en mi opinión, pueden contribuir significativamente a la eficiencia y la equidad en la administración de justicia, lo que fortalecería la confianza de la ciudadanía en el sistema judicial.
+- Fomentar criterios que aclaren y flexibilicen las reglas sobre la procedencia del juicio de amparo, haciendo más accesible este recurso y reduciendo los tecnicismos innecesarios que limitan el acceso a la justicia a la ciudadanía. El siglo XXI nos exige un sistema que sea no solo eficiente y transparente, sino también humano y accesible, máxime que al ser operadores del derecho, es ineludible garantizar que la justicia sea un derecho tangible y efectivo para todos.
+

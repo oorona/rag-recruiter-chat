@@ -1,0 +1,74 @@
+Nombre Candidato: PEDRO ALBERTO CASTAÑEDA ORTIZ
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8701479558
+Correo Electronico: castanedaortizpedroalberto@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Constitucionalismo Transformador, Derecho Constitucional, Derechos Fundamentales, Igualdad de Género, Justicia Penal, Licenciatura en Derecho, Secretario Judicial, Sistema Penal Acusatorio, Universidad Autónoma de Coahuila., Universidad Castilla la Mancha
+Tags Propósito: Acceso a la Justicia, Calidad, Derechos, Desigualdad Social, Eficiencia, Honestidad, Imparcialidad, Justicia, Legítimo Reclamo, Oralidad, Plazos, Realidad Social, Rendición de Cuentas, Sensibilidad Judicial., Sensibilidad Social, Transparencia
+
+
+## Descripción del Candidato 
+
+PEDRO ALBERTO CASTAÑEDA ORTIZ es candidato a Juez/a de Distrito en Coahuila, postulado por el Poder Ejecutivo Federal. Cuenta con maestría en Sistema Penal Acusatorio por la Universidad Autónoma de Coahuila y una licenciatura en Derecho de la misma institución. Su trayectoria académica incluye cursos especializados en derecho constitucional, derechos fundamentales y jurisdicción en el sistema de justicia penal, así como formación en perspectiva de género.
+
+El candidato expresa su motivación para el cargo en el deseo de servir a México brindando una justicia de alta calidad. Su visión de la función jurisdiccional se basa en la honestidad, calidad, sensibilidad social y rendición de cuentas ante la ciudadanía, proponiendo la oralidad en los procedimientos judiciales. Sus principales propuestas incluyen la realización de juicios de forma oral, una mayor cercanía de los jueces con la sociedad y la reducción de plazos en los juicios para garantizar el acceso a la justicia para todos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573905031513&sk=about_details
+- https://www.instagram.com/pedroalbertocastaneda?igsh=a3J6ZWZ4MzNyZXRv
+- https://www.tiktok.com/@pedro.castaeda555?_t=ZS-8v6GrrxknMT&_r=1
+
+
+## Cursos
+
+- Acreditación del Curso Especializado en Derecho Constitucional: El Constitucionalismo Transformador
+- ,Interpretación y aplicación judicial de los derechos fundamentales, facultad Toledo, Universidad de Castilla la Mancha,Jurisdicción en el Sistema de Justicia Penal¿ en la extensión Torreón,Curso virtual El Secretario Judicial Funciones y Responsabilidades,Curso Género como Herramienta para la Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52826/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho de la Universidad Autónoma de Coahuila Maestría en Sistema Penal Acusatorio en la citada Facultad
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir al pueblo de México brindándole una justicia de la más alta calidad pues me he preparado en dicha materia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe impartirse con honestidad, calidad y sensibilidad social, por lo cual, sus representantes deben cubrir los más altos estándares de preparación académica, profesionalismo, honradez y disciplina, rindiendo cuentas de su actuación siempre al pueblo de México, por lo cual consideró que la totalidad de los procedimientos en las diversas materias del derecho, deberían desarrollarse de manera oral, estando siempre las partes y la sociedad en general en presencia del Juez.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser ante todo imparcial, sirviendo únicamente a los ideales previstos en la Constitución y la ley, a fin de lograr que las desigualdades sociales, no sean un impedimento para acceder a una justicia de calidad, logrando así que dichas desigualdades se vean disminuidas para lograr un México mas justo, de ahí que, la impartición de justicia debe acelerar los tiempos en que se resuelven los juicios que son competencia de todos y cada uno de los jueces de la nación.
+
+
+## Propuestas
+
+- La totalidad de los juicios en las distintas materias del derecho, deben realizarse de forma oral, a efecto de maximizar la inmediación con los jueces que son los encargados de emitir las resoluciones, esto es, justicia de frente y sin tramites en lo obscurito.
+- Justicia para la gente. Los jueces deben escuchar los reclamos de la sociedad, por lo que deben atender a cualquier persona que tenga interés en la función jurisdiccional, a efecto de ir construyendo un conocimiento de la realidad que vive el pueblo de México, y puedan así, ir desarrollando una mayor sensibilidad a la hora de emitir una sentencia que afecta la vida de las personas.
+- Justicia real. Lo que implica reducir los plazos que tardan los juicios, a fin de que los interesados al experimentar la inactividad de los juzgados y tribunales y ante la situación de desigualdad que puedan atravesar, desistan de el legítimo reclamo de sus derechos, provocando de esta manera que solo aquel que tenga la capacidad económica de resistir un juicio tan largo, logre conseguir sus pretensiones, por ello es necesario juzgar en el menor tiempo posible pero sin disminuir la calidad.
+

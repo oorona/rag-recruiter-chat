@@ -1,0 +1,77 @@
+Nombre Candidato: EUSEBIA GONZALEZ GONZALEZ
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 8111837902
+Correo Electronico: gonzalezeus@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Campañas Políticas, Certificación, Ciencias Políticas, Doctorado, España., Género, INAI, Juzgadas, Maestría, Mujeres en la Política, Oralidad Adversarial, Salamanca, Sistemas Electorales
+Tags Propósito: Estado de derecho, acceso a la justicia, capacitación, consulta pública, derechos humanos, derechos legales., eficiencia, equidad, formación continua, herramientas tecnológicas, inclusión social, integridad, justicia, legislación, participación ciudadana, paz social, perspectiva de género, reformas legales, sistema judicial, transparencia
+
+
+## Descripción del Candidato 
+
+Eusebia Gonzalez Gonzalez es candidata a un cargo en el Poder Judicial de la Federación y el Poder Legislativo Federal, actualmente desempeñándose como Magistratura en las Salas Regionales del TE del PJF. Cuenta con doctorado y una trayectoria académica que incluye una maestría en sistemas electorales y certificación en campañas electorales. Su motivación para buscar el cargo público es contribuir a la construcción de un sistema de justicia más justo, equitativo, accesible y humano.
+
+Su visión de la función jurisdiccional y la impartición de justicia se centra en la humanidad, la equidad, la transparencia y el acceso a la justicia para todas las personas. Sus propuestas incluyen la capacitación constante del personal judicial en derechos humanos y perspectiva de género, la realización de foros de estudio con diversos actores para analizar y proponer reformas legislativas, y la creación de espacios de participación ciudadana para mejorar el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/eusebia.gonzalezgonzalez
+- https://x.com/eusebia82465175?s=21&t=POKv25z5NtOnRYnkcGq2Xg
+- https://www.instagram.com/eusebia_gzz?igsh=MXFkb3Roamo0ejRqNA==
+
+
+## Cursos
+
+- Diplomado en Campañas Políticas, Facultad de Ciencias Políticas y Administración Pública
+- ,Diplomado impartido por el Instituto Estatal de las Mujeres del Estado: Mujeres al frente de la política,Seminario internacional de oral Adversarial  Immersion Seminari, en San Diego California,,Programa círculos de estudio
+- Asociación Mexicana de Juzgadoras, A
+- C,Participación en el Foro: Panorama actual de la perspectiva de género, organizado por el Consejo Nacional del INAI
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16073/9
+
+
+## Trayectoria Academica
+
+- Doctorado; maestría en sistemas electorales, mención honorífica; certificación de Salamanca, España en campañas electora
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte de la construcción de un nuevo sistema de justicia más justo, equitativo, accesible y humano.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe centrarse en garantizar la justicia para lograr una sociedad más humana, justa, democrática y equitativa; ser una herramienta fundamental en la sociedad, basada en la equidad, integridad y transparencia. La administración de justicia debe aspirar a ser eficiente, accesible y centrada en las personas, garantizando que cada una tenga acceso a un juicio justo y expedito y que cada una de las partes se vea privilegiada con el más estricto respeto a sus derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se fundamenta en la construcción de un sistema humano, justo, accesible y transparente que fortalezca el Estado de derecho y promueva la paz social entre las personas. La justicia humana se trata de aplicar principios éticos y legales con sensibilidad hacia las necesidades y experiencias de las personas. Se trata de equilibrar la dureza de la ley con la empatía y la comprensión, reconociendo que detrás de cada caso hay historias, emociones y seres humanos.
+
+
+## Propuestas
+
+- Capacitación constante del personal judicial: Ofrecer programas de formación continua en el conocimiento de la ley, principalmente en derechos humanos, perspectiva de género e inclusión social. Cursos y talleres para lograr un mejor ambiente laboral de respeto y empatía. Incorporar talleres sobre el uso de herramientas tecnológicas en el ámbito judicial, tanto para el personal de la institución como para los usuarios, a fin de facilitar a través de estas herramientas el acceso a la justicia.
+- Realizar foros de estudio entre el gremio de abogados, sociedad civil e integrantes del Poder Judicial Federal y Local, así como organizaciones de derechos humanos y organismos autónomos en esta materia, para analizar las legislaciones que se aplican a fin de realizar propuestas de iniciativas o reformas de ley, derivadas de la aplicación concreta de la ley en casos específicos, que permitan garantizar el respeto de los derechos de todas las perdonas y evidenciar normas inconstitucionales.
+- Participación ciudadana: Crear espacios de consulta pública para escuchar las necesidades y preocupaciones de la ciudadanía respecto al sistema judicial. Promover campañas educativas sobre los derechos legales y el funcionamiento del sistema de justicia, el desconocimiento de nuestros derechos nos lleva a que estos sean pisoteados sin que podamos tener acceso a los órganos de justicia para lograr su respeto.
+

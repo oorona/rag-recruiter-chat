@@ -1,0 +1,87 @@
+Nombre Candidato: JULIETA VALLADARES BARRAGAN
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derechos Humanos, Derechos Políticos, Doctorado, España, Formación Iberoamericana, Género, Investigación Jurídica, Máster, Paridad Política Electoral, Titulada con honores, Tribunal Electoral., Universidad, Ética Judicial
+Tags Propósito: Constitución, Democracia representativa, Derechos humanos, Dignidad humana, Estado de derecho, Grupos vulnerables, Justicia electoral, Paz social, Separación de poderes, Soberanía popular, Sufragio universal, Tratados internacionales.
+
+
+## Descripción del Candidato 
+
+Julietta Valladares Barragán es candidata a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con estudios de doctorado concluidos y una formación académica extensa, incluyendo maestrías en investigación jurídica y derechos humanos, así como un diplomado en derechos políticos del Tribunal Electoral.
+
+Su motivación para buscar el cargo se centra en la defensa de la democracia representativa, los derechos humanos y el estado de derecho. Su visión de la función jurisdiccional enfatiza la importancia de la justicia electoral para la estabilidad política y la consolidación democrática, mientras que sus propuestas se enfocan en la protección de la dignidad humana, los elementos esenciales de la democracia y los grupos prioritarios.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/9.Valladares.Barragan.Julieta
+- https://x.com/JulietaValladar
+- https://www.instagram.com/julietavalladaresbarragan
+- https://www.tiktok.com/@valladares.barragan.juli
+- https://www.facebook.com/profile.php?id=61574606589600
+
+
+## Cursos
+
+- Doctoranda en Derecho
+- Universidad Panamericana
+- ,Máster en Investigación en Ciencias Jurídicas
+- Universidad Abat Oliba de Barcelona, España
+- Titulada con honores
+- ,Formadora Iberoamericana de Ética Judicial
+- Acreditada por la Cumbre Judicial Iberoamericana
+- ,Diplomada en Derechos Políticos y su Tutela
+- Tribunal Electoral del Poder Judicial de la Federación
+- ,Máster en Derechos Humanos con perspectiva de Género y Paridad Político Electoral
+- Universidad de Castilla La Mancha
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/18530/9
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho (UP), titulada con honores
+- Maestra en derecho (España), con honores
+- Doctoranda en derecho (UP)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para defender los elementos esenciales de la democracia representativa, los derechos humanos y el estado de derecho.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia electoral es clave para mantener la estabilidad política, la paz social, así como para promover y consolidar la democracia representativa, los cuales son a su vez objetivos de la Carta Democrática Interamericana. El ejercicio efectivo de la democracia representativa es la base del estado de derecho y los regímenes constitucionales de los Estados Miembros de la Organización de los Estados Americanos, de la cual México forma parte.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Defender los elementos esenciales de la democracia representativa, entre otros, el respeto a los derechos humanos y las libertades fundamentales; el acceso al poder y su ejercicio con sujeción al estado de derecho; la celebración de elecciones periódicas, libres, justas y basadas en el sufragio universal y secreto como expresión de la soberanía del pueblo; el régimen plural de partidos y organizaciones políticas; y la separación e independencia de los poderes públicos.
+
+
+## Propuestas
+
+- Proteger y defender la dignidad humana, en consecuencia, proteger y defender los derechos humanos previstos en la Constitución y en los tratados internacionales suscritos por el Estado Mexicano.
+- Proteger y defender los elementos esenciales de la democracia representativa.
+- Proteger y defender a los grupos de atención prioritaria.
+

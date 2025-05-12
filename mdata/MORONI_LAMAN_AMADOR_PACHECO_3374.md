@@ -1,0 +1,74 @@
+Nombre Candidato: MORONI LAMAN AMADOR PACHECO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2281972987
+Correo Electronico: moroniamador@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Benito Juárez Oaxaca, Derecho de Ejecución Penal, Derechos Humanos, Educación Privada, Educación Pública, Formación Académica., Litigación Penal, Perspectiva de Género, Sistema de Justicia Penal
+Tags Propósito: Acceso a la Justicia, Amparo, Asesoría Jurídica, Comprensión Ciudadana, Derechos de las Víctimas, Explicación de Resoluciones, Jurisdicción, Justicia, Lenguaje Claro, Lenguaje Coloquial., Participación Ciudadana, Poder Judicial, Procesos Penales, Transparencia
+
+
+## Descripción del Candidato 
+
+Moroni Laman Amador Pacheco es candidato a Jueces/as de Distrito en Veracruz, postulándose al Poder Judicial de la Federación. Cuenta con maestría concluida y ha realizado diversos diplomados en áreas como litigación penal, ejecución penal, derechos humanos y perspectiva de género. 
+
+Su motivación para buscar el cargo es contribuir con su experiencia en la conformación del nuevo Poder Judicial.  Propone facilitar la comprensión de las resoluciones judiciales mediante un lenguaje menos técnico y la explicación de las mismas a las partes involucradas. Adicionalmente, busca asegurar la asistencia jurídica a las víctimas en los juicios de amparo y garantizar la lectura y explicación de acuerdos y resoluciones a solicitud de las partes. Su visión sobre la función jurisdiccional es que ayuda a resolver conflictos y evitar la aplicación de la ley del más fuerte.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/moroamadorpacheco
+- https://www.x.com/moroniamadorpacheco
+- https://www.instagram.com/moroniamadorp
+
+
+## Cursos
+
+- Diplomado Litigación en el Proceso Penal,Diplomado de Formación en Torno del Nuevo Sistema de Justicia Penal,Diplomado en Derecho de Ejecución Penal,Diplomado Sobre Desarrollo Integral con Perspectiva de Derechos Humanos,Diplomado Sobre Impartición de Justicia con Perspectiva de Género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52156/11
+
+
+## Trayectoria Academica
+
+- Primaria y Secundaria Públicas
+- Preparatoria Privada y Universidad en la Autónoma Benito Juárez de Oaxaca de donde soy
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero participar con mi experiencia y conocimientos en la conformación del nuevo Poder Judical de la Federación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional porque ayuda a resolver los problemas que surgen entre las personas y de estas con las autoridades de los tres niveles de gobierno, ya que sin jueces cada quien haría lo que quisiera y se utilizarían como medios para resolver los problemas cosas como la Ley del Talión, es decir, el ojo por ojo, o la Ley del más fuerte y a los más debiles no habría quien les hiciera justicia, de ahí la importancia de contar con jueces y que estos sean más justos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En los últimos años el Poder Judicial se ha alejado del pueblo, es decir, sus resoluciones se han vuelto muy técnicas de manera que no son comprendidas por la mayoría de la gente, los jueces tampoco se han ocupado de salir a explicarlas y justificar ante el pueblo las razones que tuvieron para resolver en uno o en otro sentido, por ello resulta necesario que los jueces emitan resoluciones más fáciles de comprender para la mayoría y además que expliquen las razones que los llevaron a resolver así
+
+
+## Propuestas
+
+- Redacción de los acuerdos y las resoluciones en un lenguaje menos técnico, es decir, en un lenguaje que pueda ser más comprensible para la mayoría de las personas, utilizando incluso en ocasiones que así lo ameriten lenguaje coloquial para que los usuarios del sistema de Justicia Federal puedan comprender mejor el desarrollo de los procedimientos en los que se encuentren involucrados.
+- Asegurar para las víctimas u ofendidos la designación de Asesor Jurídico en los juicios de amparo, de manera que puedan hacer valer sus derechos en igualdad de circunstancias con los imputados o acusados; y para llevar esto a cabo, requerir a quienes participan en los procedimientos penales en calidad de asesor victimal su presencia en el juicio de amparo y en caso de no contar con uno, requerir a la institución correspondiente la designación de un asesor victimal que los represente.
+- Otorgar a las partes lectura y explicación de los acuerdos y resoluciones, siempre que lo soliciten, con el objeto de despejar sus dudas y preguntas para asegurarles una mejor comprensión de los procesos en los que intervengan ante el suscrito.
+

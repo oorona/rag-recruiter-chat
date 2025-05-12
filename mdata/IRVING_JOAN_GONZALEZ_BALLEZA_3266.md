@@ -1,0 +1,71 @@
+Nombre Candidato: IRVING JOAN GONZALEZ BALLEZA
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Catedrático., Delitos Electorales, Medios de Impugnación, Paridad de Género, Protección de Datos Personales, Secretarias Generales de Acuerdos, Servidor Público, Trabajo Jurisdiccional
+Tags Propósito: Acceso a la justicia, Capacitación continua, Confianza ciudadana, Eficacia, Eficiencia, Evaluación ciudadana, Igualdad, Imparcialidad, Justicia abierta, Poder Judicial Federal, Principios, Servidor público, Transparencia, Valores.
+
+
+## Descripción del Candidato 
+
+Irving Joan Gonzalez Balleza es candidato a Jueces/as de Distrito en Tamaulipas, postulando para el Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, complementada con cursos en áreas como trabajo jurisdiccional, delitos electorales, protección de datos personales, paridad de género y sistemas de impugnación electoral. Su trayectoria incluye experiencia como abogado postulante, servidor público y catedrático adjunto.
+
+Gonzalez Balleza busca el cargo con el objetivo de aportar su experiencia y conocimientos al Poder Judicial Federal. Su visión para la función jurisdiccional se centra en la eficacia, eficiencia y transparencia, buscando facilitar el acceso a la justicia para la ciudadanía. Sus propuestas incluyen una justicia abierta con contacto permanente entre juzgadores y ciudadanos, capacitación constante para servidores públicos y la implementación de evaluaciones ciudadanas del desempeño judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Irving-J-Gonzalez-Balleza/61574241626729/#
+
+
+## Cursos
+
+- Curso sobre Trabajo Jurisdiccional y las Secretarias Generales de Acuerdos,Detección y Prevención de Delitos Electorales,Seminario en materia de Protección de Datos Personales en asuntos jurisdiccionales,Paridad de género,Sistemas de medios de impugnación en materia electoral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53487/11
+
+
+## Trayectoria Academica
+
+- Abogado postulante, servidor público, catedrático adjunto
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que mi experiencia y conocimientos pueden ser un gran aporte para la nueva etapa del Poder Judicial Federal
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser eficaz y eficiente, que los ciudadanos conozcan el trabajo de quienes son los encargados de llevar a cabo esta tarea, y que el servidor público se encuentre totalmente comprometido con su labor, que no se pongan trabas o impedimentos innecesarios a la ciudadanía para que puedan iniciar el engranaje jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe brindarse a todas y todos por igual, sin distinción alguna, que no exista la idea por mínima que sea, de que la justicia solo es para ciertos sectores privilegiados, sino que, cada ciudadana y ciudadano de nuestro país confíe en los juzgadores y tenga la certeza de que éstos harán su mejor trabajo y esfuerzo al impartir justicia con principios y valores
+
+
+## Propuestas
+
+- Justicia abierta: que el juzgador este en contacto permanente con quienes acuden a los órganos jurisdiccionales a solicitar se les imparta justicia
+- Capacitación constante: que todos los servidores públicos involucrados en el área de impartición de justicia tomen cursos de actualización en la materia especifica en la cual desarrollan sus actividades
+- Evaluación ciudadana: que se lleven a cabo diversos ejercicios, foros, encuestas, debates, mesas de trabajo, consultas, a través de los cuales la ciudadanía pueda expresarse sobre el trabajo que realizan las y los juzgadores en funciones
+

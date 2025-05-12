@@ -1,0 +1,81 @@
+Nombre Candidato: SAMUEL GONZALEZ GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3320520093
+Correo Electronico: lic.samuelgonzalezgarcia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Laboral, Derecho del Trabajo, Especialización, Juicio de Amparo, Justicia Laboral, Licenciatura en Derecho, Maestría, Reforma Laboral., Seguridad Social
+Tags Propósito: Accesibilidad, Celeridad, Eficacia, Eficiencia, Equilibrio Laboral, Imparcialidad, Independencia., Justicia Laboral, Legalidad, Medios Electrónicos, Resolución de Controversias, Sencillez Procesal, Transparencia, Veracidad
+
+
+## Descripción del Candidato 
+
+Samuel Gonzalez Garcia es candidato a Jueces/es de Distrito en Jalisco, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Laboral, Especialidad en Derecho del Trabajo y Justicia Laboral, y Licenciatura en Derecho, acreditado con cédula profesional. Ha realizado diversos diplomados y cursos de especialización en materia de seguridad social, juicio de amparo y justicia laboral.
+
+Su motivación para buscar el cargo es impartir justicia laboral con principios de celeridad, veracidad y sencillez procesal. Su visión se centra en una función jurisdiccional legal y veraz que equilibre los derechos de trabajadores y patrones, y en una impartición de justicia sencilla, independiente, imparcial y eficaz. Sus propuestas incluyen la sencillez procesal, la rapidez en la impartición de justicia y el uso de medios electrónicos para facilitar el acceso a la función jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/SamuelGonzalezCandidato
+- https://x.com/SAMUELGONZ48090
+- https://www.instagram.com/samuel01062025/
+- https://www.youtube.com/@SamuelGonzálezGarcía-w1l
+- https://tiktok.com/@samuelgg2025
+
+
+## Cursos
+
+- Diplomado en Seguridad Social
+- ,Diplomado Juicio de Amparo
+- ,Curso de Especialización sobre la Reforma en Materia de Justicia Laboral
+- ,Curso de Actualización sobre la Reforma en Materia de Justicia Laboral
+- ,Curso Jornadas de Sensibilización sobre la Reforma en Materia de Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53727/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Laboral
+- Especialidad en Derecho del Trabajo y Justicia Laboral
+- Licenciado en derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia laboral, bajo los principios de celeridad, veracidad y sencillez procesal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Impartir la justicia laboral apegada a la legalidad y veracidad en las resoluciones que sean dictadas, con el objeto de lograr el equilibrio entre los trabajadores y los patrones, que sean confiable, transparente y de calidad, con la eficacia y eficiencia de las determinaciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La resolución de controversias debe ser enfocada a su sencillez, entendible para todos los usuarios, en su interpretación y aplicación, con el objeto de que las resoluciones sean independientes, imparciales y eficaces.
+
+
+## Propuestas
+
+- Sencillez procesal.
+- Rapidez en su impartición.
+- Utilizar los medios electrónicos de la ciencia para hacerla más accesible, donde se pueda solicitar la función jurisdiccional aun sin trasladarse al domicilio de un Tribunal,
+

@@ -1,0 +1,71 @@
+Nombre Candidato: ADRIAN ARTEAGA NAVARRO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 5516545423
+Correo Electronico: adrianarteagan@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Actuario, Derecho, Derecho Penal, Derechos Humanos, Desplazamiento Forzado, Detención, Impartición de Justicia., Juez, Justicia, Magistrado, Migración, Postulante, UNAM
+Tags Propósito: Ciudadanía., Derechos Humanos, Eficiencia Judicial, Estado de Derecho, Excelencia, Función Jurisdiccional, Imparcialidad, Independencia Judicial, Jurisdicción, Justicia, Objetividad, Paridad de Género, Profesionalismo, Servicio Público, Transparencia, Órganos Jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Adrián Arteaga Navarro es candidato a Magistratura de Tribunales Colegiados de Circuito en Chiapas. Cuenta con Maestría en Derechos Humanos y una trayectoria en el Poder Judicial que incluye cargos como Abogado postulante, Actuario, Secretario de Juzgado y Tribunal Colegiado, actualmente ostenta el cargo de Juez de Distrito. Su motivación para buscar el cargo público se basa en su formación académica pública y su deseo de retribuir al país.
+
+Su visión de la función jurisdiccional se centra en la vigilancia de la actuación de los juzgadores, asegurando independencia, imparcialidad y profesionalismo para impartir justicia con honestidad y humanismo. Sus propuestas principales incluyen la creación de nuevos órganos jurisdiccionales para agilizar la justicia, la mejora de los recursos materiales para el servicio público y la realización de jornadas informativas sobre la función jurisdiccional dirigidas a la ciudadanía.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://www.hotmail.com
+
+
+## Redes Sociales
+
+- http://www.facebook.com/adrian.arteaga.79219?mibextid=kfxxJD
+
+
+## Cursos
+
+- Licenciatura en Derecho, Universidad Nacional Autónoma de México,,Maestría en Derechos Humanos, en el Instituto de Estudios Superiores en Derecho Penal,Curso de Encuentro Nacional de Magistrados de Circuito y Jueces de Distrito,Curso de Buenas Prácticas para la Impartición de Justicia,Curso La Detención sin control Judicial de Personas Migrantes y el Desplazamiento Forzado
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52323/10
+
+
+## Trayectoria Academica
+
+- Abogado postulante; Actuario; Secretario de Juzgado y Tribunal Colegiado; Juez de Distrito actualmente soy Magistrado
+
+
+## Motivo para buscar el Cargo Publico
+
+Por amor a la justicia y para retribuir a mi país todo lo que me dio, como es mi formación académica ya que fue pública.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero, que el sistema jurisdiccional en México, es el encargado de vigilar la actuación de todos los Juzgadores y que esta sea conforme a los principios que rigen la labor judicial, esto es, Independencia, Imparcialidad, Objetividad, Profesionalismo, Excelencia, Paridad de género, a efecto de impartir de justicia con honestidad y humanismo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como Magistrado integrante de un Órgano Colegiado la impartición de justicia implica velar por los Derechos de las personas para que las autoridades respeten las leyes y actúen con apego a ellas.
+
+
+## Propuestas
+
+- La Creación de nuevos Órganos Jurisdiccionales para agilizar la impartición de justicia y poder garantizarla y que sea pronta y expedita.
+- Mejora de los bienes materiales para el servicio Público (equipos de Cómputo y mobiliario).
+- Jornadas de Información sobre la función jurisdiccional para el Pueblo.
+

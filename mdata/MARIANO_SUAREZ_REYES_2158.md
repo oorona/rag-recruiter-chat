@@ -1,0 +1,78 @@
+Nombre Candidato: MARIANO SUAREZ REYES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5522741807
+Correo Electronico: Marianosuarez10@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Congresos, Derecho Constitucional, Derecho Procesal Constitucional, Derechos Humanos, Doctorado, Género, Inclusión Social, Juicios Orales, Justicia Adversarial, Justicia Constitucional, Maestría en Fiscal, México, Procedimientos de Justicia Oral
+Tags Propósito: acceso a la justicia, adultos mayores, amparo, asesoría legal gratuita, atención médica, bienestar, comunidad., derechos humanos, honestidad, igualdad, imparcialidad, justicia, justicia accesible, justicia social, mujeres, niños, personas con discapacidad, programas sociales, protección de derechos, protección patrimonial, resolución de conflictos, servidores públicos, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Mariano Suarez Reyes es candidato a Juez/a de Distrito en la Ciudad de México, postulándose en "En Funciones". Cuenta con doctorado y una sólida formación académica en áreas de fiscalía, justicia oral y procedimientos de justicia en México, avalada por su asistencia a diversos congresos nacionales e internacionales sobre justicia constitucional y perspectiva de género.
+
+Su motivación para el cargo público se centra en contribuir al Poder Judicial impulsando la justicia e igualdad para los mexicanos. Su visión se basa en una función jurisdiccional justa, imparcial y accesible, con especial atención a grupos vulnerables. Sus propuestas principales incluyen velar por los derechos de niños, mujeres y personas en situaciones de vulnerabilidad económica o social, garantizar el acceso a programas sociales y atención médica, y facilitar el acceso a la justicia mediante asesoría gratuita y apertura a la comunidad.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A4EwBTgTt/?mibextid=wwXIfr
+- https://x.com/marianosur1494?s=11
+- https://www.instagram.com/mariano_suarez_re/profilecard/?igsh=MWI3cHBvc2o3ZW1idw==
+- https://www.tiktok.com/@mariano.suarez39?_r=1&_d=eh9cmic5h05ldb&sec_uid=MS4wLjABAAAAr15A9m2YQh_1MHZDr1p-4Hk7chsKO1i4sdmlViSycSWwDUZxjsE4POnogupr23RW&share_author_id=7485812032811271186&sharer_language
+
+
+## Cursos
+
+- Primer Congreso Nacional sobre justicia Constitucional en México
+- ,Congreso Internacional Sobre Justicia Constitucional y Quinto Encuentro Iberoamericano Derecho Procesal Constitucional
+- ,Segundo Congreso Internacional de Derecho Constitucional
+- ,Séptimo Congreso Nacional juzgar con perspectiva de Género noviembre de 2019
+- ,Diplomado: Sin capacidad jurídica no hay derechos humanos ni inclusión social
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55251/11
+
+
+## Trayectoria Academica
+
+- Maestría en Fiscal, Juicios Orales, Justicia Adversarial y Doctorado en Procedimientos de Justicia Oral en México
+
+
+## Motivo para buscar el Cargo Publico
+
+Me motiva contribuir al Poder Judicial en esta nueva etapa, impulsando la justicia y la igualdad para los mexicanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de un juez debe ser justa, imparcial y al alcance de todos. No debe haber corrupción ni preferencias por nadie, y todas las personas deben ser tratadas por igual ante la ley. Pero también es importante dar especial atención a quienes más lo necesitan, como los niños, las mujeres, los adultos mayores y las personas con discapacidad. Así, la justicia puede ayudar a construir una sociedad más justa y con más igualdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Si me eligen como juez, trabajaré con honestidad para que, juntos, podamos resolver los problemas de forma justa y sin favoritismos. Mi prioridad será proteger los derechos de todas las personas que buscan justicia, especialmente de quienes más lo necesitan. Quiero ayudar a construir una sociedad donde todos puedan encontrar una solución a sus conflictos, con confianza en que el proceso será claro, justo y efectivo.
+
+
+## Propuestas
+
+- Velaré por los intereses de los niños, de mujeres a las que sus maridos no les dan dinero para alimentos de sus hijos, padres a los que no les permiten verlos, devolveré las casas a quienes les han sido arrebatadas injustamente, liberaré a quienes han sido detenidos sin razón, ampararé a quienes soliciten justicia por la aplicación de impuestos excesivos, ayudaré a aquellos que necesitan acceso rápido a programas sociales de bienestar y atención médica cuando los hospitales nieguen el servicio.
+- Como servidor de los mexicanos, me comprometo a orientar a las personas más necesitadas, brindándoles acceso gratuito, información y asesoramiento, llevándolos por el camino para realizar los trámites para que personas capacitadas los apoyen realizando sus demandas, sin costo alguno, asegurando que todos tengan igual acceso a la justicia. Mi objetivo es ayudar a aquellos que más lo necesitan, facilitando su actuar en el proceso y promoviendo la igualdad y la justicia para todos.
+- Como juez, me comprometo a servir a la comunidad facilitando el acceso a la justicia, de manera sencilla y segura. Mi oficina estará siempre abierta para cualquier persona, sin hacer distinciones por clase social ni favorecer a nadie. Estaré disponible para responder dudas y atender inquietudes sobre los casos del juzgado. Mi objetivo es escuchar y guiar a quienes lo necesiten, asegurando que la justicia sea transparente y esté al alcance de todos.
+

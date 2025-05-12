@@ -1,0 +1,79 @@
+Nombre Candidato: ALEJANDRA FLORES DELGADILLO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5548676356
+Correo Electronico: alefloresdel@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Código Nacional de Procedimientos Penales., Derecho, Derecho Penal, Diplomado, Examen General, Formación Judicial, Perspectiva de Género, Poder Judicial de la Federación, Sistema de Justicia Penal, UNAM
+Tags Propósito: Acceso a la justicia, Amparo, Brecha de desigualdad, Calidad de la justicia., Capacitación, Celeridad, Defensa gratuita, Derechos laborales, Dignidad, Eficacia, Honestidad, Igualdad, Igualdad de género, Justicia, Justicia social, Participación ciudadana, Personal jurisdiccional, Protección, Transformación judicial, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alejandra Flores Delgadillo es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con cédula profesional y especialidad en Derecho Penal por la Universidad Nacional Autónoma de México, complementada por diversos cursos y diplomados en áreas como Derecho Penal, el Nuevo Sistema de Justicia Penal y Perspectiva de Género.
+
+Su motivación para buscar el cargo se centra en construir una justicia digna para México, con un enfoque en la cercanía entre la ciudadanía y el sistema judicial, así como en la igualdad de acceso a la justicia, especialmente para las mujeres. Sus propuestas incluyen una escucha activa de las demandas de justicia, análisis profundo de las demandas de amparo con apoyo a los amparistas y un compromiso con el bienestar y la capacitación del personal del órgano jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.alejandrafloresdelgadillo.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alefloresdel/
+- https://x.com/alefloresdel
+- https://www.instagram.com/alefloresdel/
+- http://www.youtube.com/@alefloresdel
+- https://www.tiktok.com/@alefloresdel
+
+
+## Cursos
+
+- Especialidad en Derecho Penal, por la UNAM, titulada por examen general de conocimientos
+- ,Especialidad en Curso Básico de Formación y preparación de Secretarios del Poder Judicial de la Federación (2019)
+- ,Curso de Perspectiva de Género, impartido por la Escuela Federal de Formación Judicial (2023)
+- ,Diplomado Temas Selectos de Derecho, impartido por el entonces Instituto de la Judicatura Judicial (2020)
+- ,Diplomado El Nuevo Sistema de Justicia Penal a la Luz del Código Nacional de Procedimientos Penales (2015)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53156/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho y tengo Especialidad en Derecho Penal por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero construir una justicia digna del Pueblo de México, porque la juventud, madurez y honestidad trabajan conmigo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Renovación estructural, en la que los cambios sociales y culturales interactúen al materializarse la función jurisdiccional, imperando la celeridad en la resolución a los asuntos, siempre protegiendo a quienes se encuentran en situación de vulnerabilidad, pues el objetivo además de dar justicia de calidad, busca que también se dé en condiciones de igualdad, es decir, la justicia debe ser en todo momento pronta, expedita, oportuna, eficaz y sin costo alguno.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Igualdad no solo para quienes pidan justicia, también para las personas juzgadoras que resolverán los conflictos, es decir, romper la brecha de desigualdad histórica y estructural entre hombres y mujeres, razón por la que su implementación posibilita el acceso de las mujeres a ocupar cargos jurisdiccionales, como parte de las acciones para garantizar la igualdad al Pueblo de México.
+
+
+## Propuestas
+
+- Compromiso en escuchar a cada una de las personas que reclamen justicia, este cambio se logrará en el momento clave que está por vivir nuestro país para que en forma conjunta trabajen el pueblo y la justicia, pues creo fervientemente en que la cercanía que las instituciones brinden a la ciudadanía a través de su transformación, las vuelvan más más justas y más humanas; por que hoy creo en la gente, en mi pueblo, pues ellos quienes sostienen y dan sentido a lo que implica ser mexicano.
+- Analizar a profundidad las demandas de amparo, suplir la deficiencia de la queja al amparista, es decir, advertir qué fue lo que gobernado quiso decir o en su caso de qué acto es del que efectivamente se duele, pues no está a obligado a tener la experticia en la materia para expresar correctamente su dicho; sin embargo, en su momento se le brindará de oficio una defensa adecuada a través de las defensoras y los defensores de forma gratuita, a efecto de no vulnerar su adecuada defensa.
+- Compromiso con el personal del órgano jurisdiccional, respetando en todo momento sus derechos laborales y garantizando un ambiente sano de trabajo, asimismo, impulsándolos a estar en constante capacitación en la materia en que desarrollan sus conocimientos, ya que en nuestras manos está el futuro de las personas que acudan a solicitar un amparo; por ello cuentan con mi apoyo para acudir a cualquier tipo de capacitación curricular.
+

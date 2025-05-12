@@ -1,0 +1,73 @@
+Nombre Candidato: ANA BERTHA RUIZ SANDOVAL
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 3059158617
+Correo Electronico: ana.ruiz8136@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cursos de Actualización, Derecho, Derecho Constitucional, Derecho Penal, Diploma, Doctorado, Educación, Licenciatura, Maestría, Trayectoria Académica
+Tags Propósito: acceso a la justicia, asesoría legal, atención al ciudadano, celeridad, confianza, debido proceso., derechos fundamentales, eficiencia, imparcialidad, justicia, justicia integral, lenguaje claro, participación ciudadana, servidores públicos, sistema judicial, transparencia, trato personalizado
+
+
+## Descripción del Candidato 
+
+Ana Bertha Ruiz Sandoval es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Ejecutivo Federal en Zacatecas. Cuenta con estudios de Doctorado en Derecho Constitucional, además de Licenciatura y Maestría en Derecho. Su trayectoria profesional incluye experiencia como Juez Mixto, y su motivación para postularse al cargo es asegurar el acceso de los ciudadanos a un sistema judicial justo y eficaz.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia se centra en garantizar la imparcialidad, la protección de los derechos fundamentales y la eficiencia del sistema. Sus propuestas incluyen recuperar la confianza ciudadana a través de sentencias justas, la transparencia en las notificaciones y la accesibilidad del sistema judicial, incluyendo atención telefónica y un trato personalizado a las partes involucradas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100086260225570&mibextid=wwXIfr&mibextid=wwXIfr
+- https://www.instagram.com/blanc_a7171?igsh=NTc4MTIwNjQ2YQ3D3D&utm_source=qr
+- https://youtube.com/@anaruiz9835?si=el-HOnvY5U_WqwRM
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54374/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestría en Derecho Penal, Doctorado en Derecho Constitucional, Cursos de Actualización y Diploma
+
+
+## Motivo para buscar el Cargo Publico
+
+Con base a que fui juez mixto, mi compromiso es que los ciudadanos tengan acceso a un sistema judicial justo y eficaz.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+1. Garantizar que la justicia sea impartida de manera imparcial, de puertas abiertas para el gobernado, sin previa cita, 2. Proteger los derechos fundamentales de los ciudadanos, como la vida, la libertad, la seguridad personal, el patrimonio, entre otros, 3. Fomentar la confianza en el sistema judicial, garantizando que los ciudadanos se sientan seguros y protegidos por la ley. 4. Mejorar la eficiencia del sistema judicial, garantizando que los casos sean resueltos de manera rápida y justa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+1) Garantizar que la justicia sea impartida de manera oportuna porque cuando la justicia es lenta deja de ser justicia. 2) Que las sentencias se dicten con un lenguaje universal que hasta un niño pueda entenderlas evitando locuciones latinos o términos complejos 2) La justicia debe ser integral para que las partes no tengan necesidad de un segundo o tercer juicio. 3) Permitir a las partes los alegatos de oídas y darles asesoría completa incluso capacitarlos para que desde casa tengan acceso.
+
+
+## Propuestas
+
+- Recuperar la confianza de la ciudadanía mediante sentencias justas y eficaces que dejen a las partes satisfechas
+- Demostrar que ya se acabó el tiempo en el que se dictaban sentencias al mejor postor y para ello en cada notificación el actuario dejará una explicación por escrito de cada auto o sentencia, en el entendido de que si tienen alguna duda siempre habrá personal listo para atenderlos sin previa cita y a puertas abiertas
+- Todos los servidores públicos tendrán una línea telefónica para atender a la gente a distancia y ahorrarles tiempo para que no den su vuelta si no es necesario o para que se coordinen los actuarios con las partes para las notificaciones. Si se requiere de su asistencia para el desahogo de pruebas serán las partes bien recibidas y se les dará un trato personalizado. El hecho de que las partes lleguen con un algún retraso no será motivo de diferir la diligencia porque el pueblo es el jefe.
+

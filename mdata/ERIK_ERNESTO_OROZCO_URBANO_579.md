@@ -1,0 +1,79 @@
+Nombre Candidato: ERIK ERNESTO OROZCO URBANO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: erik.orozco.candidato@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Competencia Laboral, Comunicación, Derecho Constitucional, Derecho Penal, Derechos Humanos, Formación en Línea, Género, Igualdad, Juicio de Amparo., Justicia Penal Acusatoria, Liderazgo, Reforma Constitucional
+Tags Propósito: acceso a la justicia, amparo, confidencialidad., derechos humanos, eficiencia, empatía, equilibrio constitucional, inclusión, innovación, juicio de amparo, justicia, justicia cercana, lenguaje claro, medio ambiente, procedimiento, recursos jurídicos, responsabilidad, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Erik Ernesto Orozco Urbano es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose desde la Ciudad de México por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Constitucional y Derechos Humanos, con especialización en derecho penal y juicio de amparo, y ha realizado diversos cursos en temas de justicia penal, género, liderazgo y tecnología.
+
+Su motivación para buscar el cargo es hacer que la justicia sea más accesible y humana, enfocándose en la responsabilidad, el respeto a los derechos y el equilibrio constitucional. Sus propuestas principales incluyen acercar la justicia a la ciudadanía a través de un lenguaje claro, impulsar la innovación y tecnología en los procedimientos judiciales (como el expediente electrónico), y fortalecer el juicio de amparo como una vía efectiva de protección de derechos, eliminando trabas formales y buscando soluciones reales a los problemas en pugna.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18f1YPQDGw/?mibextid=wwXIfr
+- https://x.com/erneriko?s=21
+- https://www.instagram.com/erik.orozco.oficial?igsh=MWI0YmZieTk0eTJxcA3D3D&utm_source=qr
+- https://www.tiktok.com/@erik.orozco.oficial?_t=ZM-8v52Tyu8qPd&_r=1
+
+
+## Cursos
+
+- Diplomado sobre el nuevo sistema de justicia penal acusatorio en México desde la perspectiva constitucional, 2011
+- ,Nociones generales sobre la reforma constitucional en materia de amparo y su ley reglamentaria, 2012
+- ,Curso Género como herramienta para la igualdad
+- Quinta edición, 2023
+- ,Curso de Liderazgo y Comunicación, 2024
+- ,Certificación en el Estándar de Competencia Laboral EC0366 Desarrollo de cursos de formación en línea, por ICEMéxico
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54837/10
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho Constitucional y Derechos Humanos, especializado en derecho penal y juicio de amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero que la justicia sea útil, cercana y humana para quien más la necesita.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Juzgar no es solo aplicar leyes, es hacerlo con responsabilidad, sin favoritismos y con respeto a los derechos de todas las personas. La función jurisdiccional es clave para cuidar el equilibrio y asegurar que nadie esté por encima de la Constitución.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no debe ser lejana ni complicada. Impartir justicia es escuchar, entender y resolver con empatía. Es hacer que las personas sientan que su voz importa y que la ley sirve para protegerlas, no para alejarlas.
+
+
+## Propuestas
+
+- Justicia más cercana a la gente: Impulsar que los órganos jurisdiccionales comuniquen sus decisiones en lenguaje claro y accesible, para que la sociedad comprenda qué se resuelve y por qué. Esto fortalece la confianza en la justicia y reduce la distancia entre tribunales y ciudadanía.Trabajar por un sistema de justicia que escuche y atienda también a quienes no tienen recursos ni conocimientos jurídicos. La justicia debe ser incluyente, no un privilegio de quienes pueden pagarla o entenderla.
+- Innovación y tecnología: Continuar impulsando el uso de herramientas digitales, como el expediente electrónico y el juicio de amparo en línea, para agilizar los procedimientos y eliminar barreras que dificultan el acceso a la justicia. Dictar resoluciones cortas y bien argumentadas, adiós sentencias de puras transcripciones, la tecnología nos debe ayudar a cuidar recursos. Me comprometo con el medio ambiente, menos impresiones, solo en lo necesario.
+- Amparo real, no solo formal: Fortalecer el juicio de amparo como vía efectiva de protección de derechos, eliminando trabas formales que lo vuelven inaccesible o ineficaz para las personas que más lo necesitan. Las concesiones de amparo deben ser proclives a resolver el problema en pugna, y no para darle a las autoridades dos o más oportunidades para regular su acto. No reposiciones de procedimiento, únicamente cuando en realidad hayan trascendido las violaciones procesales.
+

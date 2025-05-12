@@ -1,0 +1,73 @@
+Nombre Candidato: EDGAR HUMBERTO MUÑOZ GRAJALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8120364951
+Correo Electronico: magdoedgar@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Convenios Internacionales, Derecho, Derechos Humanos, Doctorado, Estándares Internacionales, Foro Iberamericano, Género, Italia, Juicio de Amparo, Justicia de Género, Licenciatura., Perugia, Salamanca, Suprema Corte de Justicia, UNAM
+Tags Propósito: capacitación, derechos humanos, grupos vulnerables, imparcialidad., infraestructura, justicia, magistrado, necesidad social, personal, resolución de conflictos
+
+
+## Descripción del Candidato 
+
+Edgar Humberto Muñoz Grajales es un candidato a Magistrado de Tribunales Colegiados de Circuito en Coahuila, actualmente en funciones y con 25 años de experiencia en el Poder Judicial y 40 años de servicio. Cuenta con estudios de Doctorado en Derecho, realizados en la Universidad Autónoma, y una Licenciatura en Derecho de la Universidad Nacional Autónoma de México. Su trayectoria académica incluye cursos y seminarios en temas de derechos humanos, perspectiva de género y estándares internacionales, así como participación en foros en España e Italia.
+
+Su motivación para buscar la reelección se basa en su experiencia previa. Su visión de la función jurisdiccional se centra en la resolución de conflictos y la defensa de los derechos humanos, buscando una impartición de justicia pronta, completa e imparcial, con especial atención a los grupos vulnerables. Sus propuestas incluyen el aumento de infraestructura, la mejora de la capacitación y el incremento de personal para atender las necesidades sociales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/edgarmuñozgrajales
+- https://www.instagram.com/edgar_munozg
+- https://www.tiktok.com/juezdreed
+
+
+## Cursos
+
+- Seminario ¿La Impartición de Justicia con Perspectiva de Género: Convenciones Internacionales y su Aplicación¿,Cursos de Estándares Internacionales en Derechos Humanos, Equidad y Género,Diversos cursos en el Extranjero en Salamanca, Granada así como Perugia, Italia,Cuarto Foro Iberoamericano de Juristas de la Universidad de Salamanca en España,Conferencias Magistrales el Juicio de Amparo en materia Agraria de la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54085/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en la Universidad Nacional Autónoma de México, Doctorado en Derecho por la Universidad Autónoma
+
+
+## Motivo para buscar el Cargo Publico
+
+Ya lo tengo, soy magistrado en funciones, desde hace 25 años y 40 de servicio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Hacer justicia, resolver conflictos y defender derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Pronta, completa, imparcial con perspectiva de apoyar a grupos vulnerables.
+
+
+## Propuestas
+
+- Más infraestructura.
+- Mejor capacitación.
+- Más personal, acorde a la necesidad social.
+

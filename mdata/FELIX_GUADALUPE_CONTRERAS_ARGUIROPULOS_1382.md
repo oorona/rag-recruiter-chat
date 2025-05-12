@@ -1,0 +1,83 @@
+Nombre Candidato: FELIX GUADALUPE CONTRERAS ARGUIROPULOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8124443388
+Correo Electronico: fcontrerasarguiropulos@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Autor, Conciliación, Coordinador seminario, Derecho administrativo laboral, Derecho laboral, Evaluación, Investigador jurídico, Libros de derecho laboral., Litigación oral, Maestría, ORCID, Posgrado, Profesor universitario, UANL, Universidad de San Diego
+Tags Propósito: Acceso a la justicia, Asesoría legal., Audiencias virtuales, Claridad, Debido proceso, Derechos laborales, Desigualdad, Dignidad humana, Eficiencia, Escucha activa, Imparcialidad, Informalidad laboral, Justicia accesible, Justicia laboral, Lenguaje claro, Oralidad, Paz laboral, Sectores vulnerables, Seguridad jurídica, Tecnología, Tiempos procesales, Zonas rurales
+
+
+## Descripción del Candidato 
+
+Félix Guadalupe Contreras Arguirópulos es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal para el estado de Nuevo León. Cuenta con un doctorado y una trayectoria de 30 años como profesor e investigador en la UANL, con más de 10 libros publicados sobre derecho laboral.
+
+Su candidatura se basa en la convicción de hacer de la justicia laboral un derecho accesible, humano y eficaz. Sus propuestas centrales incluyen la reducción de tiempos procesales, el acceso a la justicia en zonas rurales y sectores vulnerables, y el uso de un lenguaje claro y comprensible en las resoluciones judiciales. Su visión para la función jurisdiccional se centra en la imparcialidad, el debido proceso y la escucha activa, buscando un equilibrio entre los derechos de trabajadores y empleadores.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18wsnBXwKw/
+- https://www.instagram.com/felix.contrerasarguiropulos?igsh=eWs4cXMxNnYxa3Bi
+- https://www.tiktok.com/@felix.g.contreras?_t=ZM-8v46F3nVyNz&_r=1
+- https://www.facebook.com/share/1AB6iwQuoH/
+
+
+## Cursos
+
+- Curso en litigación oral por la Universidad de San Diego, California
+- ,Investigador Jurídico con registro Orcid,Miembro de cuerpo académico derecho administrativo laboral U
+- A
+- N
+- L
+- ,Evaluador en concurso para ocupar cargo de conciliador en el Centro de Conciliación Local, Nuevo León,Coordinador de Seminario de Derecho laboral en la facultad de Derecho de la U
+- A
+- N
+- L
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52615/10
+
+
+## Trayectoria Academica
+
+- Profesor en UANL por 30 años, licenciatura y posgrado, coord
+- de maestría y autor de más de10 libros de derecho laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Con experiencia y convicción, quiero hacer de la justicia laboral un derecho accesible, humano y eficaz para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional exige más que técnica: requiere conciencia, responsabilidad social y respeto a la dignidad humana. El magistrado laboral debe ser garante de equilibrio entre derechos de las personas trabajadoras y la seguridad jurídica de quien emplea. Mi visión se basa en imparcialidad, claridad, debido proceso y escucha activa. La sentencia clara y sustentada, no solo resuelve: enseña, pacífica y fortalece la cultura jurídica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia laboral es responder a la realidad del trabajo: informalidad, desigualdad y distancia con la ley. Mi visión es un sistema accesible, ágil, conciliador y moderno, basado en oralidad, tecnología y buenas prácticas. Como formador del nuevo modelo, creo en una justicia que respete a la persona trabajadora y empleadora, que resuelva apegada a derecho, de forma clara y con eficacia. No es solo aplicar la ley: es restaurar confianza y construir paz laboral con dignidad.
+
+
+## Propuestas
+
+- Reducción efectiva de los tiempos procesales: La justicia tardía no es justicia. Para quien vive de su trabajo, patrón o trabajador, esperar años una resolución es perder salud, ingresos y estabilidad. Propongo un sistema ágil, con calendarios procesales y herramientas digitales, que garantice solución a juicios laborales rápidos, eficaces y sin incrementar desgaste emocional o económico.
+- Acceso real a la justicia en zonas rurales y sectores vulnerables: Campesinos, obreros, personas mayores o con discapacidad muchas veces no acceden a la justicia por falta de medios, información o apoyo. Propongo llevar la justicia laboral a todos, con audiencias virtuales, intérpretes, asesoría accesible y atención especializada.
+- Lenguaje claro en resoluciones judiciales: Una sentencia que nadie entiende no es justicia. Muchas personas trabajadoras o pequeñas empleadoras, reciben sus sentencias, sin saber qué ganaron, qué perdieron, o por qué; Una sentencia debe ser la Justicia ¿hablada en lenguaje del pueblo¿, sin perder técnica.
+

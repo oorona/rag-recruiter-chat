@@ -1,0 +1,75 @@
+Nombre Candidato: ELISEO RICARDO PATISHTAN LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9671043618
+Correo Electronico: eliseo199858@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación, Controversias, Defensa Fiscal, Derecho, Fiscalistas, Interpretación de la Ley., Oralidad, Universidad Autónoma de Chiapas
+Tags Propósito: Acceso a la justicia, Cercanía judicial, Chiapas, Cultura jurídica, Derechos humanos, Digitalización judicial, Eficiencia judicial, Impartición de justicia, Jurisdicción, Operadores de la ley, Paz y orden constitucional, Transparencia judicial.
+
+
+## Descripción del Candidato 
+
+Eliseo Ricardo Patishtan Lopez es candidato a Juez de Distrito en Chiapas, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura y cédula profesional, complementada por cursos en oralidad civil, derechos de la mujer, defensa fiscal y un taller sobre México a través de los jóvenes. Su motivación para el cargo es servir a Chiapas aplicando sus conocimientos jurídicos, considerando la función jurisdiccional como esencial para la protección de los derechos humanos y la impartición de justicia como un servicio a la nación.
+
+Entre sus propuestas destacan el acercamiento de las autoridades jurisdiccionales con las partes en los procesos judiciales, la promoción de una cultura de acceso a los órganos jurisdiccionales entre la población, y la transición a un sistema de presentación de documentos electrónicos en los procesos judiciales. Su perfil completo y curriculum vitae están disponibles en la página web del INE: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54643/11.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Eliseo Ricardo
+
+
+## Cursos
+
+- Taller: Capacitación en Oralidad Civil, impartido por el Instituto de Formación, Profesionalización y Carrera Judicial
+- ,Conferencia Los Derechos de la Mujer, realizado en la Facultad de Derecho de la Universidad Autónoma de Chiapas
+- ,Conferencia DEFENSA FISCAL Y SUS NOVEDADES, impartida por la Asociación Nacional de Fiscalistas A
+- C
+- ,Taller México a través de los jóvenes, realizado en la facultad de derecho de la Universidad Autónoma de Chiapas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54643/11
+
+
+## Trayectoria Academica
+
+- Es fascinante el estudio y la interpretación de la ley, es gratificante apoyar a las personas en sus controversias
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo servir al Estado de Chiapas poniendo a disposición de la sociedad los conocimientos jurídicos que poseo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es de vital importancia en un Estado de derecho como el nuestro, ya que a partir de ella es como se garantiza la prevalencia y la protección de los derechos humanos. Los operadores de la ley (Jueces y Tribunales del país) son los encargados de realizar esta importante función, aplicando la ley general a las controversias que surjan entre dos o más personas, de ahí la importancia de contar con operadores de la ley comprometidos con la función jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es servir a la nación por medio de la aplicación e interpretación de la ley a circunstancias problemáticas que se presentan entre dos o más personas y que sea resuelto de la manera más justa posible, ya que a partir de esto es como se logra restablecer la paz y el orden constitucional, que representa la expresión más alta de la voluntad popular.
+
+
+## Propuestas
+
+- Que las autoridades jurisdiccionales (Jueces, Juezas, magistrados y magistradas etc.) tengan mayor cercanía y contacto con las partes contendientes de un proceso judicial, ya que la mayoría de las diligencias y audiencias llevadas a cabo dentro del proceso judicial (excepto materia penal), son los secretarios y secretarias de acuerdos los encargados de presidirlas, remitiendo por escrito todo lo actuado a la autoridad jurisdiccional para que resuelva el asunto sometido a sus conocimientos.
+- Que se realicen por parte de los entes gubernamentales campañas que fomenten a la población la cultura de acudir ante los órganos jurisdiccionales a plantear sus controversias. De tal manera que la población se encuentre informada de los derechos que le asisten y se encuentre en aptitud de ejercerlos.
+- Que se sustituya la forma tradicional escrita de presentar los escritos y promociones dentro de un proceso judicial por la forma electrónica, ya que esta forma de tramitación y sustanciación resulta más cómodo y rápido tanto los servidores públicos del poder judicial de la federación como para los justiciables.
+

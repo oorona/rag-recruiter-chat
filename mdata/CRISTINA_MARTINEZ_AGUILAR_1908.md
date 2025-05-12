@@ -1,0 +1,75 @@
+Nombre Candidato: CRISTINA MARTINEZ AGUILAR
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6863490490
+Correo Electronico: crismartinez23@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: CEP., Crimen, Derecho Procesal Civil, Doctorado en Derecho Penal, Ejecución Penal, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Procesal Penal, Sistema Acusatorio Adversarial, Suprema Corte de Justicia de la Nación, UNAM, Victimología
+Tags Propósito: Accesibilidad, Administración de Justicia, Ciudadanía, Derechos Humanos, Eficacia, Grupos Vulnerables, Género, Inclusión, Integridad, Justicia, Laborales., Normas Internacionales, Personal Judicial, Respeto, Transparencia
+
+
+## Descripción del Candidato 
+
+Cristina Martínez Aguilar es candidata a Jueza/es de Distrito en Baja California, postulada por el Poder Ejecutivo Federal. Cuenta con un Doctorado en Derecho Penal y una trayectoria jurídica de 25 años, siendo egresada de la Licenciatura en Derecho de la UNAM y poseyendo una Maestría en Derecho Procesal Penal. Su formación incluye diplomados en áreas como Crimenología, Derecho Procesal Civil, el Juicio de Amparo y el Sistema Acusatorio Adversarial.
+
+Su motivación para buscar el cargo se basa en su preparación y deseo de contribuir al cambio en el sistema judicial. Su visión se centra en una función jurisdiccional transparente, accesible y protectora de los grupos vulnerables, con especial atención a la perspectiva de género. Sus propuestas incluyen la protección de los grupos vulnerables, una administración de justicia inclusiva y accesible, y un trato digno y respetuoso hacia el personal judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574719944985
+
+
+## Cursos
+
+- Diplomado en Criminología y Victimología
+- ,Diplomado en Derecho Procesal Civil
+- ,Diplomado en el Juicio de Amparo
+- ,Diplomado en el Sistema Acusatorio Adversarial
+- ,Seminario Ejecución penal 2018 ¿ Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53747/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho egresada de la UNAM Maestra en Derecho procesal Penal y Doctoranda en Derecho Penal CEP
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona preparada, cuento con una solida carrera jurídica de 25 años, es una satisfacción ser parte del cambio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional deberá ser transparente, accesible, cercana a las personas, juzgar protegiendo los grupos vulnerables y respetando los derechos Humanos; el personal es un engranaje de vital importancia, y los titulares de los órganos jurisdiccionales están obligados a respetar su integridad, su personalidad, con respeto y trabajo en equipo se logrará llegar a los fines de una administración de justicia integral.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Son tiempos de cambio, las personas tienen la oportunidad de tener acercamiento con los Jueces, magistrados, Ministros, los cuales deberán impartir justicia de manera incluyente, en total apego a los Derechos Humanos y a las normas Internacionales, de manera transparente, eficaz.
+
+
+## Propuestas
+
+- La protección de los grupos vulnerables, la inclusión como herramienta primordial como forma de administrar justicia.
+- Juzgar con perspectiva de género, justicia accesible, cercana a la ciudadanía, que las personas sean escuchadas, para una eficaz administración de justicia.
+- Trato digno al personal, sin distinción, respetando en todo momento sus derechos humanos y laborales.
+

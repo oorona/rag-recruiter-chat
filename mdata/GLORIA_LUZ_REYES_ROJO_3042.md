@@ -1,0 +1,74 @@
+Nombre Candidato: GLORIA LUZ REYES ROJO
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: 9985223694
+Correo Electronico: gloriareyesrojo@outlook.es
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Ciudad de México., Derecho Constitucional, Derecho Mercantil, Derecho Procesal Civil, Diplomado, España, Instituto de la Judicatura Federal, Maestría, Posgrado, UNAM, Universidad Alicante
+Tags Propósito: Acceso a la justicia, Autoridad moral, Confianza institucional, Derechos humanos, Equidad, Estado de derecho, Imparcialidad, Independencia, Justicia, Lenguaje claro, Objetividad, Operadores jurídicos, Orden público., Profesionalismo, Recursos judiciales, Resolución de conflictos, Sociedad, Transparencia
+
+
+## Descripción del Candidato 
+
+GLORIA LUZ REYES ROJO es candidata a Jueza de Distrito en Quintana Roo. Cuenta con maestría y cédula profesional, además de especializaciones en Derecho Constitucional y Argumentación Jurídica, incluyendo estudios en la UNAM y la Universidad de Alicante, España. Su motivación para buscar el cargo se basa en su compromiso con la justicia y el servicio a la sociedad.
+
+En su visión, la función jurisdiccional debe resolver conflictos manteniendo el orden público, mientras que la impartición de justicia requiere jueces con autoridad moral que garanticen acceso a una justicia imparcial y basada en la ley y los derechos humanos. Sus propuestas principales se centran en incrementar la confianza en las instituciones jurisdiccionales, emitir resoluciones en un lenguaje accesible para el público y facilitar el acceso a la justicia, buscando recursos humanos y materiales para lograrlo.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574590344789
+- https://www.instagram.com/gloriareyesrojo
+
+
+## Cursos
+
+- Especialidad en Derecho Constitucional por la UNAM,Máster en Argumentación Jurídica por la Universidad Alicante, España,Diplomado en Derecho Procesal Civil y Mercantil por el Instituto de la Judicatura Federal,Diplomado en Argumentación Jurídica por la Universidad de Alicante, España y Universidad Panamericana, Ciudad de México,Diplomado Fundamentos de Derecho Constitucional, por el entonces Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55301/11
+
+
+## Trayectoria Academica
+
+- Maestra y Espec
+- en Derecho Constitucional por la UNAM
+- Máster en Argumentación Jurídica Universidad de Alicante, España
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser Juez es mi elección de vida, es mi oportunidad de servir a la justicia y a la sociedad y me llena de satisfacción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El objetivo principal de la función jurisdiccional es resolver los conflictos de intereses entre las personas y los distintos órdenes de gobierno, a fin de mantener el orden público y social. Es una función fundamental para mantener un orden social justo y equitativo y una actividad fundamental para la operación de un Estado democrático de derecho, por lo que debe ejercerse con independencia, imparcialidad, objetividad, profesionalismo y transparencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es un derecho de los justiciables que la administración de justicia sea impartida por jueces con autoridad moral que garanticen una justicia accesible, pronta, completa, imparcial y previsible, basada en la letra o la interpretación jurídica de la ley y, a falta de ésta, en los principios generales del derecho, sin que se privilegie cualquier otro interés, pero sobre todo en el respeto a los derechos humanos.
+
+
+## Propuestas
+
+- Tomando en consideración que la función jurisdiccional es una actividad fundamental para la operación de un Estado democrático de derecho, resulta de suma importancia emprender acciones en la impartición de justicia que incrementen la confianza que la sociedad deposita en sus instituciones jurisdiccionales, a fin de que las conciba como espacios eficaces en la resolución imparcial de sus conflictos, ya que ello es tan importante y clave como el auténtico desempeño que estas instituciones tengan.
+- Cada día la sociedad busca estar informada, lo que la hace cuestionarse respecto de las determinaciones judiciales, por lo que resulta indispensable que los operadores jurídicos tengamos un acercamiento a la sociedad, sin perder la objetividad, independencia, imparcialidad, profesionalismo y transparencia que exige el cargo de juzgador, sino emitiendo resoluciones en un lenguaje que resulte de fácil entendimiento para el común de las personas que integran la sociedad en que vivimos.
+- Es necesario buscar los mecanismos que permitan que el acceso a la justicia sea fácil, accesible y cercano a la sociedad, lo que requiere no sólo la participación de los operadores jurídicos sino contar con los recursos humanos y materiales que permitan que ello sea posible.
+

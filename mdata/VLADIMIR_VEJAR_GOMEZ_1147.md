@@ -1,0 +1,79 @@
+Nombre Candidato: VLADIMIR VEJAR GOMEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5574180427
+Correo Electronico: vvg3tc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Constitucionalismo Transformador, Delitos Cibernéticos, Derecho Constitucional, Derecho Humanos, Derechos Fundamentales, Doctorado, Especialidad., Función Judicial, Género, Igualdad, Instituto Judicatura Federal, Justicia Estados Unidos, Maestría, OEA, Sistema Penal Acusatorio, Universidad Castilla la Mancha
+Tags Propósito: Administración de Justicia, Combate a la Corrupción, Derechos Humanos, Dignidad Humana, Diversidad Sexual, Estado de Derecho, Experiencia Judicial., Grupos Vulnerables, Género, Igualdad, Imparcialidad, Jurisprudencia, Justicia, Migrantes, Mujeres, Niñez, No Discriminación, Poder Judicial, Pueblos Indígenas, Sentencias Justas, Transparencia, Vigilancia Judicial, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Vladimir Vejar Gómez es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal. Cuenta con formación de Doctorado en Derecho Constitucional, además de una Maestría en Amparo y Derecho Humanos y Especialidad en Sistema Penal Acusatorio. Ha realizado diversos cursos de especialización en áreas como derechos fundamentales, delitos cibernéticos y perspectiva de género, tanto en México como en España y Estados Unidos.
+
+Su motivación para buscar el cargo es continuar sirviendo a la población mexicana protegiendo sus derechos humanos a través de sentencias justas. Su visión se centra en un sistema judicial imparcial, objetivo e inclusivo, especialmente en la protección de grupos vulnerables. Sus propuestas incluyen mantener altos estándares éticos, abordar la solución de conflictos de manera transformadora y consolidar sentencias basadas en la igualdad y la no discriminación, respaldado por más de diez años de experiencia como Juez y Magistrado.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EMacMjm3G/?mibextid=wwXlfr
+- https://x.com/vladimir_vejar?s=21&t=4Qh6_z_9HjMT7MGWEg-WtZg
+- https://www.instagram.com/vladimir_vejar/profilecard/?igsh=MTJhcDl2NWlvNmJobw==
+- https://youtube.com/@vladimirvejar3002?si=ksyVIyE6I5AyC1VI
+- https://www.tiktok.com/@vejargv?_t=ZM-8v6UdehEqLW&_r=1
+
+
+## Cursos
+
+- Curso Interpretación y Aplicación de los Derechos Fundamentales, por la Universidad de Castilla la Mancha, España,Delitos Cibernéticos, en la Secretaría General de la OEA con el departamento de Justicia de Estados Unidos,Género como Herramienta para la Igualdad, Independencia y Función Judicial
+- Instituto de la Judicatura Federal,Curso Especializado en Derecho Constitucional: El Constitucionalismo Transformador
+- Universidad de Castilla, España
+- ,Interpretación y Aplicación Judicial de los Derechos Fundamentales, en la Universidad de Castilla, la Mancha, España
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54742/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho Constitucional Maestría en Amparo y Derecho Humanos Especialidad en Sistema Penal Acusatorio
+
+
+## Motivo para buscar el Cargo Publico
+
+Para seguir sirviendo al pueblo de México, garantizando la protección de sus derechos humanos con sentencias justas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El cargo de Magistrado de Circuito es una de las más altas responsabilidades que conlleva garantizar verdaderamente la imparcialidad, objetividad, igualdad, conocimiento, cercanía, sensibilidad y profesionalismo ante las causas que históricamente han sido vulneradas, como los niños, las niñas, jóvenes, mujeres, personas con capacidades diferentes, comunidades y pueblos indígenas, comunidad LGBTIQ+, personas migrantes y víctimas de los generadores de violencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es clara: el 1 de junio, cuando los ciudadanos elijan a los jueces, lo harán con la certeza de que han seleccionado personas íntegras, estudiosas, humildes, con amor genuino por su trabajo, su familia y, sobre todo, por nuestra Patria. Así llegarán aquellos que rechacen la corrupción, los privilegios, los abusos y las perversidades, dando comienzo al nuevo y mejorado Poder Judicial, comprometido con el Pueblo de México, la justicia, la imparcialidad y el respeto absoluto a los derechos humanos.
+
+
+## Propuestas
+
+- La justicia es la primera virtud. Me comprometo a continuar conduciéndome con ética y una buena moral, con el bienestar de las personas y las instituciones del Estado, la transparencia, la verdad, la igualdad, la libertad, con los derechos humanos que no estén sujetos a regateos ni al cálculo de los intereses personales o de grupo.
+- La solución de conflictos será abordada con una visión transformadora del servicio de administración de justicia con puertas abiertas, mediante procesos ágiles, de forma eficiente, transparente, completa, incluyente, exhaustiva, profesional, objetiva, sustentada en el derecho nacional e internacional aplicable, imparcial, racional, argumentativa pero sobre todo con un sentido de justicia.
+- Impulsar la consolidación de sentencias y jurisprudencias, basadas en el derecho a la igualdad que eliminen los impactos diferenciados de las normas o los estereotipos de género. Emitidas contra toda discriminación que atente contra la dignidad humana y tenga por objeto anular o menoscabar los derechos humanos y las libertades de las personas. Por ello, es que me comprometo a ser su vigilante. Más de diez años de experiencia como Juez y Magistrado, me respaldan. ¡Seré un guardián de la justicia!
+

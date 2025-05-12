@@ -1,0 +1,75 @@
+Nombre Candidato: ULISES CAMACHO DAVILA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: 4448402451
+Correo Electronico: ucamachod@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Internacional del Trabajo, Derecho Laboral Procesal, Derecho del Trabajo, Formación de Secretarios., Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Maestría en Derecho Fiscal, PJF, Seguridad Social
+Tags Propósito: adultos mayores, difusión judicial, economía digital, enfoque social, función jurisdiccional, igualdad de derechos, justicia imparcial, leyes del trabajo, menores de edad, mujeres violentas, no discriminación, perspectiva de género, principio de realidad, protección de derechos., sentido social, servidores públicos, sociedad civil, trabajo remoto, verdad, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+ULISES CAMACHO DAVILA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal en San Luis Potosí. Cuenta con maestría en Derecho Fiscal y Derecho, así como con formación especializada en Derecho del Trabajo y Seguridad Social. Su motivación para buscar el cargo se basa en la convicción de que la administración de justicia imparcial es un derecho fundamental.
+
+Camacho Davila propone un enfoque social en la función jurisdiccional y la impartición de justicia, privilegiando la resolución de controversias que involucren a personas en situación de vulnerabilidad. Sus propuestas incluyen ampliar la difusión del trabajo del aparato judicial a través de la vinculación con la sociedad civil y las universidades, así como interpretar las leyes laborales considerando las nuevas realidades del mundo laboral, incluyendo la economía digital y el trabajo remoto.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://www.facebook.com/ulisescamachodavila
+- https://www.x.com/ulisescamachodavila
+- https://www.instagram.com/ulisescamachodavila
+- https://www.youtube.com/ulisescamachodavila
+- https://www.tiktok.com/ulisescamachodavila
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del PJF,Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Seguridad Social,Curso para generar espacios libres de violencia,Curso Derecho Laboral Procesal y Derecho Internacional del Trabajo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52518/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UASLP) Maestro en Derecho Fiscal (UVM SLP) Maestro en Derecho (UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+La administración de justicia imparcial es un derecho de todos y la obligación de toda persona juzgadora. Ese es mi fin
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional, a la vez que requiere de los mejores profesionistas, es preciso que se vea acompañada de sentido social. Como servidores públicos nuestra tarea es contribuir de la manera más eficaz a que el anhelo de justicia, en el aspecto que corresponda, sea verdaderamente efectivo; cuestión esta que, en mi opinión, no solo lograrán los más capacitados, sino también quienes resuelvan atendiendo al contexto en que se suscita el conflicto de que se trate.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe profundizar su enfoque social y la búsqueda de la verdad. Es cierto que, al resolver un conflicto, las personas juzgadoras deben atender solo a la problemática que se les presenta, sin introducir elementos ajenos; no obstante, el uso de herramientas que privilegien esos aspectos, tales como la perspectiva de género y el principio de realidad, contribuyen en grado mayor a que los usuarios del sistema judicial materialicen sus pretensiones de manera óptima y con mejores resultados
+
+
+## Propuestas
+
+- Solución de las distintas controversias privilegiando aquellas en las que los involucrados se vean inmersos en una situación de vulnerabilidad; esto es, menores de edad o incapaces, mujeres en contextos violentos, adultos mayores que padecen enfermedades graves y/o terminales, etcétera; ello, con la finalidad de contribuir a no agravar su estado vulnerable, lo que sin duda ocurre cuando la resolución de su conflicto tarda demasiado
+- Las tareas del aparato judicial no son del conocimiento exclusivo de quienes lo integramos; por ello, es preciso ampliar el espectro de difusión de lo que hacemos día a día en los juzgados y tribunales, a través de las relaciones que entablemos con la sociedad civil organizada, las universidades, los distintos foros de debate. Esto, claro, siempre destacando la importancia de la igualdad de derechos y la no discriminación.
+- Interpretar las leyes del trabajo desde una perspectiva que permita que se adapten a las nuevas realidades que imperan en el mundo laboral, incluyendo, por ejemplo, la economía digital y el trabajo remoto, asegurando que ninguna persona trabajadora pero tampoco ningún empleador, quede desprotegido en sus derechos respectivos.
+

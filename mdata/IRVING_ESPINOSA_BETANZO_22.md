@@ -1,0 +1,75 @@
+Nombre Candidato: IRVING ESPINOSA BETANZO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5573881541
+Correo Electronico: espinosabetanzoi@gmail.com
+Numero de lista en boleta: 41
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Archivística, Derecho Procesal Penal, Derecho de Amparo, Doctorado, Formación Jurídica., Gestión Pública, Juicio de Amparo, Juzgado Civil, Licenciatura en Derecho, Maestría en Derecho, Posgrado, Secretario de Acuerdos, UNAM
+Tags Propósito: acceso a la información, atención ciudadana, capacitación, confianza ciudadana, corrupción, cultura de derechos, derechos humanos, dignidad humana, formalismo, honestidad, imparcialidad, interés colectivo, justicia, lectura fácil, paz, progreso, pueblo., puertas abiertas, redes sociales, rendición de cuentas, transformación, transparencia
+
+
+## Descripción del Candidato 
+
+Irving Espinosa Betanzo es candidato a Ministra/o de la Suprema Corte de Justicia de la Nación, postulado por el Poder Ejecutivo Federal bajo el número 41 en la boleta. Cuenta con un Doctorado y una extensa formación académica en Derecho y Gestión Pública, complementada por diversos diplomados y cursos en áreas como el juicio de amparo y derecho procesal penal.
+
+Su motivación para buscar el cargo se centra en construir una Corte que separe el poder económico de la justicia e impartir justicia sin corrupción. Propone fortalecer la transparencia y rendición de cuentas dentro del Poder Judicial, promover una cultura de derechos humanos a través de la capacitación constante del personal, y facilitar el acceso a la justicia a través de una mayor cercanía con la ciudadanía y la simplificación de los procesos. Su visión para la función jurisdiccional se basa en juzgar con valores, honestidad y respeto a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/espinosabetanzo
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ATK9pg1hZ/?mibextid=wwXIfr
+- https://x.com/IrvingEspinosa_
+- https://www.instagram.com/irvingespinosabetanzo/
+- https://www.tiktok.com/@irving.espinosa.b
+
+
+## Cursos
+
+- Curso para formación de Secretario de Acuerdos de Juzgado Civil de Primera Instancia, la Facultad de Derecho, UNAM,Diplomado en el Juicio de Amparo, Facultad de Derecho, UNAM,,Diplomado en Derecho de Amparo, Universidad de Estudios de Posgrado en Derecho, 2002
+- ,Curso ¿Archivística General¿, Consejería Jurídica y de Servicios Legales del Gobierno del Distrito Federal, 2002,Diplomado en Derecho Procesal Penal, Universidad de Estudios de Posgrado en Derecho, 2001
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/236/6
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en Derecho, Especialista y Maestro en Gestión Pública, Doctorando en Administración Pública
+
+
+## Motivo para buscar el Cargo Publico
+
+Construir una Corte para todas y todos, que separe el poder económico de la justicia; impartir justicia sin corrupción
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Juzgar con valores, no con favores. Los principios deben guiar la actuación de las personas juzgadoras, por ello deben actuar con honestidad, combatir la corrupción y la impunidad; la función jurisdiccional debe ejercerse con pleno respeto a los derechos humanos y a la dignidad humana, con profundo amor al pueblo y libre de influencias, privilegios y discriminación, consciente de que las decisiones trascienden en la vida de las personas y de nuestro pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La paz y la tranquilidad son fruto de la justicia y el progreso sin justicia es retroceso; la justicia tiene que estar al servicio del pueblo, no del mejor postor. No llegar para solo ocupar cargos públicos, sino para transformar al país en beneficio de todas y todos, pero en principio de los más débiles. Privilegiar el interés colectivo sobre el interés particular. Recuperar la confianza de la ciudadanía en las personas juzgadoras pero principalmente en la justicia mexicana
+
+
+## Propuestas
+
+- En materia de combate a la corrupción, garantizar el acceso a la información, principalmente de forma proactiva, para generar confianza en las personas a través de la atención efectiva, sencilla, pronta y clara de sus cuestionamientos. Rendir cuentas a la ciudadanía a través de los informes de labores. Colaborar y facilitar la actividad de las autoridades encargadas de investigar y sancionar los actos de corrupción que cometa el personal del Poder Judicial, incluidos los de la propia Corte
+- En materia de cultura de derechos humanos, establecer un programa de capacitación constante y permanente en la materia para todo el personal, de tal suerte que no solo le sirva para realizar la labor jurisdiccional sino para que le sea útil en su vida cotidiana; en el caso del personal jurisdiccional, difundir y profundizar en el estudio y aplicación de los diversos protocolos de actuación para quienes imparten justicia a fin de que todas las personas accedan a la justicia
+- Cercanía con la ciudadanía. Las oficinas de la Corte deben ser de puertas abiertas, para que ello ocurra no solo basta dar una orden, es necesario capacitar a todo el personal en la atención al público, de tal forma que cualquier persona que acuda sea atendida con dignidad y respeto. Eliminar el formalismo sin que ello implique perder calidad en el estudio y resolución de casos, incorporando el formato de lectura fácil. Usar las redes sociales como vías de comunicación directa con las personas
+

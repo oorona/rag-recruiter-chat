@@ -1,0 +1,78 @@
+Nombre Candidato: JAVIER VALDEZ PERALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Confrencias, Curso Especializado, Derecho Fiscal, Derecho Procesal Penal, Diplomado, Feminicidio, Justicia Penal Acusatorio, Licenciatura en Derecho, Maestrías., Sentencias, Sistema Penal, Valoración de Prueba
+Tags Propósito: administración de justicia, capacitación, criterios jurídicos., eficiencia, imparcialidad, jurisdicción, profesionalismo, resolución de conflictos, servidores públicos, ética judicial
+
+
+## Descripción del Candidato 
+
+JAVIER VALDEZ PERALES es candidato a Magistratura de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal para el estado de Tamaulipas. Cuenta con treinta años de experiencia en la administración de justicia, respaldada por una Licenciatura y Maestrías en Derecho (Fiscal, Procesal Penal y Procesal Penal). Ha realizado diversos cursos especializados en temas como elaboración de sentencias, el Nuevo Sistema de Justicia Penal Acusatorio y valoración de pruebas, incluyendo estudios sobre femicidio.
+
+Su visión de la función jurisdiccional se centra en la aplicación de criterios jurídicos para la resolución de conflictos. Propone la capacitación constante de los servidores públicos del sistema judicial, así como la implementación de métodos para agilizar la resolución de casos mediante la identificación de temas afines. Su trayectoria y formación se detallan en su Curriculum Vitae disponible en el sitio web del INE: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55099/10.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JavierValdezPerales
+- https://www.instagram.com/javiervaldezperales
+- https://www.tiktok.com/@javiervaldez_p
+
+
+## Cursos
+
+- Programa Nacional Como Elaborar Mejores Sentencias, Ciclo de Conferencias
+- ,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Curso especializado para Jueces: La valoración de la Prueba
+- Prueba de Hechos en el Proceso Penal
+- ,Taller ¿Argumentación Jurídica para Jueces¿
+- ,Curso ¿El Feminicidio y sus expectativas frente al Sistema Penal Acusatorio en México¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55099/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho; Maestrías en Derecho Fiscal, Derecho Procesal Penal y en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+A la fecha cuento con treinta años realizando actividades propias de la administración de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La jurisdicción como mínimo, puede referirse al poder que posee una determinada autoridad, al territorio o demarcación territorial sobre la que se ejerce ese poder, o a la potestad de enjuiciamiento y decisión de determinados conflictos sociales con arreglo a criterios jurídicos. Pero el sentido genuino de jurisdicción es el poder para decidir controversias según criterios jurídicos que sirven de fundamento para la decisión.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los servidores públicos que tienen la honrosa encomienda de administrar justicia, innegablemente deben ajustar su proceder y actuación a los principios de justicia, imparcialidad, libertad, veracidad, honestidad, lealtad, prudencia, objetividad, tolerancia, profesionalismo, sensibilidad y cordialidad; cuenta habida que esos postulados norman la conducta ética de los juzgadores en el desempeño de su función de administrar justicia.
+
+
+## Propuestas
+
+- Capacitación constante de los servidores públicos que conforman los tribunales donde se imparte justicia.
+- Implementar métodos y herramientas para evitar soluciones tardías de los asuntos, pretensión que se puede lograr mediante la resolución de asuntos que cuenten con temas afines.
+- No proporcionó
+

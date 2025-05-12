@@ -1,0 +1,83 @@
+Nombre Candidato: GENARO GOMEZ GOMEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9932053891
+Correo Electronico: genaroggmz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho del Trabajo, Derechos Humanos, Doctorado en Derecho, Formación Judicial., Juicio de Amparo, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Resolución de Conflictos, Seguridad Social, Suprema Corte de Justicia
+Tags Propósito: Justicia laboral, acceso a la justicia, arbitraje, capacitación judicial, conciliación, derechos humanos, derechos laborales, digitalización, eficiencia, gestión de casos, igualdad, imparcialidad, justicia restaurativa, mecanismos alternativos, mediación, no discriminación, paz laboral, resolución de conflictos, resolución pacífica., tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+GENARO GOMEZ GOMEZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose a través del Poder Legislativo Federal. Cuenta con un Doctorado en Derecho y una trayectoria académica enfocada en resolución de conflictos y derecho del trabajo, complementada con diversos diplomados en derechos humanos, juicio de amparo y seguridad social.
+
+Su motivación para buscar el cargo es servir a la comunidad y proteger los derechos de las personas, particularmente en el ámbito laboral. Su visión se centra en una justicia laboral accesible, eficiente y efectiva, con énfasis en la protección de los derechos de los trabajadores y la promoción de la resolución pacífica de conflictos. Sus propuestas incluyen la capacitación continua de jueces, la implementación de tecnologías avanzadas en la gestión de casos y el fomento de la justicia restaurativa y los mecanismos alternativos de resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19Mnb4tn8W/
+- https://x.com/genaro_gomezg?t=q6H_a9afuViidGnVNuzq7g&s=09
+- https://www.instagram.com/villagomezdelsur?igsh=MXg5YTI2dXpvYnY2cg==
+- https://youtube.com/shorts/a52HOR_lvb4?si=SedLJ91ZPn9H_Ka2
+- https://www.tiktok.com/@g_genarohotmail.c?_t=ZM-8uzOavHtK21&_r=1
+
+
+## Cursos
+
+- DIPLOMADO SOBRE DERECHOS HUMANOS: APROXIMACIONES PARA SU DEFENSA, IMP
+- LA SUPREMA CORTE DE JUSTICIA DE LA NACION, 2024,DIPLOMADO SOBRE JUICIO DE AMPARO
+- EDICION 2023, IMP
+- LA SUPREMA CORTE DE JUSTICIA DE LA NACION
+- ,DIPLOMADO LA SUPREMA CORTE Y LOS DERECHOS HUMANOS, IMP
+- LA SUPREMA CORTE DE JUSTICIA DE LA NACION, 2021,ESPECIALIDAD EN DERECHO DEL TRABAJO Y JUSTICIA LABORAL, IMP
+- ESCUELA FEDERAL DE FORMACIÓN JUDICIAL, 2021,,DIPLOMADO DE SEGURIDAD SOCIAL, IMP
+- ESCUELA FEDERAL DE FORMACIÓN JUDICIAL, 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53430/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Maestro, Doctor en Derecho, con especializaciones en resolución de conflictos y derecho del trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la comunidad, resolver los conflictos laborales y protección de los derechos de todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Proporcionar una justicia laboral que sea accesible, eficiente y efectiva para todos los actores involucrados en el ámbito laboral, garantizar la protección de los derechos laborales de las personas trabajadoras; promover la equidad y la justicia en el ámbito laboral, fomentar la paz laboral y la resolución pacífica de conflictos, a través de la mediación, la conciliación y la arbitraje, implementar sistemas de gestión de casos y tecnologías de la información para agilizar los procesos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar la imparcialidad y transparencia en la toma de decisiones, para que todas las partes involucradas puedan confiar en el sistema de justicia; tratar a todas las personas que interactúan con el sistema de justicia con respeto y dignidad, sin importar su origen, género, raza, religión o condición social; asegurar que las personas sean tratadas de manera igualitaria ante la ley, sin discriminación ni favoritismo e implementar medidas para mejorar la eficiencia del sistema de justicia.
+
+
+## Propuestas
+
+- 1.	Capacitación continua y evaluación del desempeño de jueces y funcionarios judiciales: Establecer programas de formación continua en derechos humanos, nuevas tecnologías, ética judicial y gestión de procesos judiciales. Además, implementar un sistema de evaluación periódica del desempeño para asegurar que los actores judiciales mantengan elevados estándares de imparcialidad, eficiencia y profesionalismo.
+- 2.	Implementación de tecnología avanzada: Adoptar plataformas digitales para la gestión de casos, audiencias virtuales y sistemas de seguimiento en línea, lo cual aceleraría los procedimientos judiciales y los haría más transparentes y accesibles. La digitalización reduciría la burocracia, optimizaría los recursos y mejoraría el acceso a la justicia, particularmente en áreas rurales o de difícil acceso.
+- 3.	Fomento de la justicia restaurativa y los mecanismos alternativos de resolución de conflictos: Promover el uso de la mediación, conciliación y arbitraje como alternativas eficaces para resolver disputas fuera de los tribunales. Estos métodos no solo permiten resolver disputas de manera más rápida y menos costosa, sino que también favorecen la rehabilitación de las relaciones entre las partes involucradas, reduciendo la carga sobre los tribunales y fomentando la cultura de resolución pacífica.
+

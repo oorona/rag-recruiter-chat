@@ -1,0 +1,74 @@
+Nombre Candidato: OCTAVIO ENRIQUE CASTELLANOS RAMOS
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: octavio.castellanos@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Comunicación, Control de Convencionalidad, Derechos Humanos, Formación Judicial, Instituto Mexicano de la Propiedad Industrial., Licenciatura en Derecho, Liderazgo, Oratoria, Propiedad Industrial, Secretaría de Economía, Solución de Conflictos, Universidad Interamericana
+Tags Propósito: Acceso a la justicia, Desventaja socioeconómica, Divulgación, Equidad, Grupos vulnerables, Imparcialidad, Justicia gratuita, Justicia social, Poder judicial, Protección de derechos, Resolución de conflictos, Servicio público., Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+OCTAVIO ENRIQUE CASTILLANOS RAMOS es candidato a Jueces/as de Distrito en Chiapas, postulando por el Poder Legislativo Federal. Es Licenciado en Derecho, egresado de la Universidad Interamericana para el Desarrollo Campus Tapachula (2012), y cuenta con diversos cursos en áreas como propiedad industrial, oratoria, mediación y derechos humanos.
+
+Su motivación para buscar el cargo es contribuir a un Poder Judicial Federal más cercano a la gente. Su visión se centra en una función jurisdiccional y una impartición de justicia que atiendan las necesidades de las personas, especialmente aquellas en situación de vulnerabilidad socioeconómica, buscando un equilibrio de fuerzas entre ciudadanos y grupos poderosos. Sus propuestas incluyen implementar un protocolo para juzgar casos de personas en desventaja socioeconómica y acercar a las personas juzgadoras a la ciudadanía a través de la divulgación de sus actividades.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574178556888
+
+
+## Cursos
+
+- Curso Interuniversitario de Propiedad Industrial, Secretaría de Economía e Instituto Mexicano de la Propiedad Industrial,Curso de Oratoria, Comunicación y Liderazgo, Escuela Libre de Derecho
+- ,Curso Medios Alternativos de Solución de Conflictos, Instituto de Formación Judicial del Consejo de la Judicatura Chis
+- ,Curso La protección Jurisdiccional de los Derechos Humanos y el Control de Convencionalidad, IFJ del CJ Edo
+- Chiapas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53074/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Licenciatura en Derecho en la Universidad Interamericana para el Desarrollo Campus Tapachula, 2012
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir en la construcción de un nuevo Poder Judicial Federal más cercano a la gente a través del servicio público.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional, siendo la piedra angular del sistema de impartición de justicia en México, debe buscar atender de una manera más efectiva las verdaderas necesidades de las personas, en especial de aquellas personas que por su contexto socioeconómico desconocen sus derechos, carecen de asesoría, tienen miedo de acercarse a una autoridad jurisdiccional o prefieren no instar un proceso bajo un entorno desfavorable.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no sólo debe regirse bajo principios legales, éticos o morales. También debe obedecer a un criterio de equidad social, es decir, debe buscar el equilibrio de fuerzas entre los ciudadanos comunes y los grandes poderes fácticos, lo cual se lograría otorgando una protección mayor a aquellos que por su contexto socioeconómico desfavorable se encuentran en desventaja frente a los personajes económica, política y socialmente más encumbrados.
+
+
+## Propuestas
+
+- Implementar un protocolo para juzgar casos que involucren a personas con estatus socioeconómico desfavorable, lo cual englobaría no sólo a la mayoría de personas en situación de vulnerabilidad por razones de raza, sexo, orientación sexual, edad, nacionalidad, movilidad, discapacidad y otros, sino también a muchas otras personas que sin caer en estos últimos supuestos también ven vulnerado su derecho fundamental de acceder a una justicia pronta, completa, imparcial y GRATUITA.
+- Buscar herramientas que acerquen a las personas juzgadoras con los ciudadanos, a través de la divulgación de sus actividades y especialmente del sentido de sus resoluciones y sus alcances, sin detrimento de la protección de datos personales que se encuentren en su poder y que deban reservarse conforme a la legislación aplicable.
+- No proporcionó
+

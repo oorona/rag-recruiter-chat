@@ -1,0 +1,77 @@
+Nombre Candidato: JOSE ENRIQUE BLANCO FERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 8711136781
+Correo Electronico: joseblancofdz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Convenionalidad, Derecho, Formación Judicial, Género, Instituto de la Judicatura Federal, Juicio de Amparo, Litigio Estratégico Internacional, Materia Mercantil, Razonamiento Probatorio, Secretarios, Titulación.
+Tags Propósito: Accesibilidad, Amparo Laboral, Autoridades Laborales., Capacitación, Constitución, Corrupción, Derechos Humanos, Diversidad, Equidad, Experiencia, Igualdad, Imparcialidad, Inclusión, Justicia, Justicia Social, Oportunidades, Poder Judicial Federal, Protección de Derechos, Sentido Humanista, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Enrique Blanco Fernandez es candidato a Juez de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con una Maestría en Litigio Estratégico Internacional (en proceso de titulación) y una trayectoria de más de diez años en el Poder Judicial Federal (PJF), evidenciada por su participación en diversos cursos de formación en áreas como interpretación conforme, derecho mercantil, perspectiva de género y razonamiento probatorio. 
+
+Su motivación para buscar el cargo es garantizar una real impartición de justicia. Propone acercar la justicia a la ciudadanía a través de un trabajo transparente y accesible, mejorar el sistema de justicia con base en su conocimiento de sus áreas de oportunidad, promover la inclusión y diversidad en el PJF, y dictar sentencias con estricto apego a la Constitución y los derechos humanos, combatiendo la corrupción. Busca que la función jurisdiccional esté más cerca del pueblo de México, priorizando la igualdad, equidad y un sentido humanista en su labor.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BCsGMgWdy/?mibextid=wwXIfr
+- https://www.instagram.com/abogadosbf?igsh=MThmbGNmYWUzZjhqOA3D3D&utm_source=qr
+- https://www.tiktok.com/@bf.abogados?_t=ZM-8v6TLdKGCcp&_r=1
+
+
+## Cursos
+
+- CURSO DE INTERPRETACIÓN CONFORME Y CONTROL DE CONVENCIONALIDAD, IMPARTIDO POR EL INSTITUTO DE LA JUDICATURA FEDERAL,CURSO DE FORMACIÓN Y PREPARACIÓN PARA SECRETARIOS, IMPARTIDO POR EL INSTITUTO DE LA JUDICATURA FEDERAL
+- ,CURSO LA PERSPECTIVA DE GÉNERO Y EL JUICIO DE AMPARO
+- ,JORNADAS DE ACTUALIZACIÓN EN MATERIA MERCANTIL, IMPARTIDO POR EL INSTITUTO DE LA JUDICATURA FEDERAL
+- ,CURSO EL RAZONAMIENTO PROBATORIO EN LAS PRUEBAS PERSONALES
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52280/11
+
+
+## Trayectoria Academica
+
+- Licenado en Derecho
+- Maestro en Litigio Estratégico Internacional (en trámite de titulación)
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo que la gente que toque las puertas del Poder Judicial Federal, obtenga una real impartación de Justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Por mas de diez años he trabajando en el PJF y conozco sus bondades y áreas de oportunidad, por ello, sé que la función jurisdiccional puede estar aún mas cerca del pueblo de México; ahora, como Juez Federal de Amparo Laboral actuaré siempre conforme a ley buscando el respeto de los derechos de todos con un sentido humanista. La igualdad y la equidad, serán la base de los derechos que se protejan en mi encargo, juzgando siempre de forma independiente e imparcial, sin estereotipos ni prejuicios.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no debe impartirse por personas improvisadas, por lo que es forzoso conocer a fondo el método de operación y trabajo del Sistema de Justicia, además, la madurez y la experiencia son indispensables, se requiere de arduo trabajo, preparación y sentido humano para dictar una sentencia; asimismo, es necesario tener presente que detrás de cada expediente existe un ser humano que clama por justicia, y pone en mis manos la confianza para obtenerla.
+
+
+## Propuestas
+
+- Trabajar a puertas abiertas para todo el pueblo, con el fin de que conozcan y obtengan justicia transparente y accesible; ésto, también con la finalidad de acercar la justicia a los Mexicanos. Además, como conozco plenamente las áreas de oportunidad del Sistema de Justicia, haré todas las mejoras que se encuentren a mi alcance para que la gente tenga justicia pronta respecto a sus necesidades, con sentencias que toda persona pueda comprender.
+- Voy a promover la inclusión y diversidad en el acceso a empleos y capacitaciones dentro del Poder Judicial Federal. Pues cualquier persona interesada, sin importar si proviene de una escuela pública o privada, o su nivel socioeconómico, tendrá la misma oportunidad de formar parte de nuestra institución. Fomentaré programas de capacitación que aseguren un desarrollo equitativo y que valoren el esfuerzo de cada individuo. La justicia social comienza con la creación de oportunidades para todos.
+- Me comprometo a dictar todas mis sentencias de amparo con estricto apego a la Constitución y a los derechos humanos, asegurando que las autoridades laborales y sociales respeten los derechos de cada persona. Nadie está por encima de la ley, y a través del amparo combatiré enérgicamente la corrupción para garantizar que la justicia llegue a todos los mexicanos.
+

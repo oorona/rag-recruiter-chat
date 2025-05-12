@@ -1,0 +1,79 @@
+Nombre Candidato: BIANCA CRISTAL ZAVALA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: biancazavalahdez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Curso, DDHH, Derecho Civil, Derechos Humanos, Especialidad., Formación Judicial, Función Judicial, Género, Igualdad, Justicia Laboral, Licenciatura, Maestría, Reforma Laboral, Seguridad Social, Seminario
+Tags Propósito: Accesibilidad, Autonomía Judicial., Celeridad, Control Ciudadano, Datos Abiertos, Derechos Fundamentales, Derechos Laborales, Dignidad, Evaluación Ciudadana, Género, Imparcialidad, Impunidad, Independencia Judicial, Integridad, Justicia, Legitimidad, Lenguaje Claro, Sensibilidad Social, Transparencia
+
+
+## Descripción del Candidato 
+
+Bianca Cristal Zavala Hernandez es candidata a Jueces/es de Distrito en San Luis Potosí, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Civil y formación especializada en Justicia Laboral, Derechos Humanos, género y función judicial. 
+
+Su motivación para buscar el cargo se centra en contribuir a una justicia imparcial, accesible y humana, con perspectiva de género y enfoque en derechos laborales. Sus propuestas incluyen el uso de lenguaje claro en las resoluciones judiciales, la agilización de juicios con control ciudadano del desempeño y la implementación de mecanismos de evaluación ciudadana que respeten la autonomía judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19Wmdc5Tw6/?mibextid=wwXIfr
+- https://x.com/biiancazavala?s=11&t=iBdsJioE1sF4j85RCDf4UA
+- https://www.instagram.com/bianzavala?igsh=MXU0ZTZzbTkydmdyOA3D3D&utm_source=qr
+- https://www.tiktok.com/@biancazavalah?_t=ZM-8v1TDcInYXP&_r=1
+
+
+## Cursos
+
+- Especialidad en Reforma en materia de Justicia Laboral Escuela Federal de Formación Judicial, 2021
+- Cedula Profesional,Curso de Seguridad Social Escuela Federal de Formación Judicial, 2022
+- ,Jornadas de Sensibilización sobre la Reforma en materia de Justicia Laboral Escuela Federal de Formación Judicial, 2021,Seminario, El nuevo sistema de justicia laboral, Unidad de Implementación de la Reforma en Materia de Justicia Laboral,Curso, Género como herramienta para la igualdad, Séptima edición, 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54756/11
+
+
+## Trayectoria Academica
+
+- Lic en Derecho especialmente en Justicia Laboral
+- Maestría en Derecho Civil
+- Formación en DDHH género y función judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a una justicia imparcial, accesible y humana, con perspectiva de género y enfoque en derechos laborales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con independencia, imparcialidad y sensibilidad social. Requiere un enfoque técnico riguroso, con atención al contexto humano de cada conflicto, privilegiando la verdad, la dignidad y los derechos fundamentales. Impartir justicia es una vocación de servicio, no de poder.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe acercarse a la ciudadanía, dejar de ser un privilegio inalcanzable y convertirse en un derecho efectivo. Debe ser transparente, expedita, con lenguaje claro, perspectiva de género y libre de corrupción. El sistema judicial debe recuperar su legitimidad a través de la integridad de sus juzgadoras y juzgadores.
+
+
+## Propuestas
+
+- Lenguaje claro en resoluciones judiciales. Impulsar el uso de lenguaje ciudadano en las sentencias y resoluciones judiciales, eliminando tecnicismos innecesarios, para que las personas comprendan plenamente sus derechos, los alcances de los fallos y las obligaciones derivadas. La justicia debe ser accesible no sólo en el fondo, sino también en la forma.
+- Agilización de juicios y control ciudadano del desempeño. Establecer metas obligatorias de tiempo máximo para la resolución de juicios, con seguimiento público del cumplimiento mediante datos abiertos. Esto permitiría fomentar la celeridad, reducir la impunidad y recuperar la confianza ciudadana en el Poder Judicial.
+- Evaluación ciudadana con respeto a la autonomía judicial. Promover mecanismos de evaluación ciudadana sobre la calidad del servicio judicial, sin invadir la función jurisdiccional. Incluir encuestas de percepción, espacios de retroalimentación y observatorios ciudadanos, asegurando transparencia sin afectar la independencia judicial.
+

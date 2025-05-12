@@ -1,0 +1,74 @@
+Nombre Candidato: ENRIQUE ROMANO BARRAGAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 5544811206
+Correo Electronico: enrique2788@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Bioética, Derecho Sanitario, Derechos Humanos, Escuela Libre de Derecho, Igualdad de Género, Juicio de Amparo, PJF, Secretario Proyectista., Sistema Penal Acusatorio, Violencia
+Tags Propósito: Estado de Derecho, acceso a la justicia, celeridad, confianza, corrupción, derechos humanos, eficiencia, función jurisdiccional, honestidad, imparcialidad, jueces, justicia, justicia accesible, justicia equitativa., magistrados, protección de derechos, resolución de conflictos, responsabilidad, transformación social, transparencia
+
+
+## Descripción del Candidato 
+
+ENRIQUE ROMANO BARRAGAN es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal. Abogado por la Escuela Libre de Derecho con Maestría en Derecho Sanitario y Bioética, cuenta con experiencia como Secretario Proyectista del Poder Judicial de la Federación. Su motivación para buscar el cargo se centra en su pasión por la impartición de justicia y su deseo de contribuir a un México más justo.
+
+Romano Barragán propone transformar la función jurisdiccional para que sea más cercana a la población, enfocándose en la protección de los derechos humanos y el servicio a los intereses generales. Sus propuestas incluyen recuperar la esencia de la justicia como un elemento de transformación social, garantizar la honestidad e incorruptibilidad de los juzgadores, y simplificar los procedimientos para lograr soluciones claras y rápidas para los ciudadanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15iaBPn7xY/?mibextid=wwXIfr
+- https://www.x.com/EnriqueRomano
+- https://www.instagram.com/enriqueromanob
+
+
+## Cursos
+
+- Diplomado de Juicio de Amparo,Curso General de Derechos Humanos,Diplomado en Sistema Penal Acusatorio,Curso Género como Herramienta para la Igualdad,Curso para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54731/10
+
+
+## Trayectoria Academica
+
+- Abogado por la Escuela Libre de Derecho y Máster en Derecho Sanitario y Bioética
+- Secretario Proyectista del PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Me apasiona la impartición de justicia. Quiero contribuir con mayor responsabilidad para lograr un México más justo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional federal en Juzgados de Distrito y Tribunales Colegiados se encarga de proteger y garantizar la protección de los derechos humanos de las personas cuando las demás autoridades fallan en el cumplimiento de esa obligación. Esta alta responsabilidad debe ser el principio que rija la función de los jueces y magistrados, quienes se deben a los gobernados y no a intereses políticos, económicos o particulares.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Transformar la impartición de justicia para que sea más cercana a la población, con personas capaces, honestas, comprometidas y empáticas que entiendan que los expedientes no son solo un número, sino que detrás de cada uno hay personas y problemas reales, cuya resolución tiene un impacto trascendental en sus vidas. Por tanto, la impartición de justicia exige un estudio profundo y reflexivo de cada asunto con sus particularidades, que permita llegar a la solución más justa y equitativa.
+
+
+## Propuestas
+
+- La función jurisdiccional debe recuperar su esencia, que es la de servir y responder a los intereses generales de la población y que sirva como un elemento de transformación social para la consolidación del Estado de Derecho, que cumpla con el anhelo de justicia de la sociedad y recupere la confianza de la población en los juzgadores. Los juzgadores son los garantes de las conquistas que el pueblo ha conseguido a través de la historia, reconocidas en la Constitución.
+- Es indispensable que los juzgadores sean personas honestas e incorruptibles, que no usen el cargo para su beneficio personal y de sus allegados, sino para impulsar el reconocimiento y protección de los derechos humanos de la población, estableciendo límites claros de respeto por parte de las autoridades a través de sus sentencias, que legitimen su actuar. La justicia debe ser accesible para todos y los juzgadores dispuestos a escuchar a las personas.
+- El empleo excesivo y abuso de formalismos y tecnicismos son un impedimento para la impartición de justicia, que genera altos costos a los gobernados y abona a un sentimiento de insatisfacción y desconfianza en el Poder Judicial de la Federación. Se debe privilegiar la solución de fondo de los asuntos, de la manera más clara y rápida posible, porque los gobernados acuden a los órganos jurisdiccionales como última instancia para ser escuchados y encontrar una solución a sus conflictos.
+

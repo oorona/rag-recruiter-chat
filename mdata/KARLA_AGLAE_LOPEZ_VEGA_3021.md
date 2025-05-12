@@ -1,0 +1,73 @@
+Nombre Candidato: KARLA AGLAE LOPEZ VEGA
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: juezakarla.aglae@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CJF, Derecho Laboral, Derechos Humanos, Discapacidad, Formación Judicial, Grupos Vulnerables, Género, Imparcialidad, Incorruptible, Infancias, Juicio de Amparo, Justicia Laboral, Liderazgo, Profesionalismo, Reforma en Justicia Laboral., Seguridad Social
+Tags Propósito: Adultos mayores, Aplicación del derecho, Asesoría gratuita, Derechos humanos, Discapacidad, Eficiencia judicial, Empatía, Formato simple, Honestidad, Imparcialidad, Justicia accesible, Justicia laboral, Lenguaje claro, Menores de edad, Protección de derechos., Rapidez judicial, Resolución de conflictos, Sentencias claras, Simplificación legal, Transparencia, Vocación de servicio, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Karla Aglae Lopez Vega es candidata a Jueza/es de Distrito en Querétaro, postulándose a través del Poder Legislativo Federal. Cuenta con maestría y cédula profesional, además de una trayectoria de más de 22 años en Derecho Laboral. Su motivación para el cargo público se basa en su vocación de servicio y capacidad para resolver conflictos con un enfoque humano y empático.
+
+Su visión de la función jurisdiccional se centra en la cercanía con quienes buscan justicia, la imparcialidad y el acceso total a la misma, con especial atención a grupos vulnerables. Propone la implementación de asesoría legal gratuita en casos no complejos, sentencias en lenguaje claro y sencillo, y la agilización de los procesos judiciales para que no excedan los seis meses, con emisión de sentencias en un plazo máximo de cinco días después de la audiencia.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/juezakarla.aglae?igsh=NnBtd2UxbmFlMGs2&utm_source=qr
+- https://www.tiktok.com/@karla_aglae?_t=ZM-8v5eiYgYzRt&_r=1
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo y Derechos Humanos, impartido por la Escuela Federal de Formación Judicial CJF,Diplomado en Seguridad Social, impartido por la EFFJ y Unidad de Implementación de la Reforma en Justicia Laboral,Espacialidad en el Nuevo Sistema de Justicia Laboral, impartido por la Escuela Federal de Formación Judicial CJF,Curso de habilidades y formación de Liderazgo, Escuela Federal de Formación Judicial,Cursos sobre impartición de Justicia con Perspectiva de Género, Infancias, Discapacidad y Grupos Vulnerables
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53821/11
+
+
+## Trayectoria Academica
+
+- Con experiencia en el Derecho Laboral de mas de 22 años, Siempre de forma imparcial, profesional e incorruptible
+
+
+## Motivo para buscar el Cargo Publico
+
+He demostrado tener vocación de servicio, con capacidad de resolver conflictos de forma humana y empática.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Cercanía y contacto directo con quienes acuden a demandar justicia; de forma imparcial, objetiva, profesional, honesta e incorruptible. Acceso total a la justicia, sin formalismos y de manera sencilla, conciente de la realidad social y del estado de vulnerabilidad de los trabajadores, adultos mayores, menores de edad y personas con discapacidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La Justicia debe ser efectiva y rápida, impartida por Jueces profesionales, sensibles y humanos, que escuchen a la gente, resuelvan los conflictos de forma profesional, siempre honestos y ajenos a cualquier relación con litigantes, despachos jurídicos y políticos. Los jueces deben ser imparciales, aplicar e interpretar el derecho nacional e internacional, privilegiando y protegiendo los derechos humanos y al mas vulnerable.
+
+
+## Propuestas
+
+- Asesoría gratuita y especializada. Los formatos de solicitudes o demandas a disposición de los interesados para que no tengan que gastar en abogados ¿en aquellos asuntos que no sean muy complejos¿; ya que en el derecho laboral el Juez debe actuar de oficio y suplir en todo momento la deficiencia de la queja.
+- Justicia clara, sencilla y comprensible para todos: En materia laboral, las sentencias deben dictarse en formato de lectura simple: lenguaje sencillo, sin tecnicismos, ni palabras complejas cuyo significado sea difícil de comprender.
+- Garantizar que el trámite de los juicios no exceda de seis meses y que las sentencias se dicten en el momento, o bien, no excedan de cinco días siguientes a la celebración de la audiencia de juicio.
+

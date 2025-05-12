@@ -1,0 +1,76 @@
+Nombre Candidato: NELLY LILIAN FERRO ORTIZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: 7711222524
+Correo Electronico: nellyferro6@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Civil, Derecho Mercantil, Derecho Procesal, Formación Judicial, Juicios Orales, Lenguaje Ciudadano, Perspectiva de Género, Proceso Oral., Universidad IUS SEMPER
+Tags Propósito: acceso, calidad, corrupción, debido proceso, derechos vulnerables, eficiencia, género, igualdad, justicia, perspectiva de género, procesos judiciales, rapidez, reforma judicial, servidora pública., sociedad, transparencia, ética
+
+
+## Descripción del Candidato 
+
+NELLY LILIAN FERRO ORTIZ es candidata a Magistradura de Tribunales Colegiados de Circuito, postulándose para el Poder Legislativo Federal en HIDALGO. Cuenta con Maestría en Derecho Procesal Civil y Mercantil, y ha realizado diversas especializaciones en juicios orales, perspectiva de género y lenguaje inclusivo. 
+
+Su motivación para buscar el cargo público radica en su experiencia y firmeza para lograr una justicia cercana, rápida, eficaz y libre de corrupción. Propone tres ejes principales: accesibilidad a la justicia para todos, transparencia en las resoluciones judiciales y eficiencia en los procesos, sin comprometer el debido proceso ni los derechos laborales. Su visión de la función jurisdiccional se centra en comprender el impacto social de las decisiones legales y en incorporar la perspectiva de género para garantizar la igualdad sustantiva en el acceso a los derechos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/NellyFerroOrtiz
+- https://www.tiktok.com/@nellyferroortiz
+
+
+## Cursos
+
+- Taller práctico en proceso oral, civil y mercantil, por la Universidad IUS SEMPER
+- ,Especialidad en Juicios Orales, por la Universidad IUS SEMPER
+- ,Curso; Juzgar con Perspectiva de Género en Materia Penal, por la Escuela de Formación Judicial
+- ,Especialidad en Proceso Oral Civil y Mercantil, por la Universidad IUS SEMPER
+- ,Técnicas para la Implementación del Lenguaje Ciudadano e Inclusivo I¿, impartido por la Escuela de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52944/10
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho Procesal Civil y Mercantil, por la Universidad IUS SEMPER
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la experiencia, ética y firmeza necesarias para lograr justicia cercana, rápida, eficaz y sin corrupción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las personas juzgadoras debemos comprender la situación que vive nuestra sociedad, para entender que la ley, las sentencias y las políticas públicas tienen un impacto diferenciado, por lo que deben enfocarse en incorporar la perspectiva de género de forma transversal, progresiva y equitativa tanto en el ámbito jurisdiccional, como en la gestión del órgano judicial; de manera que en todo momento exista una igualdad sustantiva que permita a todos los grupos vulnerables acceder a sus derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión sobre impartir justicia es concreta y sencilla: la justicia debe estar al alcance de todas las personas, y no sólo de unos cuantas; por lo cual debe entenderse que detrás de cada expediente hay vidas, familias y sueños. Por ello, la justicia debe ser rápida y eficiente para enfrentar la corrupción, las injusticias y las desigualdades. Impartir justicia no es sólo un deber, sino un compromiso ético con la verdad y con las personas que confían en las personas juzgadoras.
+
+
+## Propuestas
+
+- Accesibilidad. La justicia debe estar al alcance de todos, independientemente de la condición física, social, cultural o económica de las personas. Un sistema judicial efectivo no es aquel que sólo funciona para algunos, sino el que garantiza que toda persona pueda hacer valer sus derechos, lo que implica no sólo mantener las puertas del órgano judicial abiertas, sino también asegurar que los procedimientos sean comprensibles y que existan mecanismos de apoyo para quienes más lo necesiten.
+- Transparencia. Los gobernados merecen comprender cómo y por qué se toman las decisiones que afectan sus vidas. Me comprometo a que cada resolución que emita sea clara, sencilla, fundamentada, incluyente y comprensible para todas las partes involucradas, pues la transparencia no es sólo un principio abstracto, sino una práctica diaria que crea confianza y legitima el poder judicial, y que hoy más que nunca debe procurarse ya que es el eje rector de esta reforma judicial.
+- Eficiencia. La justicia tardía no es justicia. Mi compromiso incluye trabajar incansablemente para agilizar los procesos, sin sacrificar la calidad y el debido proceso, y sobre todo procurando el respeto de los derechos laborales, pues mi experiencia como servidora pública me ha permitido comprender que así como en cada órgano judicial hay vidas, familias, sueños y aspiraciones, igual acontece en cada expediente judicial, por lo que merecen ser tratados con respeto y dignidad.
+

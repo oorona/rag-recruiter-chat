@@ -1,0 +1,77 @@
+Nombre Candidato: JOB DANIEL WONG IBARRA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3351069950
+Correo Electronico: magistrado.wong@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Conciliación, Convenios Laborales, Derecho Laboral, Derecho Procesal Penal, Doctorado, Especialización, Formación Judicial., Maestría, Materia Laboral, Medios Alternativos, Razonamiento Probatorio, Seguridad Social, Solución de Conflictos
+Tags Propósito: Accesibilidad, Atención Ciudadana, Casos Laborales, Claridad, Corrupción, Denuncias Anónimas, Derechos, Eficiencia, Empatía, Honestidad, Humanidad, Justicia, Participación Ciudadana., Profesionalismo, Rapidez, Sentencias Claras, Servicio Público, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+JOB DANIEL WONG IBARRA es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulándose al Poder Judicial de la Federación y al Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho, Maestría en Derecho Procesal Penal y Laboral, y una Especialización en Derecho del Trabajo. Su trayectoria académica se complementa con diversos diplomados en áreas como argumentación jurídica, razonamiento probatorio, medios alternativos de solución de conflictos y derecho de la seguridad social.
+
+Wong Ibarra busca el cargo con el objetivo de impartir justicia con empatía, profesionalismo y sensibilidad social, priorizando la protección de los derechos de las personas. Su visión se centra en una justicia rápida, clara y humana, con especial atención a casos laborales. Propone una gestión transparente con la "Justicia de Puertas Abiertas," la elaboración de sentencias claras y accesibles, y una política de "Cero Corrupción" con canales de denuncia abiertos a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://www.magistradowong.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JobDanielWong/
+- https://x.com/JobDanielWong?t=fII0eyZie2dyjGLIn3YEYQ&s=09
+- https://www.instagram.com/job.daniel.wong/
+- https://www.tiktok.com/@jobdanielwong?_t=ZM-8v6Zvjzhwxx&_r=1
+
+
+## Cursos
+
+- Diplomado en Argumentación Juridica en Materia Laboral Escuela Federal de Formación Judicial, Cedula 1453392,Diplomado en Razonamiento Probatorio en Materia Laboral Escuela Federal de Formación Judicial, Cédula 1804452,Taller de conciliación y elaboración de convenios laborales
+- Escuela Federal de Formación Judicial,Diplomado en Medios Alternativos de Solución de Conflictos Instituto Justicia Alternativa del Estado de Jalisco,Diplomado Derecho de la Seguridad Social Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55046/10
+
+
+## Trayectoria Academica
+
+- Doctorante en Derecho
+- Maestría en Derecho Procesal Penal y en Derecho Laboral, Especialización en Derecho del trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con empatía, profesionalismo y sensibilidad social.Protegiendo los derechos de todas las personas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Quiero una justicia que todos entendamos, que no tarde años y que trate a las personas con respeto. Como Magistrado, trabajaré para que las sentencias sean claras, rápidas y justas. No más lenguaje complicado, ni trámites eternos, ni malos tratos. Con mi experiencia como abogado, maestro y funcionario, he visto lo que falla y sé cómo mejorarlo: escuchando, actuando con ética y poniendo primero a quienes menos tienen. La justicia debe estar al servicio de las personas, no del sistema.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartiré justicia con tres pilares: rapidez (evitando trámites eternos), claridad (sin lenguaje complicado) y humanidad (trato digno). Priorizaré los casos laborales, donde trabajadores y familias sufren por demoras injustas. Con mi experiencia, llevaré al tribunal lo aprendido en las calles: que las sentencias deben cambiar vidas, no quedarse en papeles. Exigiré eficiencia sin perder la empatía, porque la verdadera justicia se mide por cómo trata a los más vulnerables.
+
+
+## Propuestas
+
+- JUSTICIA DE PUERTAS ABIERTAS. Atención amable, atenta y respetuosa. Publicaré mis sesiones y sentencias. Explicaciones claras de cada trámite. Me comprometo a recibir y atender personalmente a todas las personas cuyo caso esté bajo mi responsabilidad. Implementaré material de apoyo e instruiré al personal para orientar e informar a las personas de su caso. La justicia debe ser un servicio público eficiente, no un laberinto.
+- JUSTICIA CLARA Y ACCESIBLE. Mis sentencias serán claras y sencillas, sin tecnicismos innecesarios. Que las personas entiendan las razones que están detrás de la sentencia. Me comprometo a acompañar a cada sentencia una explicación personal y directa. La justicia incomprensible no es justicia. Trabajaré para todas las personas cuyo caso esté bajo nuestra responsabilidad entienda con claridad la solución a su caso y que tengan la confianza de preguntar todo aquello que no les quede claro.
+- CERO CORRUPCIÓN. Mi puerta estará abierta a todas las personas que sean víctimas de corrupción. No toleraré ningún acto de corrupción, despotismo o mal trato hacia ninguna persona. Me comprometo a entregar a la ciudadanía justicia transparente, eficiente y honesta. Denuncias anónimas y canales de comunicación siempre abiertos y disponibles. Quiero una justicia de la que la ciudadanía se sienta satisfecha y orgullosa.
+

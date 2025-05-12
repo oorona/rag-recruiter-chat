@@ -1,0 +1,76 @@
+Nombre Candidato: ULISES CUAUHTEMOC REYES MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: ulisesreyes1@live.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Control de Constitucionalidad, Convencionalidad., Derecho Constitucional, Derecho Electoral, Derechos Humanos, Escuela Judicial Electoral, Juicio de Amparo, Licenciado en Derecho, Maestría, Reforma Constitucional, Suprema Corte, UABJO
+Tags Propósito: abuso de autoridad, acceso a la justicia, amparo, comunicación institucional., comunidades indígenas, defensa pública, derecho a la salud, derechos humanos, igualdad, justicia accesible, justicia rural, justicia social, lectura fácil, protección contra abusos, resolución imparcial, salud, usos y costumbres, vulnerables
+
+
+## Descripción del Candidato 
+
+Ulises Cuauhtemoc Reyes Martinez es candidato a Juez/es de Distrito en Oaxaca, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría en Derecho Constitucional y Derecho Electoral, además de una licenciatura en Derecho. Su formación incluye diversos diplomados en temas de amparo, derechos humanos y control de constitucionalidad impartidos por la Suprema Corte de Justicia de la Nación y otras instituciones.
+
+Su motivación para buscar el cargo se centra en acercar la justicia a la población, considerándola un derecho y no un privilegio. Propone facilitar el acceso al amparo como herramienta para garantizar el derecho a la salud, proteger a comunidades indígenas contra abusos y simplificar el acceso a la justicia en zonas rurales, incluyendo resoluciones en formatos accesibles y fortaleciendo la comunicación institucional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574916021772
+- https://x.com/Ulisesreys
+- https://www.instagram.com/ulises.cuauhtemoc/
+- https://www.tiktok.com/@ulises.cuauhtemoc
+
+
+## Cursos
+
+- Diplomado de Juicio de Amparo, impartido por la Suprema Corte de Justicia de la Nación,Diplomado de La Suprema Corte y los Derechos Humanos 2022, impartido por la Suprema Corte de Justicia de la Nación,Reforma en Derechos Humanos y Nuevo Control De Constitucionalidad, impartido por la Suprema Corte De Justicia de la Naci,Derecho Constitucional, Coordinación General de Estudios de Posgrado de la UABJO y casa de la Cultura Juridica Oax
+- ,Control de Constitucionalidad y Convencionalidad
+- Escuela Judicial Electoral del Tribunal Electoral del PJ de la Fede
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55303/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho  Maestria en Derecho Constitucional  Maestría en Derecho Electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser juez para acercar la justicia a todas y todos. ¡Que la justicia sea un Derecho y no un privilegio!
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser un pilar de justicia real, accesible y equitativa. Como juez, garantizaré resoluciones imparciales, fundamentadas y con pleno respeto a los derechos humanos. Mi compromiso es acercar la justicia a quienes más la necesitan, asegurando que el amparo sea un verdadero escudo contra abusos. La ley debe servir al pueblo, y mi visión es que cada persona, sin importar su origen o condición, encuentre en el Poder Judicial un aliado, no un obstáculo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser cercana, clara y efectiva. Mi visión es un sistema imparcial, donde los derechos no sean privilegios, que, sin importar origen o condición, el pueblo acceda a una defensa real, gratuita, sin complicaciones. Impulsaré resoluciones justas, protegiendo a l@s vulnerables, garantizando que el amparo sea un recurso efectivo, no un laberinto legal. La ley debe servir a la gente, no solo a unos cuantos. Como juez, trabajaré para que la justicia llegue a tod@s, sin trabas ni excusas
+
+
+## Propuestas
+
+- Amparo para salvar vidas. Garantizaré que más personas conozcan el amparo como herramienta para exigir medicamentos, consultas urgentes y atención médica digna en los Hospitales publicos; es lamentable que la Derechohabiencia tenga que pagar por servicios de salud, cuando estos deben ser gratuitos. Realizare acciones que difundan como presentar un amparo, acudir a defensorias publicas y que esta violacion al Derecho a la Salud no continue.
+- Protección contra abusos en comunidades indígenas. Informaré sobre el uso del amparo para defenderse de multas excesivas, despojo de tierras, bienes y otras injusticias. Realizaré foros de concientización en comunidades, destacando que los usos y costumbres no deben violar derechos humanos, y que estas prácticas injustas a menudo alejan a la juventud y a su poblacion.
+- Justicia sin barreras. Facilitaré el acceso a la justicia en zonas rurales e indígenas con resoluciones claras y apoyo en la presentación de amparos. Fortaleceré la comunicación institucional con los gobiernos municipales para que la población acceda a la justicia federal cuando sea víctima de abuso de autoridad. Las sentencias se emitirán en formato de lectura fácil, para hacer del conocimiento el sentido y alcance de la sentencia.
+

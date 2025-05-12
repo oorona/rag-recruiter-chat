@@ -1,0 +1,78 @@
+Nombre Candidato: DANILO MISAEL LEAL VARGAS
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 4428146008
+Correo Electronico: misael.lealvargas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Cédula Profesional., Derecho Colectivo, Derecho Constitucional, Derecho Laboral, Derechos Humanos, Justicia Laboral, Licenciatura en Derecho, Perspectiva de Género, Seguridad Social, Violencia de Género
+Tags Propósito: acceso a la justicia, asistencia legal gratuita, audiencias públicas, austeridad republicana, carrera judicial, combate a la corrupción, derechos laborales, desigualdades salariales, digitalización, empatía, estabilidad laboral, evaluación, fideicomisos, honestidad, igualdad de oportunidades, integridad, inteligencia artificial, juicios en línea, jurados, justicia digital, justicia social, lenguaje claro, libertad, mora judicial., mérito, métodos alternativos de resolución de conflictos, nepotismo, presupuesto judicial, rendición de cuentas, respeto, sensibilidad, transparencia, tráfico de influencias, visión interdisciplinaria, ética
+
+
+## Descripción del Candidato 
+
+DANILO MISAEL LEAL VARGAS es candidato a Juez/a de Distrito en Guanajuato, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Es Licenciado en Derecho con Especialidad en Derecho del Trabajo y Justicia Laboral. Su motivación para buscar el cargo público es servir a la población mexicana, con un compromiso con la justicia social, la libertad y el respeto.
+
+Su visión de la función jurisdiccional se centra en un juez con conocimientos jurídicos, sensibilidad, empatía, ética y una visión interdisciplinaria. Propone democratizar el acceso a la justicia, simplificando procesos, implementando herramientas digitales, asistencia legal gratuita y, potencialmente, jurados. Sus propuestas incluyen un sistema de carrera judicial basado en el mérito, el uso de lenguaje claro en resoluciones judiciales, mayor transparencia y rendición de cuentas, así como combatir la corrupción y el nepotismo dentro del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/misael.leal
+- https://x.com/DerBurgoaCueva
+- https://www.instagram.com/misaellaboral1993/
+- https://www.youtube.com/@MisaelLaboral1993
+- https://www.tiktok.com/@eljuezleal
+- https://www.linkedin.com/in/danilo-misael-leal-vargas-20b213215/
+
+
+## Cursos
+
+- Seguridad Social; Amparo en Materia Laboral; Derecho Laboral; Derecho Colecitvo de Trabajo y Derechos Humanos;,Argumentación Jurídica; Espacios Libres de Vioencia; Juzgar con Perspectiva de Género; Derecho Constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53816/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho concluida Especialidad en Derecho del Trabajo y Jusitica Laboral con cedula profesional
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir al pueblo de México, porque tengo un profundo compromiso con la justicia social, la libertad y el respeto.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es un pilar esencial para el equilibrio social y mi visión se fundamenta en que un juez, no solo debe tener conocimientos jurídicos, debe tener sensibilidad y empatía con el dolor de las personas, cercano al pueblo, disponer de un compromiso ético con la honestidad, integridad, rectitud, vocación de servicio, transparencia y rendición de cuentas; además, contar con una visión interdisciplinaria en temas como la sociología, liderazgo, literatura, historia y filosofía para tomar decisiones justas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible para el pueblo, sin importar la condición social, económica o geográfica. Esto implica suprimir brechas burocráticas, simplificar procesos y hacer realidad la asistencia legal gratuita para los sectores débiles y vulnerables, la implementación de jurados en los veredictos, la digitalización, el uso de inteligencia artificial y la implementación de juicios en línea pueden ser herramientas fundamentales para lograr la democratización del poder judicial
+
+
+## Propuestas
+
+- Abogados: Implementar un sistema de carrera judicial universal, donde toda persona sin distinción de raza, etnia, condición social o política tenga derecho acceder, a través del mérito, igualdad de oportunidades y evaluación realizada por un comité de evaluación de carrera judicial de la Escuela Judicial y así reducir la práctica medieval de los nombramientos precarios de quince días o un mes en violación a los derechos laborales de los trabajadores del PJF a la estabilidad en el empleo y retiro
+- Público: promover el uso de lenguaje claro y sencillo en resoluciones judiciales; hacer accesible la justicia digital; transmitir las audiencias públicas en vivo a través de las redes sociales, establecer mecanismos de evaluación, transparencia y rendición de cuentas; fomentar métodos alternativos de resolución de conflictos como lo es la conciliación, trato humano y sensible hacia los justiciables y campañas educativas para que las personas conozcan sus derechos. Una justicia humana y asequible
+- Pueblo: ser autrocrítico de que en el PJF hay corrupción, nepotismo, desigualdades salariales y tráfico de influencias; sin embargo, la fórmula para reducir los problemas antes citados es la siguiente: no crear fideicomisos fuera de la ley; establecer la austeridad republicana como principio; los sueldos de los altos mandos deben ceñirse como lo dice la Constitución; el presupuesto se destine para la creación de juzgados y así combatir la mora judicial. Una justicia cercana al pueblo de México.
+

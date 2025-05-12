@@ -1,0 +1,73 @@
+Nombre Candidato: JAVIER IGNACIO RICARDEZ TERRAZAS
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 9518731471
+Correo Electronico: javier.ricardez.terrazas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogacía, Clientes extranjeros, Clientes nacionales, Concursos mercantiles, Contratos mercantiles, Control empresarial, Cumplimiento, Derechos de minorías, Estructuras societarias, Experiencia profesional., Gobierno corporativo, Licitaciones, Rescisión de contratos, Responsabilidad civil
+Tags Propósito: Acceso a la justicia, Confianza ciudadana, Eficiencia judicial, Empatía judicial, Formalismo vs. Resultados, Grupos vulnerables, Justicia efectiva, Justicia humana, Percepción de equidad, Poder Judicial, Principios constitucionales., Transparencia proactiva
+
+
+## Descripción del Candidato 
+
+JAVIER IGNACIO RICARDEZ TERRAZAS es candidato a Jueces/es de Distrito en Oaxaca, postulando a través del Poder Ejecutivo Federal. Licenciado en Derecho con cédula profesional y más de 10 años de experiencia en la abogacía, representando a clientes nacionales e internacionales. Su trayectoria profesional incluye experiencia en responsabilidad civil, derechos de minorías, derecho mercantil y gobierno corporativo, así como en juicios relacionados con contratos y licitaciones.
+
+Su motivación para buscar el cargo es humanizar la función judicial y acercar a los jueces a la ciudadanía. Su visión se centra en fortalecer la confianza ciudadana a través de la transparencia proactiva y pedagógica, superar el formalismo en la justicia y garantizar el acceso efectivo a la justicia, especialmente para grupos históricamente excluidos. Propone un modelo jurisdiccional transparente, enfocado en resultados reales y en la materialización de principios constitucionales en acciones concretas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/javierricardez/
+
+
+## Cursos
+
+- Ha participado en juicios relacionados con responsabilidad civil, cumplimiento y rescisión forzosa de contratos, etc
+- ,Amplia experiencia en derechos de minorías, tomas de control empresarial, concursos mercantiles y licitaciones
+- ,Asimismo, posee experiencia en gobierno corporativo, contratos mercantiles y estructuras societarias
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54819/11
+
+
+## Trayectoria Academica
+
+- Posee más de 10 años de experiencia ejerciendo la abogacía y representado a clientes tanto nacionales como extranjeros
+
+
+## Motivo para buscar el Cargo Publico
+
+Humaniza la función judicial y permitir que la ciudadanía perciba a sus jueces como figuras accesibles y empáticas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Fortalecer la confianza ciudadana a través de un modelo de transparencia que no sea reactivo ni meramente formal, sino único, proactivo y pedagógico.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En el actual contexto de tensión política y cuestionamiento al Poder Judicial, las candidaturas judiciales requieren más que experiencia y conocimientos técnicos. Exigen una visión de justicia que trascienda el expediente, que recupere la confianza ciudadana y que materialice los principios constitucionales en acciones concretas. Estas propuestas buscan contribuir de forma proactiva, viable y transformadora desde el juzgado de distrito.
+
+
+## Propuestas
+
+- Fortalecer la confianza ciudadana a través de un modelo de transparencia que no sea reactivo ni meramente formal, sino único, proactivo y pedagógico.
+- Superar la visión formalista de la justicia para enfocarse en resultados reales, percepción de equidad, y eficiencia sin sacrificar calidad.
+- Materializar los principios de acceso efectivo a la justicia, especialmente para grupos históricamente discriminados o excluidos.
+

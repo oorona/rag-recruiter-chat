@@ -1,0 +1,81 @@
+Nombre Candidato: ANDRES IVAN ARRIAGA FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2227064275
+Correo Electronico: andresiaf@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derechos Humanos, Diplomado, Especialidad, Formación Judicial., Gestión Judicial, Juicio de Amparo, Litigación Penal, Maestría, Poder Judicial de la Federación, Sistema Penal Acusatorio
+Tags Propósito: Acceso a la justicia, Administración de justicia, Capacitación, Carrera judicial, Comunicación ciudadana, Conciencia social, Derechos humanos, Eficiencia, Empatía, Igualdad de oportunidades, Justicia expedita, Justicia pronta, Plazos legales, Resolución de conflictos., Responsabilidad social, Transformación judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+ANDRES IVAN ARRIAGA FLORES es candidato a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulándose desde el Poder Ejecutivo Federal. Es Licenciado en Derecho, actualmente cursando una Maestría en Gestión Judicial, y cuenta con una amplia formación complementaria a través de diplomados y cursos especializados en áreas como el Juicio de Amparo, Derechos Humanos y Litigación Penal, impartidos por la Suprema Corte de Justicia de la Nación y el Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo se centra en transformar el Poder Judicial, buscando un acceso más real a la justicia para los ciudadanos. Propone eficientar la labor del Poder Judicial a través de un acercamiento ciudadano semanal, la emisión de sentencias en los plazos legales y la promoción de la igualdad de oportunidades en la carrera judicial, con el objetivo de contar con personal capacitado y comprometido con la sociedad. Su curriculum vitae completo está disponible en el sitio web del INE: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52316/10.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/share/1689MD25M6/?mibextid=wwXlfr
+- https://www.instagram.com/andresiaf2025/
+
+
+## Cursos
+
+- Diplomado sobre el Juicio de Amparo
+- Suprema Corte de Justicia de la Nación
+- ,Diplomado en Derechos Humanos, aproximaciones para su defensa
+- Suprema Corte de Justicia de la Nación
+- ,Taller presencial de Litigación Penal
+- Instituto de la Judicatura Federal,Curso Retos y Perspectivas en el Sistema Penal Acusatorio
+- Una visión desde la Judicatura
+- ,Especialidad
+- Curso de Formación para Personas Secretarias del Poder Judicial de la Federación
+- Concurso escolarizado
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52316/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, cursando Maestría en Gestión Judicial, múltiples cursos en diversas ramas del derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte de la transformación del Poder Judicial, para que los ciudadanos tengan acceso real a la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional actualmente enfrenta problemas relacionados con la imagen que tiene ante la ciudadanía, el Poder Judicial se convirtió en una maquinaria lenta de difícil acceso y costosa para los ciudadanos; por eso quiero ser parte de la transformación para eficientar la labor del Poder Judicial, que los servidores públicos sean empáticos con los gobernados, que estén debidamente capacitados, sean consientes de la labor que tienen encomendada y responsables ante la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi compromiso es que la justicia sea pronta, expedita, completa e imparcial, tal y como lo establece el pacto constitucional, que los conflictos se resuelvan de la mejor manera respetando los derechos humanos de los involucrados, que sus argumentos sean escuchados y que las resoluciones que emita el Tribual sean fáciles de entender tanto para los involucrados como para la probación en general, así como los servidores públicos que tienen encomendada esta labor sean los más capaces.
+
+
+## Propuestas
+
+- Un día a la semana de acercamiento ciudadano, en el que todas las personas puedan exponer sus quejas o inquietudes ante el titular del Tribunal; uno de los problemas que veo en la función jurisdiccional, es que es muy difícil para los ciudadanos tener contacto con las personas titulares quienes son las encargadas de resolver los asuntos, por lo que muchas veces son atendidos por otros funcionarios, o simplemente se van sin ser escuchados, de ahí la necesidad de generar un espacio de comunicación
+- Emisión de sentencias dentro de los plazos previstos por la ley; que las personas no tengan que esperar meses o incluso años, sin tener una resolución a los problemas que los aquejan, máxime que la constitución general de la república, estableció plazos máximos para el dictado de las resoluciones. por lo que mi compromiso es que en ningún caso se exceda del tiempo permitido para resolver los juicios.
+- Igualdad de oportunidades para el ingreso, permanencia y promoción en la carrera judicial , con el fin de mejorar la administración de justicia al contar con personas capacitadas, comprometidas con la institución y con conciencia social responsable, para responder a las demandas de justicia de la ciudadanía, privilegiando a aquellos que a través de los años se les negó la oportunidad de permanecer y ascender en la carrera judicial.
+

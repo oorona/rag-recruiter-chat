@@ -1,0 +1,73 @@
+Nombre Candidato: MIGUEL ANDRES MARQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5576575572
+Correo Electronico: metmiguel@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Educación, Licenciatura, Maestría, Trayectoria Académica
+Tags Propósito: Acceso a la Justicia, Acoso Laboral, Corrupción, Derechos Humanos, Derechos Laborales, Eficacia, Evaluación., Función Jurisdiccional, Imparcialidad, Integridad, Justicia, Nepotismo, Operadores de Justicia, Poder Judicial, Preparación, Transparencia
+
+
+## Descripción del Candidato 
+
+Miguel Andrés Márquez es candidato a Jueces/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Licenciatura y Maestría en Derecho, ostentando el título profesional. Su motivación para buscar el cargo es contribuir a un sistema de justicia más eficaz e imparcial.
+
+Su visión de la función jurisdiccional enfatiza la constante preparación y auto-examen de quienes imparten justicia. Propone garantizar los derechos de los operadores del sistema judicial, combatir el nepotismo en el Poder Judicial de la Federación y aumentar la difusión de la labor jurisdiccional para evitar la manipulación externa. Su información de contacto y perfiles en redes sociales (Instagram, YouTube y TikTok) están disponibles públicamente, así como su curriculum vitae en el sitio web del INE.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/metmiguel/
+- https://www.youtube.com/@metmiguel
+- https://www.tiktok.com/@miguelandres297
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52172/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Maestría en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi objetivo es contribuir a la construcción de un sistema de impartición de justicia más eficaz e impacial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La persona juzgadora, antes que otra cosa, es un ser humano imperfecto, con tendencias y limitaciones, por lo que es menester la constante preparación y examinación de aquellos que se dedican a la impartición de justicia
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo firmemente en la importancia de garantizar un sistema judicial imparcial y accesible para todos los ciudadanos, sin distinción de su origen o condición social.
+
+
+## Propuestas
+
+- Garantizar el respeto de los derechos humanos y laborales de los operadores del sistema de jusitica, que incluya a todas las personas que laboran en los distintos órganos jurisdiccionales, para lograr que realicen sus labores sin ningún tipo de presión, sin que puedan influir factores externos como la corrupción, ni internos, como el acoso laboral de los propios jueces, magistrados o sus superiores jerárquicos
+- Combatir el nepotismo que aún impera en el Poder Judicial de la Federación, a fin de que la labor jurisdiccional sea más transparente
+- Mayor difusión de la función jurisdiccional, para que el pueblo tenga nociones de la labor de jueces y magistrados y no sea manipulada por los distintos actores políticos y medios de comunicación, como ocurre actualmente
+

@@ -1,0 +1,84 @@
+Nombre Candidato: MARIA DEL CARMEN BERNAL LASTIRI
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 4922045974
+Correo Electronico: mariadelcarmenbernallastiri@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Celeridad, Concentración, Conciliación, Derecho, Derecho Agrario, Derechos Humanos, Desarrollo Rural, Formación continua., Género, Justicia Administrativa, Justicia Digital, Mediación, Sociología
+Tags Propósito: Actualización Profesional, Amparo, Capacitación Judicial, Derecho Constitucional., Derechos Humanos, Estado de Derecho, Independencia Judicial, Interpretación Progresiva, Jurisprudencia, Justicia, Legalidad, Litigio, Magistrado, Principios Constitucionales, Protección de Ciudadanos, Transparencia, Tribunales Colegiados
+
+
+## Descripción del Candidato 
+
+MARIA DEL CARMEN BERNAL LASTIRI es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal, representando a Zacatecas. Cuenta con formación académica en Sociología, Derecho y Maestrías en Ciencias en Desarrollo Rural Regional y Justicia Administrativa. Su trayectoria profesional se centra en el litigio y la defensa de los derechos humanos, destacando su experiencia en el amparo.
+
+La candidata busca el cargo con el objetivo de aplicar su conocimiento jurídico y experiencia en la resolución de casos que impacten el desarrollo jurisprudencial y la protección de los derechos fundamentales. Sus propuestas incluyen la actualización continua en nuevas cosmovisiones sociales, el fortalecimiento de la transparencia e independencia judicial, y la capacitación especializada de los impartidores de justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574686804412
+- https://x.com/carmenb_lastiri
+- https://www.instagram.com/carmen.lastiri/
+- https://www.youtube.com/@carmenbernallastiri2221
+
+
+## Cursos
+
+- DIPLOMADO EN DERECHOS HUMANOS DE LAS MUJERES, CENTRO LATINOAMERICANO DE DERECHOS HUMANOS; WHETU
+- 28 de enero de 2022
+- ,PROFESIONALIZACIÓN EN TEMAS DE PERSPECTIVA DE GÉNERO
+- Colegio COMPRENDER,  2022,MEDIACIÓN Y CONCILIACIÓN EN MATERIA ADMINISTRATIVA
+- Tribunal de Justicia Administrativa del Estado de Zacatecas
+- 2024,RETOS Y PERSPECTIVAS PARA UNA JUSTICIA DIGITAL AGRARIA TRIBUNAL SUPERIOR AGRARIO
+- Escuela Judicial Agraria
+- 2024,PRINCIPIOS PROCESALES DE CELERIDAD Y CONCENTRACIÓN
+- BUENAS PRACTICAS PARA SU CUMPLIMIENTO EN LA AUDIENCIA DE LA LEY 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52462/10
+
+
+## Trayectoria Academica
+
+- Lic
+- Sociología, Lic
+- Derecho, Maestra en Ciencias en Desarrollo Rural Regional y Maestra en Justicia Administrativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi formación y experiencia en el litigio han sido fundamentales para el desarrollo de un criterio jurídico sólido.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El trabajo en el litigio ante los tribunales me ha enseñado la importancia de la legalidad y la protección de los derechos humanos, especialmente en el amparo, donde he podido observar de primera mano la trascendencia de las decisiones de los tribunales colegiados. Ser parte de esta instancia judicial representaría la oportunidad de aplicar mi conocimiento y experiencia en la resolución de asuntos que impactan no solo a las partes involucradas, sino también al desarrollo jurisprudencial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Uno de los principios que rige mi carrera profesional es la búsqueda de la justicia con apego a los principios constitucionales. Como abogada litigante, he enfrentado casos en los que la defensa de los derechos humanos ha sido crucial, lo que me ha llevado a comprender la relevancia de los tribunales colegiados en la protección de los ciudadanos contra actos arbitrarios de autoridad. Contribuir a la consolidación de un sistema legal que garantice la tutela efectiva de los derechos fundamentales.
+
+
+## Propuestas
+
+- Considero que la función de un Magistrado no solo radica en la aplicación de la norma, sino en la interpretación de la misma de manera progresiva y garantista. En un mundo en constante evolución, la labor judicial debe responder a las nuevas problemáticas sociales, siempre bajo el principio de legalidad y con una perspectiva de derechos humanos, por lo que se propone cursos de actualización en estas nuevas y diferentes cosmovisiones sociales.
+- La transparencia en la impartición de justicia es esencial para fortalecer la confianza de la ciudadanía en el Poder Judicial, por ello se propone fortalecer este rubro, aunado a la independencia judicial. A lo largo de mi trayectoria, he defendido con firmeza la autonomía de los jueces y tribunales, convencida de que una judicatura libre de influencias externas es la base de un sistema democrático sólido; la transparencia y la libertad de jurisdicción es mejorar la impartición de justicia
+- Creo firmemente en la defensa de los derechos fundamentales y en la consolidación de un Estado de derecho fuerte y equitativo; para ello es necesaria la capacitación y consolidación profesional de los impartidores de justicia; técnicamente sólida ya que es esencial para garantizar la legalidad y la protección de los ciudadanos; especializar al personal en amparo, derechos humanos y derecho constitucional, principalmente, además de las otras materias del derecho.
+

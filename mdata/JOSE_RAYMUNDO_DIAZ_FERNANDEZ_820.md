@@ -1,0 +1,81 @@
+Nombre Candidato: JOSE RAYMUNDO DIAZ FERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5551925287
+Correo Electronico: raymundo.diazfer@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado Laboralista, Amparo, Argumentación, Derecho Público, Derechos Fundamentales, Diplomado., Especialista, Interpretación Jurídica, Jurisprudencia Constitucional, Justicia Constitucional, Licenciado en Derecho, Máster, Poder Judicial, Procesal Constitucional, Seguridad Social
+Tags Propósito: Acceso a la Justicia, Amparo, Cercanía, Ciudadanía, Confianza, Derechos, Empatía, Escuchar, Justicia, Magistrados, Necesidades Ciudadanas., Nueva Justicia, Política Judicial, Realidad Social, Rendición de Cuentas, Soluciones, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jose Raymundo Diaz Fernandez es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a cargos en el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con maestría en derecho, especialización en amparo y procesal constitucional, y experiencia como abogado laboralista. 
+
+Su motivación para buscar el cargo se centra en transformar la percepción ciudadana sobre la justicia y en llevarla a todos los rincones del país. Sus propuestas principales incluyen generar confianza a través de la transparencia y la rendición de cuentas, acercar la función jurisdiccional a la ciudadanía explicando las sentencias de manera accesible, y cambiar la visión tradicional de la justicia a través del conocimiento directo de las necesidades del pueblo y una respuesta empática a sus problemas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Bns9jeAW4/?mibextid=wwXIfr
+- https://x.com/RayDifer
+- https://www.instagram.com/raydiazfer/
+- https://www.tiktok.com/@raydiazfernandez
+
+
+## Cursos
+
+- Especialista en Justicia Constitucional Interpretación y Tutela de los Derechos Fundamentales Univ
+- Castilla la Mancha,Curso Básico de Formación y Preparación para Secretarios del Poder Judicial de la Federación
+- Estudios de Especialidad
+- ,Diplomado en Materia de Seguridad Social,Seminario práctico de Jurisprudencia Constitucional Comparada e Internacional
+- Univ
+- de Cádiz, España
+- ,Curso: Interpretación Jurídica y Argumentación, Bases Teóricas y Trabajo Práctico
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52900/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, especialista en amparo y procesal constitucional, maestro en derecho público, abogado laboralista
+
+
+## Motivo para buscar el Cargo Publico
+
+Traer justicia al pueblo de México, y cambiar la idea que la ciudadanía tiene de la justicia y construir el cambio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es urgente que la gente conozca sus derechos para que pueda reclamarlos, para que pueda hacerlos valer; necesitamos llevar la justicia a cada rincón del país, que todos se sientan apoyados, escuchados, protegidos, que tengan la certeza de que conmigo tendrán una visión distinta y nueva, que se emitirán fallos justos, empáticos, en los que predominará la justicia. Debemos comenzar ya ese cambio tan necesario, para darles a todas y a todos, la justicia que merecemos y que tanto necesitamos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Necesitamos cambiar la visión se tiene en el país respecto de la justicia; necesitamos escuchar las necesidades y problemáticas de la ciudadanía, en qué se ha fallado, y cómo podemos mejorar, no dar clases de derecho, sino escuchar los problemas y darles solución desde los origines, necesitamos que el pueblo sepa que tiene jueces y magistrados que escuchan su dolor de justicia, que se comprende la necesidad de mejorar la situación actual, y resolver ya los problemas más urgentes.
+
+
+## Propuestas
+
+- GENERAR CONFIANZA EN LA CIUDADANÍA. Debemos promover la transparencia y la rendición de cuentas, que el pueblo sepa la función que realizan sus jueces y magistrados, debemos dar a conocer la laborar que realizamos con transparencia con profunda empatía, pero sobre todo con humildad, necesitamos generar confianza en la ciudadanía.
+- CERCANÍA. Tenemos que poner en el centro a las personas y sus derechos, propongo una nueva política judicial, que cada sentencia de amparo sea explicada a la persona interesada y no solamente a sus abogados. Debemos ser Magistrados cercanos al pueblo y a las duras realidades que se viven; explicar las cosas que se desconozcan pero principalmente escuchar a la gente. Debemos ser Magistrados cercanos al pueblo y a las duras realidades que vive. Ya es tiempo de que la Justicia sea de la gente.
+- UNA NUEVA JUSTICIA. Debemos cambiar la idea que por años se ha tenido de la justicia en México, un buen magistrado debe conocer a su pueblo, salir a las calles a escuchar sus necesidades de justicia, no puede emitirse una sentencia sin conocer la realidad que viven los grupos más vulnerables, debemos ser cercanos y empáticos con los problemas que vive el pueblo, escuchar, entender y proponer soluciones para que la justicia sea una realidad.
+

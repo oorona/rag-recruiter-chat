@@ -1,0 +1,80 @@
+Nombre Candidato: ERIKA JANNET CONDEY PONCE
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4441595831
+Correo Electronico: eri.condey@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Derechos Humanos, Dogmática Penal, Especialidades., Formación Judicial, Litigio Estratégico, Maestría, Poder Judicial, Procuración de Justicia, Seguridad Pública, Sistema Acusatorio, Teoría del Proceso
+Tags Propósito: Seguridad ciudadana, actualización jurídica., capacitación continua, cercanía, diversidad, empatía, escucha ciudadana, imparcialidad, justicia, necesidades sociales, paz social, procuración de justicia, profesionalismo, responsabilidad, retos institucionales
+
+
+## Descripción del Candidato 
+
+Erika Jannet Condey Ponce es candidata a Jueza/es de Distrito en San Luis Potosí, postulada por el Poder Ejecutivo Federal. Abogada y maestrante por la Universidad Autónoma de San Luis Potosí, cuenta con especialidades y cursos en áreas como formación judicial, teoría del proceso penal, litigio estratégico y derechos humanos. 
+
+Su motivación para buscar el cargo se centra en contribuir a la seguridad ciudadana y paz social, basándose en su experiencia como juzgadora en el sistema penal. Su visión de la función jurisdiccional es ser una juzgadora empática y cercana a la población, considerando las diversas realidades sociales. Sus propuestas incluyen mantener la cercanía con la ciudadanía a través de encuentros periódicos, compromiso con el estudio y la capacitación constante, y colaboración con autoridades involucradas en la procuración e impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Hne6YFvnE/?mibextid=wwXIfr
+- https://www.instagram.com/eri_condey?igsh=MTJxcGR2bmhyN2xpZw3D3D&utm_source=qr
+- https://www.tiktok.com/@ericp530?_t=ZM-8v65jcXuwb9&_r=1
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación (Estudios de Especialidad)
+- ,Escuela Alemana de Dogmática Penal,Curso sobre Teoría del Proceso y Sistema Acusatorio
+- Instituto de la Judicatura Federal
+- ,Litigio estratégico y defensa integral de los Derechos Humanos¿
+- Universidad Autónoma de San Luis Potosí,Seminario en Derechos Humanos, Victimas del Delito, Procuración de Justicia y Seguridad Pública¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52795/11
+
+
+## Trayectoria Academica
+
+- Abogada y maestrante por la Universidad Autónoma de S
+- L
+- P
+- Cursos y especialidades por la Escuela de Formación Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Como juzgadora especializada en el sistema penal puedo velar por la seguridad de la ciudadanía y por la paz social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una juzgadora empática con la población, ser una juzgadora cercana a las personas y consciente de las necesidades y diversas realidades sociales que existen. Siempre mantener una cercanía con las personas y escucharlas. Es decir considero que los juzgadores somos parte del pueblo por lo que debemos ser personas sencillas y cercanas a las personas que se encuentran busca de la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una gran responsabilidad, por lo que se debe tener el compromiso de ser imparciales, profesionistas, actualizados en temas novedosos de la justicia, por lo que hay que mantener estudio y capacitación constante, sin dejar de lado que la impartición de justicia siempre debe tener en cuenta la diversidad de la población, de sus circunstancias y de sus necesidades.
+
+
+## Propuestas
+
+- Que los jueces mantengamos la cercanía con la población y de manera periódica realicemos encuentros para escuchar sus necesidades.
+- Ser jueces comprometidos con el estudio y recibir capacitaciones constantes.
+- Involucrarse con de las diversas autoridades que son parte en los procesos de procuración e impartición de justicia, para ser consientes de los retos a los que se enfrentan las como instituciones en su labor.
+

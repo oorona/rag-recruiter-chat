@@ -1,0 +1,71 @@
+Nombre Candidato: YAIB PATRICIA GONZALEZ TORRES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó información, ningún tag puede ser generado.
+Tags Propósito: ausencia, inexistencia, nulo, silencio, vacío
+
+
+## Descripción del Candidato 
+
+YAIB PATRICIA GONZALEZ TORRES es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Su género es femenino.
+
+No se cuenta con información adicional sobre su trayectoria académica, profesional, motivaciones para buscar el cargo, ni propuestas en materia de función jurisdiccional o impartición de justicia. Su estatus en el sistema es “Sin captura”.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

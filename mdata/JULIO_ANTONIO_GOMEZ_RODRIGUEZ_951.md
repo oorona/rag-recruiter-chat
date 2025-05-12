@@ -1,0 +1,73 @@
+Nombre Candidato: JULIO ANTONIO GOMEZ RODRIGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 5559510848
+Correo Electronico: cidvdml@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Formación Directiva, IPADE, Justicia Administrativa, Licenciado en Derecho, Magistrados, Mecanismos Alternativos de Solución de Conflictos, Redacción de Sentencias, Sistema Anticorrupción, Tribunal Federal de Justicia Administrativa, UAEMEX.
+Tags Propósito: Accesibilidad, Autoridad, Cambio social, Ciudadanía, Comunicación clara, Derechos humanos, Desarrollo del país., Desempeño administrativo, Discapacidad visual, Equilibrio, Impartición de justicia, Jueces humanos, Jurisdicción, Justicia, Justicia cercana, Lectura fácil, Legalidad, Magistrado Federal, Rendición de cuentas, Seguridad jurídica, Sentencias claras, Sentido humano, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Julio Antonio Gomez Rodriguez es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para el estado de Guanajuato. Cuenta con estudios de Licenciatura en Derecho y dos Especialidades por el Tribunal Federal de Justicia Administrativa, complementados con un programa de Formación Directiva en el IPADE. Su motivación para el cargo público es generar un cambio social y su visión de la función jurisdiccional se centra en el respeto a los derechos humanos y el correcto desempeño de la actividad administrativa.
+
+El candidato propone una justicia humanista, equilibrada entre el respeto a los derechos de las personas y el apoyo al gobierno. Sus propuestas incluyen la claridad y accesibilidad en las sentencias, especialmente para grupos vulnerables, así como una comunicación abierta y rendición de cuentas con la ciudadanía. Busca lograr una impartición de justicia que sea legal, justa, clara y pronta, garantizando seguridad jurídica.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16Jexa38mU/
+- https://www.instagram.com/julioantonio_gomezrodriguez
+- https://www.tiktok.com/juliogomezrodri
+
+
+## Cursos
+
+- Especialidad en Sistema Anticorrupción en el Tribunal Federal de Justicia Administrativa,Especialidad en Justicia Administrativa en el Tribunal Federal de Justicia Administrativa,Programa de Formación Directiva para Magistradas y Magistrados del TFJA (IPADE, 2023¿2024),Redacción de sentencias en el Tribunal Federal de Justicia Administrativa,Curso de Mecanismos Alternativos de solución de conflictos en el Tribunal Federal de Justicia Administrativa
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53086/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UAEMEX) Dos Especialidades (TFJA) Programa de Formación Directiva para Magistrados (IPADE)
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado Federal para ser un factor de cambio en los problemas sociales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es humanista, con pleno reconocimiento y respeto de los derechos humanos, en ese sentido, utilizaré la función jurisdiccional para garantizar el correcto desempeño de la actividad administrativa por parte de los entes del estado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión que yo tengo sobre la impartición de justicia es que toda resolución no solo debe ser legal, sino que debe buscar ser justa, clara y pronta a efecto de garantizar seguridad jurídica a todas las personas que acudan ante un órgano de justicia.
+
+
+## Propuestas
+
+- Justicia con sentido humano y en equilibrio con la autoridad. Creo en una justicia que respete los derechos de las personas, pero también que ayude al gobierno a hacer bien su trabajo. Como magistrado, buscaré que las decisiones sean justas, claras y bien fundamentadas, para que tanto la ciudadanía como las autoridades fiscales tengan certeza, respeto mutuo y resultados que beneficien al desarrollo del país.
+- Justicia cercana, sin soberbia y con rendición de cuentas. Mi compromiso es mantener una comunicación clara y abierta con la ciudadanía, explicar con lenguaje sencillo las decisiones judiciales y rendir cuentas de mi trabajo de forma constante. Quiero que la gente de Guanajuato sienta que tiene jueces humanos, responsables y al servicio del pueblo.
+- Sentencias en lenguaje claro y formatos accesibles para personas vulnerables. Propongo que las sentencias puedan entregarse en versiones de lectura fácil o en audio, especialmente para personas adultas mayores o con discapacidad visual. Una justicia clara es una justicia más humana y cercana.
+

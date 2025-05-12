@@ -1,0 +1,71 @@
+Nombre Candidato: NICOLAS LORENZO HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2283160853
+Correo Electronico: nicolorenzoh25@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Corrupción, Derecho, Derechos Humanos, Discriminación Indígena, Filosofía, Juicio de Amparo, Libertad de Expresión, Licenciatura en Derecho, Maestría., Política, Prevención de Delitos Electorales, Protección de Periodistas, Responsabilidades Administrativas
+Tags Propósito: acceso a la justicia, administración de justicia., comunicación directa, confianza ciudadana, corrupción, credibilidad, derechos fundamentales, imparcialidad, impunidad, independencia, integridad, justicia, legitimidad, pacificación social, profesionalismo, rendición de cuentas, transparencia
+
+
+## Descripción del Candidato 
+
+NICOLAS LORENZO HERNANDEZ es candidato a Magistrado de Tribunales Colegiados de Circuito, postulando a través del Poder Legislativo Federal para el estado de Veracruz. Cuenta con Maestría en Derechos Humanos y Juicio de Amparo, así como con Licenciatura en Derecho. Ha complementado su formación con diversos cursos y diplomados en áreas como Derechos Humanos, Libertad de Expresión, Prevención de delitos electorales y Sistema de alertas contra la corrupción.
+
+Su motivación para buscar el cargo es contribuir al fortalecimiento de la impartición de justicia y generar confianza ciudadana. Su visión se centra en un sistema jurisdiccional que respete los derechos fundamentales y promueva el acercamiento entre la sociedad y las autoridades. Entre sus propuestas destacan la apertura de canales de comunicación directa con los justiciables, el establecimiento de mecanismos de transparencia y rendición de cuentas, y la realización de jornadas de puertas abiertas para facilitar el contacto entre ciudadanos y magistrados.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19Nor6oB2B/
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos, aprobado con el tema ¿Discriminación de los Pueblos indígenas¿,Seminario en ¿Filosofía, Derecho y Política¿,Marco Jurídico Internacional de la Libertad de Expresión, acceso a la información pública y proteccion de periodistas,Curso de Sistema de ciudadanos alertadores internos y externos de la corrupción,Curso de Prevención de delitos electorales y responsabilidades Administrativas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53920/10
+
+
+## Trayectoria Academica
+
+- Maestria en Derechos Humanos y Juicio de Amparo en la UX y Licenciatura en Derecho en la UMSNH
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir al fortalecimiento de la impartición de justicia creando mecanismos de confianza con la ciudadania
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un servidor publico que vigile la función jurisdiccional para que respete al individuo, protega su libertad, seguridad, integridad y sus derechos fundamentales, tanto civiles, económicos y sociales, asi como contribuir en el rencuentro entre la sociedad y las autoridades jurisdiccionales y asi eliminar el distanciamiento entre estos, la pérdida de credibilidad y legitimidad en las decisiones, nepotismo, tráfico de influencias, abusos, corrupción e impunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un servidor publico que cuide y vigile que la impartición de justicia se rija bajo los principios de imparcialidad, independencia, objetividad y profesionalismo, asi como contribuir al fortalecimiento de la impartición de justicia como factor para la pacificación social.
+
+
+## Propuestas
+
+- Abrir una línea de comunicación directa con los justiciables, para conocer sus inconformidades, quejas, sugerencias a efecto de mejorar la atención del Tribunal Colegiado de Circuito
+- Establecer mecanismos de transparencia y rendición de cuentas en la administración de justicia garantizando que los procesos sean claros y accesibles para todos los ciudadanos
+- Un día de puertas abierta a la ciudadanía para que puedan tener contacto personal con los magistrados del Tribunal Colegiado de Circuito, a fin de aclarar dudas o cuestiones de sus asuntos que se ventilan
+

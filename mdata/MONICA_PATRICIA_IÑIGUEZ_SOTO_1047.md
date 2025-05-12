@@ -1,0 +1,79 @@
+Nombre Candidato: MONICA PATRICIA IÑIGUEZ SOTO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: magistradamonicainiguez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Congreso de la Unión, Derecho Constitucional, Derecho Penal, Derechos Humanos, Doctorado, Especialización, Instituto Tecnológico y de Estudios Superiores de Occidente, Juicio de Amparo, Juicios Orales, Justicia y Sociedad, SCJN, Sistema Integral de Justicia Penal Adolescente, Supremo Tribunal, UANL, UDEG, Universidad de Guadalajara
+Tags Propósito: Acoso, Calidad humana, Circunstancias de vida, Derechos humanos, Dignidad, Grupos vulnerables, Imparcialidad, Independencia, Justicia, Juzgador., Objetividad, Profesionalismo, Servir a la gente, Violencia de género, Violencia familiar, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Mónica Patricia Iñiguez Soto es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en Jalisco. Es abogada egresada de la Universidad de Guadalajara con dos especialidades en Derecho Constitucional y Amparo, y actualmente cursa el doctorado en Derecho Penal por la Universidad Autónoma de Nuevo León. Cuenta con una amplia trayectoria en cursos y diplomados en áreas como juicio de amparo, justicia penal para adolescentes, derechos humanos y técnicas de argumentación jurídica.
+
+Iñiguez Soto motiva su candidatura en su experiencia como juzgadora jalisciense, buscando ofrecer una justicia cercana y con calidad humana. Su visión se centra en garantizar una vida libre de violencia para grupos vulnerables y proteger los derechos humanos. Sus propuestas incluyen aplicar la ley con imparcialidad y un enfoque humanista, resolver con objetividad respetando la dignidad de las personas, y servir como una juzgadora independiente, capaz y profesional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574030376709
+- https://www.instagram.com/mimonicainiguez/.
+- https://www.tiktok.com/@mi_monicainiguez
+
+
+## Cursos
+
+- SEMINARIO DE JUICIO DE AMPARO POR LA UNIVERSIDAD DE GUADALAJARA
+- ,ESPECIALIZACION PARA OPERADORES DE SISTEMA INTEGRAL DE JUSTICIA PENAL PARA ADOLESCENTES POR EL SUPREMO TRIBUNAL
+- ,SEMINARIO INTERNACIONAL JUSTICIA Y SOCIEDAD EN MEXICO POR EL CONGRESO DE LA UNION
+- ,DIPLOMA EN EL JUICIO DE AMPARO POR EL INSTITUTO TECNOLOGICO Y DE ESTUDIOS SUPERIORES DE OCCIDENTE
+- ,DIPLOMADO EN DERECHOS HUMANOS POR LA SCJN Y DIPLOMADO EN JUICIOS ORALES Y TECNICAS DE ARGUMENTACION JURIDICA POR EL IDEJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54222/10
+
+
+## Trayectoria Academica
+
+- Abogada egresada de UdeG, 2 especialidades en Dcho
+- Constitucional y Amparo por UP y Doctorante en Dcho
+- Penal por UANL
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo suficiente experiencia como juzgadora Jalisciense, para brindar una justicia cercana y con calidad humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como Juzgadoras y juzgadores, estamos comprometidos a brindar una justicia que garantice una vida libre de violencia para mujeres, niñas, niños, jovenes y grupos vulnerables. Asícomo proteger los derechos humanos de todas y todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El momento que vivimos las y los mexicanos, exigen una justicia dirigida a erradicar la violencia familiar, sexual, de genero, el acoso, el hostigamiento y cualquier forma de abuso y discriminación a todos los grupos mas vulnerables.
+
+
+## Propuestas
+
+- Me comprometo a desempeñarme aplicando la ley con imparcialidad y un alto sentido humanista que resuelva de manera justa y valorando siempre las circunstancias de vida de las personas involucradas y no solo como un expediente más.
+- Resolver con objetividad e imparcialidad, siempre respetando los derechos humanos y la dignidad de todas las personas.
+- Estoy convencida de que México requiere Juzgadoras y juzgadores con autentica vocación de servicio, independientes, capaces y profesionales al servicio de la gente.
+

@@ -1,0 +1,71 @@
+Nombre Candidato: YDALIA PEREZ FERNANDEZ CEJA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó
+Tags Propósito: ausencia, falta de propuestas, inexistente, ninguna información, nulo, vacío
+
+
+## Descripción del Candidato 
+
+Ydalia Perez Fernandez Ceja es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Se identifica como mujer.
+
+Actualmente, no se dispone de información adicional sobre su formación académica, trayectoria profesional, motivaciones para el cargo o propuestas específicas en relación a la función jurisdiccional e impartición de justicia, ya que estos datos no fueron proporcionados. Su estatus en el sistema es "Sin captura".
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

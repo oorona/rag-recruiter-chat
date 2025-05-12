@@ -1,0 +1,84 @@
+Nombre Candidato: ELEANA JAZMIN HERNANDEZ VEGA
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: 6622069282
+Correo Electronico: eli_hernandez_254@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Anticorrupción, Derecho, Derechos Humanos, Doctorado, Espacios Libres de Violencia, Formación Judicial, Función Secretarial, Igualdad de Género, Licenciatura., Maestría, Materia Penal, Perspectiva de Género
+Tags Propósito: acuerdos, administración, autoridad moral, capacitación, derechos humanos, empatía, equipo de trabajo., humanismo, justicia, justicia accesible, liderazgo, orden social, plazos, respeto, sentencias, servidores públicos, tribunales
+
+
+## Descripción del Candidato 
+
+Eleana Jazmín Hernández Vega es candidata a Jueza/es de Distrito en Sonora, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Es licenciada en Derecho con especialidad en Amparo, Maestra en Derechos Humanos y estudiante de doctorado en Anticorrupción. Ha realizado diversos cursos en la Escuela Federal de Formación Judicial, incluyendo temas de perspectiva de género, derechos humanos y herramientas para la igualdad.
+
+Su motivación para buscar el cargo es servir a la sociedad y proteger los derechos humanos mediante la impartición de justicia, promoviendo el orden social a través de una justicia accesible y con jueces de autoridad moral. Sus propuestas incluyen talleres de humanismo para servidores públicos, cursos de capacitación para aspirantes a titulares de tribunales y el fomento de la empatía y el respeto en el equipo de trabajo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BMhDHZn3w/?mibextid=wwXIfr
+- https://x.com/eleanahern29685?s=11
+- https://www.instagram.com/eleanahernandezv?igsh=azJvNzVxcTZzYmYx&utm_source=qr
+
+
+## Cursos
+
+- Responsabilidades de la Función Secretarial III
+- Escuela Federal de Formación Judicial
+- ,Juzgar con Perspectiva de Género en Materia Penal
+- Segunda Edición, 2023
+- Escuela Federal de Formación Judicial
+- ,Encuentro entre Juzgadores Federales y Académicos
+- Escuela Federal de Formación Judicial
+- ,Género como Herramienta para la Igualdad
+- Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia I
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53472/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Especialidad en Amparo, Maestra en Derechos Humanos y estudiante de Doctorado en Anticorrupción
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir a la sociedad y proteger los derechos humanos de las personas mediante la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Promover el orden social mediante la impartición justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que sea impartida por jueces con autoridad moral que garanticen una justicia accesible.
+
+
+## Propuestas
+
+- Implementar talleres para concientizar a los servidores públicos desde la perspectiva del humanismo, a fin de que no se pierda de vista que se está al servicio de las personas.
+- Realizar cursos para las personas interesadas en ostentar el cargo, en los cuales se desarrollen cada uno de los puntos que implica estar al frente de un tribunal como Titular, desde la elaboración de acuerdos y sentencias, trato del personal, cuestiones administrativas y cumplimiento a los plazos establecidos.
+- Fomentar la empatía y el respeto en el equipo de trabajo.
+

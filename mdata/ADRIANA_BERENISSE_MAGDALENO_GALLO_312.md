@@ -1,0 +1,78 @@
+Nombre Candidato: ADRIANA BERENISSE MAGDALENO GALLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: MUJER
+Telefono: 6121577423
+Correo Electronico: adrianamagdalenogallo@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización., Calidad ortográfica, Competencia constitucional, Competencia ordinaria, Espacios libres de violencia, Formación, Juicio oral civil, Juicio oral mercantil, Justicia laboral, Licenciatura en Derecho, Redacción institucional, Reforma justicia, Secretarios Poder Judicial, Ética judicial
+Tags Propósito: Cercanía ciudadana, Confianza, Derechos Humanos, Eficiencia, Empatía, Equidad, Evolución institucional, Igualdad, Imparcialidad, Independencia, Justicia, Justicia social, Poder Judicial, Profesionalismo., Rostro humano, Servicio público, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Adriana Berenisse Magdaleno Gallo es candidata a Magistratura de Tribunales Colegiados de Circuito por Baja California Sur, postulada por el Poder Judicial de la Federación. Cuenta con estudios de Maestría en Juicio Oral Civil y Mercantil, Competencia Constitucional y Ordinaria, así como Licenciatura en Derecho. Ha realizado diversos cursos de especialización en temas como calidad ortográfica, justicia laboral, ética judicial y prevención de violencia.
+
+Su motivación para buscar el cargo es servir al país y a los justiciables con profesionalismo. Su visión se centra en fortalecer un Poder Judicial transparente, independiente, confiable y eficiente, que garantice la aplicación justa de la ley y el respeto a los derechos humanos. Sus propuestas incluyen generar espacios seguros y empáticos para los usuarios, salvaguardar los derechos humanos y acercar el Poder Judicial a la sociedad, priorizando un rostro humano en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Adriana-Magdaleno-Gallo/61573646098138/
+- https://x.com/AdrianaMagGallo
+- https://www.instagram.com/adriana_magdaleno_gallo/
+- https://www.tiktok.com/@adrianamagdalenogallo?lang=es
+
+
+## Cursos
+
+- Diplomado Calidad Ortográfica y Redacción Institucional
+- ,Curso Básico de Formación y Preparación de secretarios del Poder Judicial de la Federación
+- ,Curso de actualización sobre la reforma en materia de justicia laboral
+- ,Curso para Generar Espacios Libres de Violencia
+- ,Curso Casos Prácticos de Ética Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54139/10
+
+
+## Trayectoria Academica
+
+- Maestría en Juicio Oral Civil y Mercantil, Maestría en Competencia Constitucional y Ordinaria, Licenciada en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi anhelo siempre ha sido servir a mi país, así como a los justiciables, con dedicación, esmero y profesionalismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es continuar en la construcción de un poder judicial transparente, independiente, confiable y eficiente, que garantice aplicación justa de la ley, así como la igualdad y el respeto a los derechos humanos. Mi aspiración es que el poder judicial continúe siendo un referente de profesionalismo, ética y equidad. Busco fortalecer la confianza de los ciudadanos en el Poder Judicial de la Federación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estoy convencida que nuestra sociedad es cambiante y se transforma, por lo que México y sus instituciones deben estar acorde con el devenir de la historia. Por ello, se requiere de una reinvención y de un ajuste que sea acorde a la realidad social, y de juzgadores que sean más empáticos, cercanos a la gente, a su problemática y a la atención de sus necesidades en materia de justicia. Juzgaré los asuntos de manera pronta y expedita, siempre en favor de los derechos humanos.
+
+
+## Propuestas
+
+- Como magistrada generaré espacios seguros, donde se atienda a las personas con amabilidad, sensibilidad y empatía, en especial, a las personas más vulnerables.
+- Trabajaré incansablemente para salvaguardar los derechos humanos de quienes acuden a exigir justicia, para recuperar la confianza en el Poder Judicial de la Federación.
+- El Poder Judicial de la Federación debe evolucionar. Por ello, contribuiré con el servicio de impartición de justicia desde una visión más social y cercana a la gente, es decir, con rostro humano.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: LILIAN AURORA PEREZ ORNELAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5624121577
+Correo Electronico: lilian.a.perez.ornelas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Alta Dirección, Derecho, Derecho Administrativo., Derecho Constitucional, IPADE, Maestría, Mención Honorífica, Recursos Humanos, Servidores Públicos, UNAM
+Tags Propósito: Bien social, Carrera profesional, Corrupción, Derechos humanos, Desarrollo profesional, Eficacia, Eficiencia, Evaluación permanente, Formación ética., Función jurisdiccional, Honestidad, Justicia, Legalidad, Reconstrucción institucional, Reforma judicial, Sensibilidad social, Servidores públicos, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+LILIAN AURORA PEREZ ORNELAS es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal en Ciudad de México. Cuenta con Maestría en Derecho Constitucional y Administrativo por la UNAM, siendo Licenciada en Derecho con mención honorífica por la misma institución. Ha cursado especialidades en Alta Dirección Estratégica de Recursos Humanos y Responsabilidades de los Servidores Públicos.
+
+Su motivación para buscar el cargo es contribuir con un sistema de justicia eficiente, honesto y ético. Su visión se centra en una función jurisdiccional y una impartición de justicia expeditas, eficaces, legales y orientadas al beneficio social. Sus propuestas principales incluyen la formación continua en ética profesional para los servidores públicos, la búsqueda de eficiencia y eficacia en su desempeño, y el establecimiento de un modelo de servidor público ejemplar y con oportunidades de desarrollo profesional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574719564049
+- https://x.com/lilian_a_perez
+- https://www.instagram.com/lilian.a.perez.ornelas/
+- https://www.youtube.com/@LilianAuroraPC35A9-rezOrnelas
+- https://www.tiktok.com/@lilian_a_perez
+
+
+## Cursos
+
+- Especialidad en Alta Dirección Estratégica de Recursos Humanos en el IPADE,Responsabilidades de los Servidores Públicos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54347/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, con mención honorífica en la UNAM, con Maestría en Derecho Constitucional y Administrativo UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Para aportar al sistema de justicia de mi país, que requiere servidores públicos eficientes, honestos y con ética
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser expedita, eficiente, eficaz y apegada a los principios de legalidad, pero sobre todo debe estar enfocada al beneficio de la sociedad y debe observar ante todo los principios de legalidad y valores éticos. Sus servidores públicos deben ser ejemplo de honestidad, deben contar con valores y principios éticos a prueba de  al tiempo que deben responder a criterios de eficacia y eficiencia, preservando en todo momento el bien social de nuestra sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de la justicia en nuestro país requiere reformarse, concientizar sobre la necesidad de ser una función eficaz y eficiente, con estricto apego a la legalidad y al cuidado de los derechos humanos de la sociedad, debe ser muy expedita para que sea eficiente y debe, sobre todo, vigilar los principios de legalidad que requiere tan importante función. México necesita servidores públicos altamente eficientes, honestos, transparentes, y sensibles a las necesidades de nuestra sociedad.
+
+
+## Propuestas
+
+- Formación de sus servidores públicos en aspectos que fomenten permanentemente la ética profesional, para lo cual se requiere el desarrollo de un sistema de servicio profesional ético, que permita una verdadera carrera y dé oportunidad a todas las personas para desarrollarse en un ámbito profesional y apegado a valores, que combata la corrupción y la ineficiencia de los servidores públicos, que sean sensibles a las necesidades de los ciudadanos y conscientes de que son a quienes deben servir
+- Eficiencia y eficacia en el desempeño de las funciones. Los servidores públicos que integran los órganos jurisdiccionales deben ser altamente eficaces, orientados a resultados y sujetos a formación y evaluación permanente, no puede perder de vista que sirven a la ciudadanía y que su desempeño debe ser orientado a resolver los problemas a los que se enfrenta hoy día el poder judicial. La transformación debe tener aparejada resultados excepcionales y vigilancia en el apego a valores.
+- Los servidores públicos que ingresen por el proceso transparente implementado como ejemplo de reconstrucción institucional deben se ejemplo de lo que debe ser un auténtico servidor público, deben ser altamente capaces en su quehacer, deben ser formados y actualizados permanentemente, deben tener la posibilidad de un desarrollo profesional excepcional.
+

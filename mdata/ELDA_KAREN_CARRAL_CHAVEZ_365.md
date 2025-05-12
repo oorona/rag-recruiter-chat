@@ -1,0 +1,73 @@
+Nombre Candidato: ELDA KAREN CARRAL CHAVEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8713466206
+Correo Electronico: elda_hgo@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Mercantil, Igualdad de Género, Licenciatura en Derecho, Materia Laboral, Poder Judicial de la Federación, Razonamiento Probatorio, Reforma Laboral, Universidad Autónoma de la Laguna., Violencia
+Tags Propósito: Estado de Derecho, Poder Judicial, ambiente laboral, atención ciudadana, derechos, derechos laborales, imparcialidad, justicia, objetividad, prontitud, resolución constitucional., resolución juicios, servidores públicos, trato digno
+
+
+## Descripción del Candidato 
+
+Elda Karen Carral Chavez es candidata a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulándose a través del Poder Legislativo Federal. Licenciada en Derecho por la Universidad Autónoma de la Laguna, cuenta con formación continua en áreas como derecho laboral, mercantil y razonamiento probatorio, así como en temas de igualdad de género y prevención de la violencia.
+
+Su motivación para buscar el cargo es impartir justicia con prontitud e imparcialidad. Su visión se centra en el respeto a los derechos de los trabajadores del Poder Judicial, la pronta resolución de los juicios y una atención digna y personalizada a los ciudadanos. Sus propuestas principales incluyen el fomento de un ambiente laboral sano, la resolución de juicios conforme a derecho y la apertura a la comunicación con los quejosos sin comprometer la objetividad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/eldacarral
+- https://www.instagram.com/eldacarral
+- https://www.tiktok.com/eldacarral
+
+
+## Cursos
+
+- Curso Básico de Preparación y Capacitación de Secretarios del Poder Judicial de la Federación,Jornadas de Introducción de la Reforma Laboral,Jornadas de actualización en Materia Mercantil y debates desde la Judicatura sobre Derecho Mercantil,Razonamiento Probatorio en Materia Laboral,Género como Herramienta para la Igualdad, para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52719/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho egresada de la Universidad Autónoma de la Laguna
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia, resolviendo con prontitud e imparcialidad los asuntos en beneficio de la ciudadanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Primordialmente respetar los derechos de los servidores públicos que conforman el órgano jurisdiccional, así como incentivar a los mismos para que dentro de lo humanamente posible se resuelvan con prontitud los juicios y no se afecte a los gobernados en cuanto al tiempo para obtener una resolución constitucional, sin perder de vista que un Órgano jurisdiccional lo componen todos los trabajadores, no sólo las y los jueces y magistrados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión en la impartición de justicia, siempre será resolver conforme a derecho todos los juicios de mi competencia con imparcialidad, salvaguardando el Estado de Derecho; dando siempre un trato digno y personalizado a los ciudadanos, por lo que, los quejosos siempre serán escuchados ante sus problemas jurídicos.
+
+
+## Propuestas
+
+- Respetar a las y los trabajadores del Poder Judicial de la Federación, dándoles un trato digno, respetando sus horarios y derechos laborales que la ley les confiere y procurando un ambiente laboral sano.
+- Resolver los juicios que se encuentren a mi cargo conforme a derecho y de manera imparcial, procurando su pronta resolución en todo momento, para que las y los ciudadanos obtengan una resolución de manera pronta.
+- Atención a todos los ciudadanos que comparezcan solicitando justicia, evitando la práctica arcaica que el Magistrado es una persona con la que no se pueda hablar, sino con la debida atención como servidor público atender a los quejosos que así lo requieran, sin que dicha circunstancia afecte la objetividad a la hora de resolver los juicios.
+

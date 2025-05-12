@@ -1,0 +1,83 @@
+Nombre Candidato: LUIS RAFAEL HERNANDEZ PALACIOS MIRON
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5541300299
+Correo Electronico: luishepa@prodigy.net.mx
+Numero de lista en boleta: 50
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Biodiversidad, Conocimiento Tradicional, Derecho, Licenciatura, Maestría, Mención Honorífica., Propiedad Intelectual, REDCAPA, Sociología, U. Veracruzana, U. de Chile
+Tags Propósito: Audiencia, Autonomía, Bloque de Constitucionalidad, Casuística, Cercanía a la sociedad, Derechos Humanos, Discrecionalidad, Eficacia, Estado de Derecho, Facultad de Atracción, Honestidad, Impartición de justicia, Independencia, Justicia, Poder Judicial, Pro Personae, Seguridad jurídica., Suprema Corte, Transparencia
+
+
+## Descripción del Candidato 
+
+LUIS RAFAEL HERNANDEZ PALACIOS MIRON es candidato a Ministra/o de la Suprema Corte de Justicia de la Nación, postulado por el Poder Ejecutivo Federal bajo el número 50 en la boleta. Es Licenciado en Derecho por la Universidad Veracruzana, con estudios de maestría en Sociología por la Universidad de Chile y cédula profesional vigente. 
+
+Su motivación para buscar el cargo se centra en la renovación de la impartición de justicia, basándose en su experiencia. Propone garantizar la aplicación de la reforma en materia de derechos humanos y el principio *Pro Personae*, establecer criterios claros para el ejercicio de la facultad de atracción por parte de la Suprema Corte, y acercar la justicia a la sociedad, enfatizando la atención a los sectores menos favorecidos. Su visión sobre la función jurisdiccional se centra en la autonomía e independencia del Poder Judicial, y sobre la impartición de justicia, en la oportunidad, honestidad, eficacia y cercanía con los justiciables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.luishpmabogado.com
+
+
+## Redes Sociales
+
+- https://facebook.com/luishpmabogado
+- https://x.com/luishpmabogado
+- https://www.instagram.com/luishpmabogado
+- https://youtube.com/@luishpmabogado
+- https://www.tiktok.com/@luishpmabogado
+- https://www.threads.net/@luishpmabogado
+
+
+## Cursos
+
+- Curso de actualización prof
+- Derechos de Prop
+- Intelectual, Biodiversidad y Conocimiento Tradicional
+- REDCAPA 2006
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/244/6
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la U
+- Veracruzana, graduado con mención honorífica
+- Estudios de maestría en Sociología, U
+- de Chile
+
+
+## Motivo para buscar el Cargo Publico
+
+Comprometido con la justicia. Mi experiencia me permite apreciar la necesaria renovación de la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe garantizarse la autonomía e independencia del Poder judicial Federal. El fortalecimiento de los órganos de impartición de justicia, en un adecuado ejercicio de división y gradación de poderes, fortalece el Estado de derecho y el equilibrio de las funciones que a cada uno corresponde, la seguridad y estabilidad de los juzgadores es garantía para los justiciables, unido a la búsqueda de la excelencia y honestidad, que debe ser evaluada permanentemente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser oportuna, honesta, expedita y eficaz. Se requiere establecer cercanía permanente con los justiciables a través de la inmediatez y la atención cotidiana. Es deber del impartidor de justicia establecer la cercanía con las partes en litigio, de manera honesta y respetuosa. La impartición de justicia requiere la honorabilidad, excelencia, objetividad y profesionalismo para garantizar la impartición de justicia.
+
+
+## Propuestas
+
+- Garantizar el ejercicio de la reforma en materia de derechos humanos para lograr la interpretación del bloque constitucional y el principio Pro Personae. Ello implica la aplicabilidad directa de las normas constitucionales del bloque, articuladas con los tratados internacionales, ampliando la labor interpretativa de los jueces, la aplicación del bloque de constitucionalidad como criterio y parámetro. Con ello se dará claridad y difusión a la totalidad de derechos humanos, en su progresividad.
+- Establecer criterios para el ejercicio de la facultad de atracción por parte de la Suprema Corte, a través de una técnica hermenéutica que dé garantía a los justiciables, para que esta facultad pueda llevarse a cabo de manera precisa, no arbitraria, pero no sujeta a reglas formales. Las resoluciones de atracción deben fundarse en la casuística, para establecer la relevancia del caso como labor positiva de la importancia objetiva.
+- Una justicia cercana a la sociedad es una demanda profundamente sentida. Se requiere de garantizar la audiencia y atención por parte de los impartidores de justicia. Se precisa de métodos normativos para evitar la discrecionalidad en el ejercicio de esta garantía. Pero sobre todo se requiere una actitud de generosidad, honestidad y transparencia, para que sea sensible la cercanía al juzgador y el saber escuchar de manera directa, sobre todo a los sectores menos favorecidos de la sociedad.
+

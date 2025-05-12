@@ -1,0 +1,76 @@
+Nombre Candidato: LAURA JACQUELINE ROMERO LULE
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5519729950
+Correo Electronico: lromerolule@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Control de Convencionalidad, Derecho Procesal Constitucional, Derecho del Trabajo, Derechos Humanos, Doctorado en Derecho., Especialización en Derecho Laboral, Formación a Distancia, Inclusión Digital, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho Constitucional, Prestaciones Laborales, Reforma Laboral, Seguridad Social
+Tags Propósito: Acceso a la justicia, Capacitación judicial, Confianza ciudadana, Derechos humanos, Eficiencia judicial, Estado de derecho, Gestión de casos, Justicia equitativa, Justicia laboral, Legalidad., Participación ciudadana, Paz social, Poder Judicial, Protección de derechos, Reforma laboral, Transparencia
+
+
+## Descripción del Candidato 
+
+Laura Jacqueline Romero Lule es candidata a Jueza/es de Distrito en la Ciudad de México, postulando para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con un doctorado en Derecho y 18 años de experiencia en el Poder Judicial, enfocándose en derecho laboral. Su motivación para el cargo público es servir a la ciudadanía con una justicia laboral eficaz y cercana, priorizando la defensa y protección de los derechos humanos.
+
+Su visión se centra en una justicia equitativa, accesible y eficiente, buscando fortalecer la confianza ciudadana en las instituciones. Sus propuestas incluyen el desarrollo de un sistema de gestión de casos transparente, la implementación de programas de capacitación continua para el personal judicial en materia laboral, y facilitar el acceso a la información sobre los procesos judiciales para las partes involucradas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://lauraromerolule.wixsite.com/derecho-laboral
+
+
+## Redes Sociales
+
+- https://www.instagram.com/lule.lauraj/
+- https://www.tiktok.com/@lule.laura
+- https://www.linkedin.com/in/laura-jacqueline-romero-lule-61546830b/
+
+
+## Cursos
+
+- Especialista en Derecho del Trabajo y Justicia Laboral, Diplomados en Seguridad Social e Interpretación y Der
+- Humanos,Cursos: Argumentación e interpretación jurídica, El sistema de derechos fundamentales, Derecho Procesal Constitucional,Taller de cálculo y prestaciones laborales, Redacción de documentos accesibles para la inclusión digital,Jornadas sobre la reforma en Materia de Justicia Laboral, Reforma en DH y Nuevo control de convencionalidad,Desarrollo de habilidades y herramientas pedagógicas para esquemas de formación a distancia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55018/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho, Esp en Derecho Laboral, Maestra en Derecho Constitucional y Amparo y Doctora en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo 18 años de experienia y mi meta es servir a la ciudadanía con justicia laboral cercana y eficaz.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión se centra en la defensa y protección de los derechos humanos. Mi trayectoria profesional de 18 años en el Poder Judicial me ha proporcionado una comprensión profunda y multifacética del sistema de justicia, lo que me califica plenamente para asumir este rol. Estoy comprometida con la implementación de una justicia equitativa y accesible, que garantice la protección de los derechos laborales y humanos, y que promueva la confianza y participación de la ciudadanía en el sistema judicial
+
+
+## Vision sobre la Imparticion de Justicia
+
+ofrecer una justicia eficiente y accesible, que sea el pilar del estado de derecho y la paz social. Mi objetivo es fortalecer la confianza ciudadana en nuestras instituciones, garantizando equidad y legalidad en cada proceso. De esta manera, se fomenta la participación activa de todos los ciudadanos, promoviendo un entorno donde cada individuo se sienta valorado y protegido bajo el marco de la ley
+
+
+## Propuestas
+
+- Desarrollar un sistema de gestión de casos más eficiente que permita un seguimiento detallado y transparente de cada expediente a fin de fortalecer la confianza en el sistema judicial
+- Implementar programas de capacitación continua para el personal judicial en materia laboral, enfocados en reformas recientes y mejores prácticas internacionales, con el objetivo de aplicar la ley de manera eficiente y justa. Además, incentivar la participación activa en los programas de capacitación y reconocer los logros y avances del personal
+- Facilitar el acceso de partes involucradas a la información sobre los procesos judiciales, brindando orientación clara y oportuna, lo cual implica crear mecanismos y herrmientas que les permitan acceder a la información relevante del caso.
+

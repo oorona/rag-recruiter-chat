@@ -1,0 +1,74 @@
+Nombre Candidato: KEVIN JOSUE RODRIGUEZ MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5667705716
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Control de Constitucionalidad, Derecho Internacional del Trabajo, Derecho Laboral, Derecho Laboral Procesal, Derecho de Amparo, Derechos Humanos, Escuela Federal de Formación Judicial., Escuela Judicial Electoral, Justicia Abierta, Perspectiva de Género, Suprema Corte de Justicia, UAEMéx
+Tags Propósito: acceso a la justicia, cercanía, comunicación, corrupción, derechos humanos, diversidad, evaluación judicial, grupos vulnerables, humanismo, igualdad, inclusión, justicia, justicia social, participación ciudadana, paz social., plataformas digitales, rendición de cuentas, sensibilidad social, transparencia
+
+
+## Descripción del Candidato 
+
+KEVIN JOSUE RODRIGUEZ MARTINEZ es candidato a Jueces/as de Distrito del Poder Ejecutivo Federal. Cuenta con especialidad en Derecho y formación continua en áreas como Derecho de Amparo, Control de Constitucionalidad y Derecho Laboral, incluyendo estudios en la Universidad Autónoma del Estado de México y la Suprema Corte de Justicia de la Nación. Su motivación para buscar el cargo público se basa en su vocación de servicio y en el anhelo de un México justo y libre de corrupción.
+
+En su visión, la función jurisdiccional debe ser accesible y cercana a la ciudadanía, priorizando los derechos humanos y la sensibilidad ante las historias de vida de las personas. Sus propuestas clave incluyen la transparencia en las sentencias a través de plataformas digitales, la apertura a la comunicación entre juzgados y ciudadanía, y la promoción de políticas de inclusión para garantizar el acceso a la justicia para todos, especialmente grupos históricamente desfavorecidos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://magic.ly/kevinrodriguez
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FThZF2Ryd/?mibextid=wwXIfr
+- https://www.instagram.com/kevinrdzmtz?igsh=bXExYjJ1ODF0dDkw&utm_source=qr
+- https://www.tiktok.com/@kevinrdz8368?_t=ZM-8uAiAERibln&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho de Amparo por la Universidad Autónoma del Estado de México,Diplomado juicio de amparo por la Suprema Corte de Justicia de la Nación,Curso de Control de constitucionalidad y convencionalidad por la Escuela Judicial Electoral,Curso Derecho laboral procesal y derecho internacional del trabajo por la Escuela Federal de Formación Judicial,Curso de Justicia abierta por la Escuela Judicial Electoral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55274/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UAEMéx, especializado en derecho laboral, derechos humanos, perspectiva de género y amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de servicio y anhelo de un México realmente justo y libre de corrupción, en donde el pueblo sea prioridad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la encargada de garantizar justicia con apego a los derechos humanos, pero su lejanía nacida de juzgados de puertas cerradas y alejados de la realidad de millones de personas mexicanas tiene que cambiar. Las juezas y jueces deben ser cercanos al pueblo y tener un alto grado de humanismo pues en los juzgados no se ven expedientes o números sino historias de vida, debe existir una sensibilidad real a los reclamos y necesidades sociales para lograr un verdadero cambio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Velar que las personas sin importar su origen, condición o preferencias accedan a la justicia, protegiendo en mayor medida a los grupos históricamente desventajados como las mujeres, personas con discapacidad y de diversidad sexual. La verdadera justicia no parte de la aplicación rígida de leyes, sino de la comprensión de realidades sociales. Promoverse transparencia y rendición de cuentas en las decisiones judiciales, para crear un sistema judicial que inspire confianza y fomente la paz social.
+
+
+## Propuestas
+
+- TRANSPARENCIA Y EVALUACIÓN. Explicar públicamente las razones detrás de las sentencias que se emitan, utilizando para ello plataformas como Facebook, TikTok, Instagram y canales de Whatsapp para lograr el acceso a esa información de manera sencilla y dinámica. Además, establecer mecanismos que permitan a la comunidad evaluar mi labor judicial, brindando retroalimentación sobre el desempeño e identificando las necesidades reales del servicio, esto a través de encuestas de satisfacción.
+- Puertas abiertas: Fomentar la comunicación directa entre el juez, la ciudadanía y el personal del juzgado, para que puedan externar sus preocupaciones, preguntas y sugerencias sobre la actividad del juzgado, actos de corrupción, acoso y hostigamiento. Al mismo tiempo, promover y participar en encuentros comunitarios, donde las personas puedan compartir sus historias y experiencias, permitiendo así entender mejor sus realidades, problemas y necesidades.
+- Justicia para todos. Que todas las personas y no solo unos cuantos accedan a la justicia con políticas de inclusión y cercanía en colaboración con organizaciones educativas y civiles. Mediante redes sociales y campañas informativas fomentar los derechos de las personas, sus recursos y cómo hacerlos valer. Erradicar formalismos innecesarios que generan trabas en el acceso a la justicia, poniendo énfasis en robustecer la especial protección que merecen los grupos históricamente desventajados.
+

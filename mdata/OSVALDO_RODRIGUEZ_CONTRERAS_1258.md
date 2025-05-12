@@ -1,0 +1,76 @@
+Nombre Candidato: OSVALDO RODRIGUEZ CONTRERAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7775224599
+Correo Electronico: oswaldrod@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Antigüedad., Carrera Judicial, Certificación, Criminología, Defensa, Defensa Federal, Defensor Público Federal, Derecho Penitenciario, Derechos Humanos, Diplomados, Doctorado, Especialidades, Justicia en México, Justicia para Adolescentes, Maestría, Procuración de Justicia, Protección
+Tags Propósito: acceso a la justicia, aplicación de la ley, causas penales, cero favoritismo, contacto directo, credibilidad institucional, democracia, expedientes., humanización, imparcialidad, jueces humanistas, justicia renovada, justicia social, personas vulnerables, puertas abiertas, servicio público, transparencia
+
+
+## Descripción del Candidato 
+
+OSVALDO RODRÍGUEZ CONTRERAS es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para la entidad Morelos. Cuenta con 27 años de trayectoria en el ámbito judicial, incluyendo su labor como Defensor Público Federal, y posee un Doctorado, una Maestría, tres especialidades y nueve diplomados en temas de Derechos Humanos, Defensa Federal y Justicia para Adolescentes.
+
+Su motivación para buscar el cargo público se centra en el acercamiento con la sociedad, buscando que la ciudadanía conozca a quienes trabajan en el ámbito de la justicia social. Su visión para la función jurisdiccional y la impartición de justicia se enfoca en una justicia renovada, humana e imparcial, con un contacto directo con las personas que buscan amparo, y en fortalecer la credibilidad de las instituciones. Propone una nueva generación de jueces con visión humanitaria, la aplicación estricta de la ley sin favoritismos y mantener las puertas abiertas a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573917533976
+- https://x.com/OsvaldoRodrCont
+- https://www.instagram.com/osvaldorcontreras/
+- https://www.tiktok.com/@osvaldorodriguezcont
+
+
+## Cursos
+
+- Especialidad en Derecho Penitenciario y Criminología,Especialidad en Defensa Federal,Especialidad en Justicia para Adolescentes,Nueve Diplomados en materia de Derechos Humanos, en temas de Protección, Defensa, Procuración de Justica, Perspectiva
+- ,Examen de certificación para la Justicia en México
+- Defensores Públicos Federales y Actualizaciones en Defensa Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55448/10
+
+
+## Trayectoria Academica
+
+- Defensor Público Federal, doctorado, maestría, 3 especialidades, 9 diplomados, carrera judicial, 27 años de antigüedad
+
+
+## Motivo para buscar el Cargo Publico
+
+ES MUY IMPORTANTE EL ACERCAMIENTO CON LA SOCIEDAD, QUE CONOZCAN EN PERSONA QUIEN TRABAJA EN TEMA DE JUSTICIA SOCIAL.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+CONTACTO DIRECTO CON LAS PERSONAS QUEJOSAS, PERSONAS VULNERABLES, NO SON EXPEDIENTES NI NÚMERO DE CAUSAS PENALES, SON PERSONAS A QUIENES SE LES ESTÁ JUZGADO Y AYUDANDO A OBTENER DE MANERA EQUITATIVA UN DERECHO YA SEA BIEN O LIBERTAD, SE PUEDE TENER ESE ACERCAMIENTO PARA LOGRAR MAYOR CREDIBILIDAD EN LOS ÓRGANOS ENCARGOS DE ADMINISTRAR JUSTICIA, EL PUEBLO NECESITA CREER EN SUS INSTITUCIONES Y CAMBIAR LA VISIÓN QUE TIENEN DE LOS JUZGADORES FEDERALES, YA QUE HAY PERSONAS COMO YO DEDICADAS A SERVIR.
+
+
+## Vision sobre la Imparticion de Justicia
+
+DEMOSTRAR A LA SOCIEDAD QUE SE REQUIERE UNA JUSTICIA RENOVADA, HAY QUE REALIZAR CAMBIOS SIGNIFICATIVOS QUE NOS HACEN FORTALECER LAS INSTITUCIONES COMO EL IMPARTIR JUSTICIA, EL CIUDADANO NECESITA TENER DE CERCA Y SABER QUIÉN ESTÁ RESOLVIENDO SUS CONTROVERSIAS, ATENDER LA CAUSA DE PEDIR Y DEJAR A UN LADO LOS TECNICISMOS QUE MARGINAN A QUIEN NECESITA UNA VERDADERA JUSTICIA CLARA E IMPARCIAL.
+
+
+## Propuestas
+
+- JUSTICIA RENOVADA, SE REQUIERE DE UNA NUEVA GENERACIÓN DE JUZGADORES FEDERALES CON VISIÓN DE AYUDAR Y SER MAYORMENTE HUMANOS CON LA SOCIEDAD.
+- JUSTICIA IMPARCIAL MERECE ESTA SOCIEDAD, CERO FAVORITISMO, CERO TOLERANCIA, UNA VERDADERA APLICACIÓN DE LA LEY, HARÁ UN MÉXICO FUERTE Y DEMOCRÁTICO.
+- TENER SIEMPRE PUERTAS ABIERTAS AL PUEBLO QUE NECESITE EL ACERCAMIENTO CON UN JUZGADOR, QUE NO SOLO SEAN CAUSAS O EXPEDIENTES, DARLE AL PUEBLO DE MÉXICO UN PODER JUDICIAL CON UNA CREDIBILIDAD CON BASE EN JUZGADORES MÁS HUMANOS Y SERVICIALES.
+

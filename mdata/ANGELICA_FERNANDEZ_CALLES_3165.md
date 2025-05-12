@@ -1,0 +1,81 @@
+Nombre Candidato: ANGELICA FERNANDEZ CALLES
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: angelicafdzcalles@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, DDHH, España, Estados Unidos, Feminismo, Historia, ITESM, Mención Honorífica, Posgrado, Prueba, Práctica, Suprema Corte de Justicia, Teoría, Universidad de Girona, Universidad de Salamanca, Violencia de Género., Washington Center
+Tags Propósito: acceso a la justicia, contexto social, control de convencionalidad, derechos humanos, discrimincación., diversidad sexual, enfoque GESI, estructurales, formalismos, igualdad, justicia accesible, justicia con perspectiva, justicia humana, lenguaje claro, niñez y adolescencia, no revictimización, obligaciones constitucionales, perspectiva de género, transparencia, víctimas
+
+
+## Descripción del Candidato 
+
+Angélica Fernández Calles es candidata a Jueza/es de Distrito en Sonora, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría y cédula profesional, con formación académica que incluye estudios en México, España y Estados Unidos, con mención honorífica y un enfoque en Derechos Humanos y Feminismo. Su motivación para buscar el cargo es aportar su experiencia como jueza para construir una justicia accesible, humana y con perspectiva.
+
+En su visión sobre la función jurisdiccional y la impartición de justicia, destaca la importancia de una labor transversal, sensible al contexto social y a la historia del acceso a la justicia, aplicando estándares de derechos humanos y perspectiva de género. Sus propuestas incluyen la emisión de resoluciones sólidas y contextualizadas, la eliminación de formalismos excesivos en el lenguaje judicial y la aplicación oficiosa de la perspectiva de género, niñez, adolescencia, GESI y diversidad sexual en todos los casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Angélica Fdz Calles
+- https://www.instagram.com/angelicafcalles
+- https://www.tiktok.com/angelicafcalles
+
+
+## Cursos
+
+- Especialización en Obtención, Interpretación y Valoración de la Prueba
+- Universidad de Salamanca, España
+- ,Curso de Extensión Universitaria: Estándares de Prueba y Debido Proceso
+- Universidad de Girona, España
+- ,Diplomado en Amparo impartido por la Suprema Corte de Justicia de la Nación
+- ,Empowerment Seminar, impartido por The Washington Center, en la Ciudad de Washington, DC, Estados Unidos
+- ,Diplomado Feminismo: Historia, Teoría y Práctica
+- Por un Mundo sin Violencia de Género
+- Tecnológico de Monterrey (ITESM)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53053/11
+
+
+## Trayectoria Academica
+
+- Obtuve Mención Honorífica en grados y posgrados en México, España y Estados Unidos con enfoque de DDHH y Feminismo
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero aportar mi experiencia como jueza para construir una justicia accesible, humana y con perspectiva.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional exige una labor transversal. No basta con conocer el derecho o especializarse en una materia; se requiere sensibilidad ante la realidad social, el contexto nacional y la historia del acceso a la justicia. Juzgar implica actualizarse, ejercer control de convencionalidad, apoyarse en ciencias auxiliares y actuar con independencia, aplicando siempre perspectiva de género, enfoque GESI y estándares de derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la justicia como una función abierta, transparente y cercana a la sociedad. Debe evitar formalismos innecesarios y usar un lenguaje claro para que las personas comprendan sus procesos y ejerzan sus derechos. Las audiencias deben centrarse en el fondo del conflicto, sin dilaciones. Defiendo una justicia que proteja a las víctimas sin revictimizarlas, respetando también los derechos humanos de quienes enfrentan un proceso penal.
+
+
+## Propuestas
+
+- Las resoluciones judiciales deben ser técnicamente sólidas, pero también reflejar comprensión del contexto social. Juzgar desde una torre de marfil perpetúa desigualdades. Propongo decisiones que no solo respeten el marco legal, sino que garanticen un acceso real y efectivo a la justicia, especialmente para quienes han sido históricamente marginados del sistema judicial.
+- Propongo eliminar los formalismos excesivos que dificultan la comprensión de los procesos. El lenguaje judicial debe ser claro, libre de tecnicismos innecesarios, estereotipos y sexismo. Utilizar una comunicación accesible fortalece la transparencia, legitima el actuar judicial y permite que todas las personas comprendan qué se resolvió, por qué y cómo afecta su vida.
+- Juzgar con perspectiva no es un acto discrecional, es una obligación constitucional. Propongo aplicar de forma oficiosa la perspectiva de género, el enfoque de niñez y adolescencia, así como GESI y diversidad sexual, en todos los casos. Estas herramientas permiten detectar desigualdades estructurales y evitar que el proceso judicial se convierta en un espacio de discriminación o revictimización.
+

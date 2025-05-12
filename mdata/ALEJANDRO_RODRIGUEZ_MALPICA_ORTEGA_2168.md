@@ -1,0 +1,75 @@
+Nombre Candidato: ALEJANDRO RODRIGUEZ MALPICA ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5521419282
+Correo Electronico: alexrmalpica@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización., CENEVAL, Certificación, Derecho, Juicio de Amparo, Licenciatura, Materia Laboral, Solución de Conflictos, Suprema Corte, Tlalpan, Universidad del Valle de México
+Tags Propósito: Acceso a la Justicia, Audiencias., Conciliación, Derechos Ciudadanos, Derechos Laborales, Digitalización, Eficiencia, Expediente, Función Jurisdiccional, Juicios Rápidos, Justicia, Lenguaje Sencillo, Pruebas, Tabulación de Pagos, Transparencia
+
+
+## Descripción del Candidato 
+
+Alejandro Rodríguez Malpica Ortega es candidato a Jueces/es de Distrito en la Ciudad de México, postulándose para el Poder Legislativo Federal. Es Licenciado en Derecho por la Universidad del Valle de México, Campus Tlalpan, y cuenta con diversos cursos de actualización en derecho, incluyendo el Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación, y certificaciones en solución de conflictos laborales.
+
+Su motivación para buscar el cargo es promover juicios más rápidos, justos y comprensibles para los ciudadanos. Su visión se centra en salvaguardar los derechos laborales, valorar todas las pruebas y escuchar a las partes involucradas, promoviendo la conciliación y la digitalización del sistema judicial. Sus propuestas incluyen la tabulación de pagos a abogados en asuntos laborales, la eficientación de la función jurisdiccional mediante la digitalización y un sistema en línea para juicios, y la divulgación de los derechos de los ciudadanos durante los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FPXJAJpfd/?mibextid=qi2Omg
+- https://x.com/MalpicaAbogado?t=75OakMW2-UDB9SFIenwD0w&s=09
+- https://www.instagram.com/malpica_abogado?utm_source=qr&igsh=N201cmZrYzVnNHU=
+- https://youtube.com/@alejandrorodriguezmalpica?si=CzwOmc1d0AFDRML7
+- https://www.tiktok.com/@malpica.abogado?_t=ZM-8v4HxXcmTEk&_r=1
+
+
+## Cursos
+
+- REALICÉ EL EXAMEN CENEVAL EN EL 2019 CON LA CALIFICACIÓN SOBRESALIENTE PARA ACTUALIZACIÓN DE MIS ESTUDIOS EN DERECHO,REALICÉ EN 2021 EL DIPLOMADO JUICIO DE AMPARO 2021 IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN,EN DICIEMBRE DE 2022 OBTUVE EL CERTIFICADO  PARA LA SOLUCIÓN DE CONFLICTOS EN MATERIA LABORAL,EN DICIEMBRE DE 2022 OBTUVE EL CERTIFICADO  PARA LA SOLUCIÓN DE CONFLICTOS EN MATERIA LABORAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55162/11
+
+
+## Trayectoria Academica
+
+- ESTUDIÉ EN LA UNIVERSIDAD DEL VALLE DE MÉXICO CAMPUS TLALPAN LA LICENCIATURA EN DERECHO
+
+
+## Motivo para buscar el Cargo Publico
+
+Para promover juicios más rápidos, justos, entendibles para los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Salvaguardar los derechos laborales. Tomar en cuenta todas las pruebas en un juicio. Tomar en cuenta las manifestaciones, es ecir, escuchar atentamente a las partes que se hagan durante una audiencia. Invitar a la conciliación. Tratar los asuntos con rapidez. Innovar en la justicia como digitalizar la documentación
+
+
+## Vision sobre la Imparticion de Justicia
+
+El objetivo es que los ciudadanos durante un juicio puedan conocer su expediente, y saber con un lenguaje sencillo cuál es su situación jurídica.
+
+
+## Propuestas
+
+- Crear iniciativas para la Tabulación de pago a abogados en los asuntos en materia laboral
+- Eficientar la función jurisdiccional digitalizando la documentación y tener un sistema en línea para los juicios
+- Dar a conocer a las personas y ciudadanos los derechos que tienen durante la función jurisdiccional
+

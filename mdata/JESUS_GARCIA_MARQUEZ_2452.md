@@ -1,0 +1,74 @@
+Nombre Candidato: JESUS GARCIA MARQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 4772805118
+Correo Electronico: jzgarciamarquez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CEJUME, Crimenología, Decisiones Judiciales, Defensa Penal, Derecho, Derecho Procesal Penal, Derechos Humanos, Prueba Testifical, Psicología del Testimonio, Razonamiento Probatorio, Universidad de Girona, Valoración de Prueba.
+Tags Propósito: acceso a la justicia, audiencia, comunicación judicial, confianza ciudadana, derecho sustantivo, derechos humanos, dignidad humana, equidad, formalismo, imparcialidad, justicia, justicia material, legalidad, proceso judicial, protección de derechos., rendición de cuentas, seguridad jurídica, transparencia, trato digno
+
+
+## Descripción del Candidato 
+
+JESÚS GARCÍA MÁRQUEZ es candidato a Jueces/es de Distrito en Guanajuato, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal Penal y Derechos Humanos, con especialidad en Valoración de Prueba, y cuenta con diversas especializaciones y certificaciones en áreas como defensa penal, razonamiento probatorio y técnicas de interpretación judicial, obtenidas en México y España. 
+
+Su candidatura se basa en la motivación de contribuir a una justicia más cercana, transparente y humana. Propone fortalecer la imparcialidad y el trato digno en los procesos judiciales, mejorar la comunicación de los criterios judiciales a todos los niveles, y priorizar el derecho sustantivo sobre el formalismo procesal, para garantizar la efectividad de los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://jesusgarciamarquez.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15Q2Pr2nkr/
+- https://x.com/jessgarciamrqu1
+- https://www.instagram.com/garcia.marquez.jesus?igsh=MWZleGk0aDYzM3k4Yg==
+- https://www.tiktok.com/@jess.garca.mrquez?_t=ZM-8uvqWa8FuWF&_r=1
+
+
+## Cursos
+
+- Especialidad en Defensa Penal por el Instituto Federal de Defensoría Pública,Especialidad en Bases del Razonamiento Probatorio, Universidad de Girona, España,Certificación para la Justicia en México (CEJUME) por Centro de Estudios sobre la enseñanza y el Aprendizaje del Derecho,Diploma de Experto en Técnicas de Interpretación y Motivación de las Decisiones Judiciales, Universidad de Girona,Especialidad en prueba testifical desde el razonamiento probatorio y la Psicología del Testimonio, Universidad de Girona
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53242/11
+
+
+## Trayectoria Academica
+
+- Licenciatura Derecho y Criminología Maestría Derecho Procesal Penal y Derechos Humanos especialidad Valoración de Prueba
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a una justicia más cercana, transparente y humana, que escuche con empatía y resuelva con imparcialidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un servicio público de alto deber constitucional, cuyo eje central deben ser los derechos humanos de quienes acuden a los tribunales, la aplicación de la ley con objetividad, que genere la seguridad jurídica, actuar con imparcialidad y rendir cuentas de cada decisión bajo los principios de legalidad, equidad, independencia y respeto a la dignidad humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Un sistema de justicia que no levante muros, sino que construya puentes entre la ley y las personas. Una justicia transparente, sin privilegios, sino que rinda cuentas, genere confianza, escuche sin prejuicios y actúe sin corrupción, que brinde certeza jurídica, trato igualitario y respuestas claras para proteger los derechos de todas las personas, particularmente de quienes más lo necesitan.
+
+
+## Propuestas
+
+- Imparcialidad con trato digno y equitativo. La imparcialidad no solo debe observarse en la sentencia, sino sentirse desde el inicio del proceso. Propongo garantizar audiencias donde se escuchen con respeto, sin interrupciones innecesarias ni actitudes correctivas. La ciudadanía debe percibir que el juez no toma partido, que la decisión se basa en argumentos y no en posturas anticipadas, reflejando un trato procesal digno, equilibrado y profesional con todos los intervinientes.
+- Comunicación Judicial Abierta. Una justicia verdaderamente útil debe ser comprendida, difundida y dialogada. Propongo mejorar la comunicación social de los criterios judiciales, no solo entre juzgadores, sino también con fiscalías, defensorías, cuerpos de seguridad, universidades y sobre todo con la ciudadanía. Difundir las decisiones relevantes, promueve seguridad jurídica, coherencia institucional y confianza social en el sistema de justicia.
+- Prevalencia del derecho sustantivo sobre el formalismo. La función jurisdiccional debe privilegiar el derecho sustantivo, aquel que protege de manera directa los derechos, libertades y dignidad de las personas, por encima de los excesos del formalismo procesal. Cuando la forma prevalece sobre el fondo, se corre el riesgo de negar justicia en lugar de impartirla, el deber del juez es garantizar justicia material, haciendo que los derechos humanos sean efectivos, no solo reconocidos en papel.
+

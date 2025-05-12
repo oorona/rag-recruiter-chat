@@ -1,0 +1,76 @@
+Nombre Candidato: CAMELIA GASPAR MARTINEZ
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5573374713
+Correo Electronico: cameliagaspar2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CIESAS, Derecho Indígena, Derechos de las Mujeres Indígenas, Justicia, Liderazgos, Maestría., Mediación, Negociación, Procesos Electorales, Resolución de Conflictos, Sistemas Normativos Indígenas, UABJO, UNAM, Violencia Familiar
+Tags Propósito: acceso a la justicia, comunicación efectiva, contextualización, derechos humanos, diversidad cultural., enfoque interseccional, igualdad de oportunidades, igualdad sustantiva, justicia accesible, justicia intercultural, justicia pronta y expedita, justicia social, lenguas indígenas, no discriminación, perspectiva de género, pluralismo jurídico, políticas de cuidado, pueblos indígenas, resolución de conflictos, violencia de género
+
+
+## Descripción del Candidato 
+
+CAMELIA GASPAR MARTINEZ es candidata a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con maestría en Derecho Indígena y trayectoria enfocada en el cumplimiento de los derechos de las mujeres indígenas y sus pueblos. 
+
+Su motivación para buscar el cargo público se basa en su conocimiento de la realidad social y su deseo de fortalecer una justicia electoral intercultural.  Sus propuestas principales incluyen impulsar una comunicación efectiva y accesible en lenguas indígenas, promover una justicia cercana al pueblo con perspectiva de género e interseccional, y establecer políticas para incentivar espacios laborales libres de discriminación. Su visión de la función jurisdiccional y la impartición de justicia se centra en un enfoque de derechos humanos, la sensibilidad hacia grupos históricamente en desigualdad y la consideración del pluralismo jurídico y cultural.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.facebook.com/profile.php?id=61573792702620
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573792702620
+- https://x.com/camelia_gaspar
+- https://www.instagram.com/cameliagasparmartinez/
+- https://www.tiktok.com/@cameliagasparmartinez
+
+
+## Cursos
+
+- Diplomado Sistemas Normativos indígenas; procesos electorales y resolución de conflictos realizados en las CIESAS
+- ,Diplomado en línea  a la teoría e investigación  del 02 de febrero al 07 de junio 2016, UNAM,Diplomado  violencia familiar y  efectuado del 09 de noviembre 2012, UABJO,Diplomado  varias, liderazgos  efectuado del 06 de agosto al 25 de septiembre 2010,Diplomado  de conflictos, negociación, mediación, y justicia  2009
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15850/9
+
+
+## Trayectoria Academica
+
+- Maestra en derecho, indígena, ha incidido para el cumplimiento de los derechos de las mujeres indigenas y sus pueblos
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy mujer indígena conocedora de la realidad social, puedo aportar para fortalecer una justicia electoral intercultural.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene que ser desde un enfoque de derechos humanos, sensible, sobre todo a sectores que históricamenta han vivido en desigualdad; se debe ir más allá de los formalismos legales, resolver los casos a traves de resoluciones que abonen a la justicia real y social, a la igualdad sustantiva entre mujeres y hombres; tomando en cuenta la especificidad cultural de los pueblos indígenas y afromexicanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser accesible y real. Todas las personas, sin importar su origen, lengua indígena, género, o condición, tienen derecho a un sistema de justicia que: debe ser fácil de entender, estar alcance de todas y todos, considere los contextos y condiciones de los justiciables, reconozca el pluralismo jurídico y garantice una justicia con perspectiva intercultural, de género e intersecciónal y deberá ser pronta y expedita.
+
+
+## Propuestas
+
+- Impulsar una comunicación efectiva entre el sistema de justicia y la sociedad Es fundamental acercar la justicia electoral a todas las personas, eliminando barreras de lenguaje y comprensión. Promoveré la creación y difusión de materiales accesibles en formatos sencillos y en lenguas indígenas, garantizando el derecho a entender el sistema. Además, impulsaré la traducción e interpretación de sentencias, asegurando que los pueblos indígenas accedan plenamente a la justicia en su lengua.
+- Promover una justicia accesible y cercana al pueblo. La justicia debe ser comprensible y útil para todas y todos. Por ello, fomentaré el uso de un lenguaje claro en las resoluciones, facilitando su comprensión. Además, garantizaré que cada caso se resuelva con perspectiva de género, enfoque interseccional y, cuando corresponda, desde el pluralismo jurídico. Esto contribuirá a eliminar desigualdades estructurales y a erradicar la violencia contra las mujeres por razones de género.
+- Establecer políticas para incentivar espacios laborales libres de discriminación Para garantizar condiciones equitativas en el ámbito judicial, promoveré espacios libres de discriminación con políticas de igualdad de oportunidades, formación en derechos humanos y medidas contra la violencia laboral. Asimismo, impulsaré políticas de cuidado que permitan la conciliación entre la vida personal y profesional, reconociendo la corresponsabilidad del Estado.
+

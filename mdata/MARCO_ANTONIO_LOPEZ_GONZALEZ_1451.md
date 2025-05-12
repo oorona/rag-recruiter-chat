@@ -1,0 +1,84 @@
+Nombre Candidato: MARCO ANTONIO LOPEZ GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: lopezgonzalezmarcoan@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acoso Sexual, Catedrático, Catástrofes Naturales, Diplomas, Doctor en Derecho, Hostigamiento, Juicio de Amparo, Maestría en Amparo, Medalla de Honor., Métodos Alternos, Poder Judicial Federal, Procedimientos Civiles Federales, Suprema Corte, Versiones Públicas
+Tags Propósito: Asalto, Asesinato, Comunicación, Confianza pública, Corrupción, Denuncia, Derechos humanos, Desprotegidos., Escucha ciudadana, Honestidad, Igualdad, Imparcialidad, Justicia, Justicia social, Legalidad, Nepotismo, Profesionalismo, Protección al ciudadano, Rendición de cuentas, Robo, Servidores públicos, Servir al pueblo, Transparencia, Víctimas
+
+
+## Descripción del Candidato 
+
+MARCO ANTONIO LOPEZ GONZALEZ es candidato a Magistrado de Tribunales Colegiados de Circuito en Puebla, postulado por el Poder Ejecutivo Federal. Cuenta con doctorado y más de 17 años de trayectoria como servidor público. Su motivación para buscar el cargo se basa en una experiencia personal de impunidad relacionada con el asesinato de su padre, lo que lo impulsa a buscar impartir justicia.
+
+Su visión se centra en un sistema judicial profesional y transparente, con énfasis en la justicia social, la defensa de los derechos de los más vulnerables y la erradicación del nepotismo y la corrupción. Propone medidas concretas como la revisión exhaustiva de contrataciones, la instalación de buzones de denuncia y la comunicación semanal de los asuntos resueltos, buscando un acercamiento a la ciudadanía y la defensa de sus derechos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573262366694&mibex-tid=wwXIfr&mibextid=wwXlfr
+- https://www.instagram.com/doc.marco.lopez?igsh=am1zd3llbXFnMnlz&utm_-source=qr
+- https://www.tiktok.com/@doc.marco.lopez?_t=ZM-8utzpj608G6&_r=1
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo
+- Suprema Corte de Justicia de la Nación,Curso de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Curso de combate al hostigamiento y acoso sexual
+- Curso para generar espacios libres de violencia
+- ,Curso virtual de Elaboración de versiones públicas
+- Simposium Métodos alternos de solución de controversias
+- ,Curso Nociones Generales de los Procedimientos Civiles Federales
+- Curso Evacuación de edificios en catástrofes naturales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53912/10
+
+
+## Trayectoria Academica
+
+- DOC
+- EN DERECHO (promedio 9
+- 8), MAESTRÍA EN AMPARO (9
+- 7) Y CATEDRÁTICO
+- 9 DIPLOMAS Y 1 MEDALLA DE HONOR COMO ESTUDIANTE
+
+
+## Motivo para buscar el Cargo Publico
+
+CUANDO TENÍA 8 AÑOS ASESINARON A MI PAPÁ y NUNCA SE HIZO JUSTICIA, ¡BUSCO IMPARTIR LA JUSTICIA QUE NUNCA TUVE PARA MÍ!
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tienes derecho a servidores públicos PROFESIONALES (no improvisados), no tienes por qué pagar con tus impuestos por una persona que está aprendiendo, y aún no sabe hacer su trabajo. Los servidores públicos debemos estar PARA SERVIR AL PUEBLO, honrar su confianza, y dar lo mejor de nosotros por nuestro país. El trato debe ser HUMANO, REPESTUOSO y con actitud de ayudar siempre al que menos tiene. Sólo personas HONESTAS deben impartir justicia, dispuestas a luchar en contra del privilegio corrupto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quiero ser parte de UNA NUEVA JUSTICIA para México, porque he sufrido en mi persona el asesinato de mi papá, el robo de autopartes y el asalto en transporte público, por ende, entiendo el dolor y la molestia que tienen las personas cuando no se hace justicia. Estaré MÁS CERCANO A TI, ESCUCHANDO tus necesidades y NO SOLAPARÉ ningún acto de corrupción. Tengo más de 17 años como servidor público y nunca he tenido pareja sentimental, amante o familiar alguno en mi trabajo, NO HABRÁ NEPOTISMO.
+
+
+## Propuestas
+
+- CERO NEPOTISMO Y CERO CORRUPCIÓN. En 17 años trabajando nunca he tenido una pareja sentimental, amante, compadre, ni familiar cercano o lejano dentro del trabajo; por ende, no permitiré que las personas hagan del servicio público un negocio familiar. Se revisará a detalle a cada persona antes de ser contratada para acabar con esa mala práctica. Se instalarán buzones para denunciar a los que pidan dinero o favores indebidos, y se sancionará al que robe o traicione la confianza de la gente.
+- JUSTICIA SOCIAL. Se resolverá siempre atendiendo al que menos tiene, al más desprotegido y a la persona que no cuenta con recursos para allegarse de un buen abogado. Se tomará en cuenta lo que realmente pasó en cada caso concreto, y no cómo se pretende hacer creer con mentiras o trampas legales. Las sentencias buscarán acabar y sancionar la corrupción, así como proteger y reparar las violaciones a los derechos humanos de las personas que menos tienen.
+- COMUNICACIÓN Y DEFENSA DE DERECHOS. Cada semana se informará a la sociedad de los asuntos más relevantes que se han resuelto en el tribunal, y se realizarán videos informativos para que aprendan a defender sus derechos en asuntos similares. Se explicará con un lenguaje sencillo cómo pueden denunciar, quejarse o combatir la corrupción de autoridades, o cómo evitar que otras personas quieran defraudarlos o aprovecharse de ellos, para promover una cultura de defensa a los derechos humanos.
+

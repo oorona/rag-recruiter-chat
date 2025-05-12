@@ -1,0 +1,77 @@
+Nombre Candidato: ANGEL MARIO GARCIA GUERRA
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 8182028887
+Correo Electronico: angelmariogarciaguerra@gmail.com
+Numero de lista en boleta: 46
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Académico, Derecho, Derecho Mercantil, Derecho Procesal Penal, Doctorado, Educación, Licenciatura, Máster, Trayectoria.
+Tags Propósito: Acceso a la Justicia, Derechos Fundamentales, Eficiencia, Igualdad, Jurisprudencia, Justicia Social, Modernización, Poder Judicial, Poderes Fácticos., Reformas Judiciales, Revisión Jurisprudencial, Suplencia, Suprema Corte, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+ÁNGEL MARIO GARCÍA GUERRA es candidato a un puesto en la Suprema Corte de Justicia de la Nación, postulándose desde el Poder Judicial de la Federación y el Poder Legislativo Federal (lista 46). Cuenta con un doctorado en Derecho Procesal y una trayectoria académica en Derecho Mercantil y Procesal Penal. Su motivación para buscar el cargo es realizar cambios dentro del Poder Judicial en beneficio de la población mexicana.
+
+Su visión se centra en una revisión exhaustiva de la jurisprudencia de los últimos 40 años para corregir criterios que considere perjudiciales para la ciudadanía y favorecedores de grupos de poder. Propone una comisión para llevar a cabo esta revisión, limitar la suplencia en la queja a violaciones fundamentales y el impulso de tecnologías de vanguardia para agilizar y facilitar el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://angelmario.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/angelmariogarciaguerra
+- https://www.x.com/AngelMarioGar18
+- https://www.instagram.com/angelgarciaguerra
+- https://www.youtube.com/@AngelMarioGarcíaGuerra
+- https://www.tiktok.com/@angelmariogarciaguerra
+- https://www.facebook.com/angel.m.garciaguerra
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54/6
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Máster en Derecho Mercantil, Máster en Derecho Procesal Penal, Doctor en Derecho Procesal
+
+
+## Motivo para buscar el Cargo Publico
+
+Me interesa hacer un cambio real al interior del Poder Judicial de la Federación, en beneficio del pueblo de México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Me interesa hacer cambios radicales en la Suprema Corte de Justicia de la Nación, principalmente en el tema de la jurisprudencia, quiero hacer una revisión de todos esos criterios que se emitieron en perjuicio del pueblo y para favorecer a grupos específicos o poderes fácticos, y a través de un nuevo análisis, hacer todos los cambios necesarios para que la justicia sirva a los que más lo necesitan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En los últimos años se han privilegiado las formas por encima de la justicia; es importante que se dejen atrás todos esos formalismos para que haya un acceso real a la justicia que beneficie a todas las mexicanas y mexicanos.
+
+
+## Propuestas
+
+- Privilegiar el real y verdadero acceso a la justicia en condiciones de igualdad. Proponer una comisión de jueces, magistrados, colegios de abogados y facultades de derecho, para que en conjunto lleven a cabo una revisión de toda la jurisprudencia de los últimos 40 años, a fin de cambiar todas aquellas que hayan sido creadas para privilegiar a grupos de poder, o para negar acceso a la justicia a los más necesitados.
+- Limitar el uso de la suplencia en la queja, únicamente cuando exista una verdadera violación a derechos fundamentales que trasciendan al fondo del asunto, pero nunca por cuestiones formales.
+- Impulsar el uso de tecnologías de vanguardia para hacer los procesos más rápidos, eficientes y accesibles, de manera que todos y todas las mexicanas puedan beneficiarse de una justicia moderna y ágil.
+

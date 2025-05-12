@@ -1,0 +1,77 @@
+Nombre Candidato: MARIA DEL CARMEN MUÑOZ ALVARADO
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8180205388
+Correo Electronico: mcarmenmunozalvarado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CNDH., Derecho, Derechos Humanos, Expresión escrita, Expresión oral, Facdyc, Legal Enterprise Firm., Licenciatura en Derecho, Mediación, Mérito Académico, Promedio alto, Protección de datos, Resolución de conflictos, UANL
+Tags Propósito: Ley Federal del Trabajo, capacitación, derechos de las partes., derechos laborales, estado de derecho, función jurisdiccional, imparcialidad, independencia, justicia humanista, paz social, productividad, resolución de conflictos, responsabilidad social, seguridad jurídica, transparencia, ética
+
+
+## Descripción del Candidato 
+
+MARIA DEL CARMEN MUÑOZ ALVARADO es candidata a Jueza/es de Distrito en Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría y cédula profesional, siendo egresada de la Licenciatura en Derecho de la Facdyc de la UANL con mérito académico. Ha realizado cursos en temas de transparencia, mediación, derechos humanos y derecho aplicado a la empresa.
+
+Su motivación para buscar el cargo es brindar certeza y seguridad jurídica a la población mexicana. Su visión se centra en un servicio jurisdiccional de excelencia, interpretando y aplicando la ley de manera objetiva, particularmente en materia laboral, buscando la pronta resolución de casos y el desarrollo de los servidores públicos. Sus propuestas principales incluyen aumentar la productividad del Tribunal y promover una conciencia ética y de responsabilidad social en la resolución de conflictos laborales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574661997109
+- https://www.instagram.com/carmenmunoz4603/
+- https://www.youtube.com/@carmenmunoz4360
+
+
+## Cursos
+
+- Transparencia y protección de datos personales, impartido por la Facultad de Derecho y Criminología de la UANL,Mediación, introducción a la resolución de conflictos, impartido por el Colectivo Transdisciplinario de Ciencias Sociale,Fundamentos Del Derecho Aplicado En La Empresa, impartido por Legal Enterprise Firm
+- ,Las Empresas bajo el Enfoque de los Derechos Humanos, impartido por la CNDH
+- ,Expresión oral y escrita, impartido por la Facultad de Derecho y Criminología de la UANL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54088/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, egresada de la Facdyc de la UANL, obteniendo Mérito Académico con 99
+- 60 de promedio
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar certeza y seguridad jurídica al pueblo de México, aplicando la justicia con el humanismo requerido.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es proporcionar un servicio de excelencia, interpretando y aplicando la Constitución y las demás leyes de manera objetiva para garantizar que lo derechos de las partes sean respetados bajo los principios del derecho de trabajo. Mi propuesta es aumentar la productividad para ofrecer a las partes la pronta resolución de los casos concretos; así como capacitar y desarrollar a los servidores públicos a mi cargo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser reconocidos como el Tribunal laborla de asuntos individuales en donde se imparte justicia de manera humana, transparente, imparcial e independiente, contribuyendo al estado de derecho y la paz social. Mi propuesta es promover y desarrollar, en los servidores públicos a mi cargo, una conciencia ética y de responsabilidad social para atender los asuntos.
+
+
+## Propuestas
+
+- Aumentar la productividad del Tribunal, para resolver con prontitud y eficacia los procesos en materia de trabajo, conduciéndonos bajo los principios que exige la Constitución y la Ley Federal del Trabajo
+- Promover y desarrollar una conciencia ética para dirimir conflictos respecto a la responsabilidad laboral y seguridad social, con completa objetividad e imparcialidad, protegiendo los derechos de las partes.
+- No proporcionó
+

@@ -1,0 +1,73 @@
+Nombre Candidato: ELSA MARIA TORRES VALENZUELA
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: elsamariatorresvalenzuela@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación, Certificación, Derecho, Diplomado, Expresión Oral, Extinción de Dominio, Juicios Orales, Justicia para Adolescentes, Licenciatura, Maestría, Mediación, Sistema Penal Acusatorio, Taller., UDS, UNISON
+Tags Propósito: accesibilidad, agilidad, audiencias virtuales, derechos humanos, eficiencia, equidad, estado de derecho, imparcialidad, justicia, lenguaje claro, perspectiva social, prevención del delito, procesos ágiles., rehabilitación, reinserción social, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Elsa María Torres Valenzuela es candidata a Jueza/es de Distrito en Sonora, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho (UNISON) y Maestría en Juicios Orales (UDS), además de diversas certificaciones en áreas como ejecución de sanciones, justicia para adolescentes, mediación y extinción de dominio. 
+
+Su motivación para buscar el cargo público es lograr una justicia imparcial, transparente, efectiva y accesible. Su visión se centra en garantizar los derechos fundamentales, la aplicación imparcial de la ley y procesos ágiles. Sus propuestas incluyen la promoción de un sistema de justicia eficiente y accesible, evitar formalismos innecesarios en el lenguaje jurídico y el aprovechamiento de la tecnología, incluyendo audiencias virtuales, para facilitar el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1XPh6iPTGs/?mibextid=wwXIfr
+- https://www.x.com/ElsaTor38485095
+- https://www.instagram.com/lic.elsatorres?igsh=eHl2MHp3NTRhbXZz&utm_source=ig_contact_invite
+
+
+## Cursos
+
+- CERTIFICACIÓN EN EJECUCIÓN DE SANCIONES Y PENAS EN EL SISTEMA PENAL ACUSATORIO,CERTIFICACIÓN EN IMPARTICIÓN DE JUSTICIA PARA ADOLESCENTES EN EL SISTEMA PENAL ACUSATORIO,DIPLOMADO EN FORMACIÓN DE MEDIADORES,CAPACITACIÓN EN EXTINCIÓN DE DOMINIO,TALLER EN TÉCNICAS DE EXPRESIÓN ORAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55039/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho (UNISON) Maestría en Derecho (UNISON) Maestría en Juicios Orales (UDS)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para lograr una justicia imparcial, transparente, efectiva y accesible para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene como propósito garantizar la justicia, protegiendo los derechos fundamentales de las personas, aplicando la ley con imparcialidad y transparencia. Como juez, mi compromiso es y seguirá siendo asegurar que los procesos sean ágiles, respetuosos de los derechos humanos y promoviendo una justicia accesible, equitativa y con perspectiva social en el ámbito federal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un proceso transparente, equitativo y accesible para todos. Mi visión es garantizar que cada decisión, como hasta hoy, esté basada en la verdad, respetando los derechos humanos y principios fundamentales, con un enfoque integral que fomente la paz social y el fortalecimiento del Estado de Derecho. La justicia debe ser ágil, imparcial y contribuir a la prevención de delitos, así como a la rehabilitación y reinserción social de quienes infringen la ley.
+
+
+## Propuestas
+
+- Promoción de un sistema de justicia eficiente y accesible. Optimizar los tiempos de audiencias, para evitar retrasos innecesarios y asegurarte de que el sistema sea rápido, justo y accesible para las partes involucradas.
+- Evitar formalismos innecesarios. Emplear un lenguaje claro, fácilmente comprensible para los actores materiales  y  para lograr una mejor comprensión y transparencia.
+- Privilegiar el uso de tecnología, representada no sólo en el trámite, sino en el desarrollo de audiencias virtuales que permitan mayor y más fácil acceso a los intervinientes.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: JORGE EMILIO SANCHEZ CORDERO GROSSMANN
+Cargo: Magistratura Sala Superior del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: 14
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Ciencias Políticas, Columbia University, Derecho, Derecho Electoral, Diplomado., ITAM, Maestría, NYC, UNAM
+Tags Propósito: Acceso a la justicia, Algoritmo, Apertura procesos judiciales., Confianza ciudadana, Congruencia, Digitalización, Finanzas públicas, Honorabilidad, Humanismo jurídico, Humildad, Independencia judicial, Juez republicano, Materia electoral, Medio ambiente, Profesionalismo, Prudencia, Rendición de cuentas, Simplificación procesal, Transformación judicial, Transparencia judicial, Turno judicial, Visión social
+
+
+## Descripción del Candidato 
+
+Jorge Emilio Sanchez Cordero Grossmann es candidato al Poder Ejecutivo Federal, postulando a la Magistratura de la Sala Superior del Tribunal Electoral del Poder Judicial de la Federación (TE del PJF) bajo el número 14 en la boleta. Es abogado por el ITAM con Maestrías en Derecho y Ciencias Políticas por la Universidad de Columbia. Su trayectoria académica se complementa con un Diplomado en Derecho Electoral de la UNAM.
+
+Su motivación para buscar el cargo público es contribuir a una transformación del Poder Judicial con una visión social y humanista del Derecho. Entre sus propuestas destacan la digitalización de la justicia para agilizar trámites y transparentar procesos, la sistematización y simplificación de los medios de impugnación en materia electoral, y la publicación del algoritmo de turnos de los expedientes para garantizar la rendición de cuentas y la confianza ciudadana en los tribunales.  Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la independencia, prudencia, humildad, transparencia y la necesidad de justificar las decisiones jurídicas de manera pública.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://jorgesanchezcordero.com/
+
+
+## Redes Sociales
+
+- https://facebook.com/jsanchezcorderog
+- https://x.com/SanchezCorderoJ
+- https://instagram.com/jsanchezcorderog
+
+
+## Cursos
+
+- Diplomado en Derecho Electoral, UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/311/8
+
+
+## Trayectoria Academica
+
+- Abogado por el ITAM Maestro en Derecho y Maestro en Ciencias Políticas, ambas por la Universidad de Columbia, NYC
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la transformación del Poder Judicial imprimiendo una visión social y humanista del Derecho.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional impone una forma de vida para el juzgador al ser un empeño de enorme responsabilidad. Por eso, este oficio requiere de honorabilidad, profesionalismo y humildad. Ser juez no permite protagonismo, ni afanes individuales de fama e importancia, por el contrario, el cargo requiere de humildad en el actuar, modestia intelectual, serenidad en el juicio y prudencia en la resolución. Creo firmemente en el juez republicano: totalmente independiente, congruente y prudente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es mi convicción que el juzgador no sólo debe esforzarse en dar las razones jurídicas que sustenten sus fallos, esgrimiendo tanto los argumentos relacionados con los elementos fácticos del caso, como las disposiciones normativas que lo rigen, sino incluso, esclarecer las concepciones jurídicas que suscribe o con las que guarda adhesión el propio juzgador, con la finalidad de que todas ellas sean del dominio público y objeto de escrutinio generalizado.
+
+
+## Propuestas
+
+- La digitalización de la justicia es una cuenta pendiente, ya que agiliza los trámites y transparenta los procesos. Ello contribuye a elevar la calidad del servicio, al acceso a la justicia y a la rendición de cuentas, lo cual reditúa en una mayor legitimidad. La digitalización de los procesos judiciales tiene un impacto directo en las finanzas públicas, ya que los tribunales gastan miles de pesos del horario público en papel, y además contribuye positivamente al medio ambiente.
+- La sistematización y simplificación de los medios de impugnación en materia electoral es también una cuenta pendiente con la ciudadanía porque la multiplicidad de vías para impugnar diversos actos confunde a los afectados, no solo en cuanto a la reglas procesales de cada medio de impugnación, sino por cuanto a sus efectos jurídicos. La simplificación de las vías jurídicas es un ejercicio básico para garantizar el acceso a la justicia.
+- El turno en los tribunales es un elemento fundamental de cualquier órgano colegiado porque asigna el trabajo con base en distintas variables que son tomadas en cuenta para asignar un expediente a una ponencia. La publicación del algoritmo que maneja el turno de los expedientes es básico para la rendición de cuentas. La apertura de los procesos judiciales deben estar encaminados a fomentar la confianza de la ciudadanía en la toma de decisiones de los tribunales.
+

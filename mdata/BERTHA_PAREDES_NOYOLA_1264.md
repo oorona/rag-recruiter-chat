@@ -1,0 +1,76 @@
+Nombre Candidato: BERTHA PAREDES NOYOLA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7771794309
+Correo Electronico: bertha.pn.de@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Adolescencia, Autonomía Personal, Biología, Derecho, Derecho Ambiental, Derecho Penal., Derecho Procesal Familiar, Derecho Procesal Penal, Derechos Humanos, Ejecución Penal, Inteligencia Artificial, Juicios Orales Penales, Materia Administrativa, Niñez, Psicología, Seguridad Nacional, Telecomunicaciones, Trabajo Social, Violencia Vicaria, Víctimas
+Tags Propósito: automatización, constitución, derechos humanos, empático, formatos, justicia, legal., perspectiva de género, recursos humanos, sentencias, sociedad, transparencia, violencia laboral
+
+
+## Descripción del Candidato 
+
+Bertha Paredes Noyola es candidata al Poder Legislativo Federal, postulándose desde Morelos para una Magistratura de Tribunales Colegiados de Circuito. Cuenta con estudios de Maestría concluidos y una trayectoria académica en Derecho, siendo Licenciada por la Universidad Autónoma del Estado de Morelos y Maestrante en Juicios Orales Penales. Ha participado en diversos cursos y seminarios en áreas como pruebas periciales, justicia penal, derechos humanos, derecho procesal y temas relacionados con la violencia y la seguridad.
+
+Su motivación para buscar el cargo público se centra en aplicar un conocimiento jurídico y técnico con justicia, cercanía, sensibilidad y empatía hacia la población. Su visión de la función jurisdiccional es legal, justa y respetuosa de los Derechos Humanos, con perspectiva de género. Sus propuestas incluyen la redacción de sentencias técnicas pero de fácil comprensión, la modificación de sus formatos, y la optimización de recursos y automatización de procesos para prevenir la violencia laboral.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18aUkuDkMD/?mibextid=wwXIfr
+- https://x.com/paredes_noyola?s=21&t=G5qnWk3F0YkVDJhE3YUA4A
+- https://www.instagram.com/bertha.paredes.noyola?igsh=cXdxMGJ4eHNpNTVl
+- https://www.tiktok.com/@paredes.noyola?_t=ZM-8v6QkIkhC59&_r=1
+
+
+## Cursos
+
+- Seminario en Pruebas Periciales, Seminario en Justicia Penal, Seminario en Seguridad Nacional,Diplomado en Derecho Procesal Penal, en Materia de Víctimas, en Derecho Procesal Familiar, en Derechos Humanos,,Cursos Sobre Inteligencia Artificial, Derecho Ambiental, Ejecución Penal, la Biología y el futuro del Derecho Penal
+- ,Seminario en Seguridad Nacional, Seminario en Materia Administrativa y Telecomunicaciones
+- ,Seminario sobre Autonomía Personal de Niñas, Niños y Adolescentes, Violencia Vicaria, Psicología y Trabajo Social
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54872/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad Autónoma del Estado de Morelos, Maestrante en Juicios Orales Penales
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque además del conocimiento jurídico y técnico, se debe actuar con justicia cercana al pueblo, sensible y empática.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Legal y justa, teniendo como marco la Constitución Política de los Estados Unidos, y desde luego los Derechos Humanos y sobre todo resolver con perspectiva de género.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Transparente y cercana a la Sociedad
+
+
+## Propuestas
+
+- Sentencias si bien de contenido técnico, también de fácil lectura.
+- Modificación a los formatos de las sentencias.
+- Optimizar los recursos humanos y automatizar procesos en caso de que aplique, para efectos de evitar la violencia laboral.
+

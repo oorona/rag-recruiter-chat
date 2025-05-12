@@ -1,0 +1,90 @@
+Nombre Candidato: JOSE ABRAHAM CHIÑAS LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: joseabrahamchinas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Ceneval, Curso., Derecho Constitucional, Derecho Energético, Diplomado, Excelencia Académica, Formación Judicial, Oficial Judicial, Política de Competencia, Seminario, Universidad Anáhuac
+Tags Propósito: Acceso a la Justicia, Bienestar, Cercanía con la sociedad., Constitucionalidad, Convencionalidad, Derechos Humanos, Equidad, Estado de Derecho, Función Jurisdiccional, Impacto Social, Imparcialidad, Independencia Judicial, Justicia, Lenguaje Sencillo, Modernización, Perspectiva Social, Protección de Derechos, Resolución Clara, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+José Abraham Chiñas López es candidato a Juez/a de Distrito en Oaxaca, postulando al Poder Judicial de la Federación. Es Licenciado en Derecho, egresado de la Universidad Anáhuac Oaxaca con mención honorífica y reconocimiento a la excelencia Ceneval. Ha complementado su formación con diversos cursos y diplomados en áreas como derecho constitucional, energético, política de competencia y formación judicial, incluyendo uno sobre la generación de espacios libres de violencia.
+
+Su motivación para el cargo se centra en garantizar la justicia con imparcialidad y compromiso con los derechos de la sociedad. Su visión de la función jurisdiccional la concibe como un pilar del estado de derecho, destacando la importancia de la independencia judicial y la aplicación equitativa de la ley. Sus propuestas principales incluyen la redacción de resoluciones claras y accesibles, la protección de los derechos humanos y la consideración de la perspectiva social en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1J76uQFqvn/?mibextid=wwXIfr
+- https://x.com/josabrahamchia1?s=11
+- https://www.instagram.com/joseabrahamchinas?igsh=MXc2eHVpaHdhdzVsaQ3D3D&utm_source=qr
+- https://www.tiktok.com/@abraham_chinas?_t=ZM-8v3Q9s4WkR3&_r=1
+
+
+## Cursos
+
+- Seminario Internacional en Derecho Constitucional
+- Universidad la Salle
+- 2019
+- ,Diplomado en derecho energético
+- Escuela Libre de Derecho
+- Ciudad de México
+- 2023
+- ,Curso para generar espacios libres de violencia
+- Escuela Federal de Formación Judicial
+- 2024
+- ,Curso para acceder a la categoría de Oficial Judicial en el PJF
+- Escuela Federal de Formación Judicial
+- 2024
+- ,Curso de Política de Competencia en México
+- Comisión Federal de Competencia Económica
+- 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53072/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Universidad Anáhuac Oaxaca
+- Graduado con mención honorífica y acreedor al premio a la excelencia Ceneval
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez de Distrito para garantizar justicia con imparcialidad y compromiso con los derechos de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como el pilar que garantiza el Estado de derecho, donde la justicia debe impartirse con imparcialidad, transparencia y cercanía a la sociedad. Un juez no solo resuelve conflictos, sino que protege derechos y construye confianza en la institución judicial. Mi visión es fortalecer la independencia judicial, aplicar la ley con equidad y asegurar que cada resolución refleje un compromiso genuino con la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un pilar de equidad y protección, donde cada persona encuentre respuestas claras y oportunas. Visualizo un sistema judicial independiente, accesible y transparente, que garantice los derechos de todas y todos, especialmente de los más vulnerables. La modernización, la cercanía con la sociedad y la aplicación de la ley con perspectiva humanista son claves para consolidar un verdadero estado de justicia.
+
+
+## Propuestas
+
+- Resoluciones claras y accesibles. La justicia no debe ser un privilegio para quienes entienden el lenguaje técnico, sino un derecho accesible para todas las personas. Me comprometo a redactar resoluciones con base en la ley, con un lenguaje sencillo y estructurado, explicando cada decisión de forma clara. Así, cualquier persona podrá comprender el sentido de las sentencias, fortaleciendo la confianza en el sistema judicial y garantizando el acceso efectivo a la justicia.
+- Protección de los derechos humanos. Cada decisión judicial debe garantizar el respeto y la protección de los derechos humanos. Como juez de Distrito, aplicaré los principios de constitucionalidad y convencionalidad para asegurar que cada resolución sea justa y apegada a los estándares nacionales e internacionales. Mi objetivo es que la justicia se convierta en un verdadero instrumento de equidad y garantía de los derechos de todas las personas.
+- Perspectiva social en la impartición de justicia. La función jurisdiccional debe reconocer la realidad de quienes buscan justicia. Por ello, mis resoluciones tomarán en cuenta no solo el marco legal, sino también el impacto social de cada decisión. La justicia debe ser sensible a las condiciones de vulnerabilidad y debe responder con equilibrio, siempre priorizando el bienestar y los principios de equidad, sin perder de vista la imparcialidad y el respeto a la ley.
+

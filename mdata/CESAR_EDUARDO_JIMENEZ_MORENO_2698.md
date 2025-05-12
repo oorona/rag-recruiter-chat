@@ -1,0 +1,73 @@
+Nombre Candidato: CESAR EDUARDO JIMENEZ MORENO
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5576947833
+Correo Electronico: cesarejm5@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Bienes Raíces, Bolsa Mexicana de Valores, Delitos Fiscales, Derecho Administrativo, Derecho Inmobiliario, Desarrollo Inmobiliario, ESCUELA LIBRE DE DERCHO., Educación Continua, Fideicomisos, Instituto Tecnológico Autónomo de México, Maestría, Universidad Nacional Autónoma de México
+Tags Propósito: autoconcontención, derechos humanos, dignidad humana, eficacia judicial, equidad., imparcialidad, juicio de amparo, justicia accesible, justicia sustantiva, mérito profesional, nepotismo, poder judicial independiente, progresividad DDHH, rendición de cuentas, resolución de conflictos, sentencias definitivas, transparencia, vulnerabilidad, ética judicial
+
+
+## Descripción del Candidato 
+
+Cesar Eduardo Jimenez Moreno es candidato a Juez/a de Distrito, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría en Derecho Administrativo por la Universidad Nacional Autónoma de México y ha completado diversos diplomados en áreas como derecho inmobiliario, delitos fiscales y desarrollo inmobiliario.
+
+Su motivación para buscar el cargo se centra en garantizar un acceso a la justicia accesible y un Poder Judicial sensible y cercano a la población vulnerable. Su visión para la función jurisdiccional enfatiza la independencia, accesibilidad y compromiso con los derechos humanos. Sus propuestas incluyen una interpretación flexible del juicio de amparo priorizando la justicia sustantiva, combatir el nepotismo en el Poder Judicial mediante procesos de selección transparentes y evitar la emisión innecesaria de sentencias de amparo para efectos, buscando soluciones definitivas en los procesos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.linkedin.com/in/césareduardojiménez
+
+
+## Cursos
+
+- Diplomado en Derecho Inmobiliario, ESCUELA LIBRE DE DERECHO, (Sep
+- Feb 2017),Diplomado en Delitos Fiscales, ESCUELA LIBRE DE DERECHO (Feb 2017   Jun 2017),Diplomado en Desarrollo Inmobiliario, INSTITUTO TECNOLÓGICO AUTÓNOMO DE MÉXICO (2013   2014),Curso: Fideicomisos de Inversión y Bienes Raíces, BOLSA MEXICANA DE VALORES, ESCUELA DE NEGOCIOS (Agosto 2014)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53502/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Administrativo por la Universidad Nacional Autónoma de México
+- (Concluida)
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco garantizar justicia accesible, un Poder Judicial sensible, cercano a la gente y protector de sectores vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es un Poder Judicial independiente, accesible y comprometido con los derechos humanos, actuando con imparcialidad y sin influencia política. Es necesario contar con una judicatura que adopte la autocontención, respetando las competencias de cada poder del Estado, y que garantice justicia para todos, sin distingos de ninguna índole para fortalecer la confianza pública, asegurando que las decisiones se tomen con base en la ley y no bajo presiones externas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión se centra en la protección de los DDHH como pilares fundamentales de nuestro sistema. Es crucial que la justicia no solo contemple la resolución de conflictos, sino que también promueva la dignidad y el bienestar de todas las personas. El principio de progresividad exige que se avancen constantemente en el reconocimiento y la protección de los DDHH. Aspiro a que el juicio de amparo sea una herramienta accesible para todos, prinicipalmente para los sectores más vulnerables.
+
+
+## Propuestas
+
+- Implementación de un enfoque interpretativo del juicio de amparo que priorice la justicia sustantiva sobre el rigor técnico que obstaculiza la defensa de las causas más nobles. Propongo la creación de directrices que orienten a los juzgadores hacia una interpretación más flexible, promoviendo la equidad y garantizando que el juicio de amparo sirva como un verdadero mecanismo de protección de los DDHH, especialmente para las personas más vulnerables del país.
+- Combatir el nepotismo en el Poder Judicial. Propongo establecer procesos de selección transparentes para personal judicial, y que la carrera judicial se base en criterios objetivos y méritos profesionales. Implementar evaluaciones rigurosas y un código de ética que prohíba el nepotismo, con sanciones claras. Además, crear canales de denuncia seguros para reportar prácticas indebidas, asegurando que las decisiones se tomen con base en la capcacidad y no por vínculos familiares.
+- Evitar en lo posible la emisión de sentencias de amparo para efectos, que a menudo prolongan innecesariamente los procesos y generan mayores costos para los justiciables. Propongo que los juzgadores se enfoquen en resolver el fondo de los asuntos, evitando el reenvío como práctica habitual, priorizando decisiones que ofrezcan soluciones definitivas. Esta transformación fomentará una justicia más efectiva, garantizando que los derechos de las partes sean protegidos de manera expedita y efectiva
+

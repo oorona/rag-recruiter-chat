@@ -1,0 +1,86 @@
+Nombre Candidato: ALEJANDRO ALFREDO RODRIGUEZ ALATORRE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5547680927
+Correo Electronico: alejandroalfredorodriguezalato@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Administración de justicia, Derecho Bursátil, Derecho Fiscal, Experiencia profesional., Fintech, Formación Judicial, Función Jurisdiccional, Justicia Administrativa, Justicia Laboral, Precedentes judiciales
+Tags Propósito: Acceso a la justicia, Confianza ciudadana, Derechos humanos, Discapacidad, Diálogo ciudadano, Equidad, Equidad procesal, Estado de derecho, Impunidad, Justicia, Justicia cercana, Justicia comprensible, Legitimidad institucional, Lenguaje claro, Participación ciudadana., Perspectiva de género, Protección de derechos, Sentido social, Situación socioeconómica, Transparencia, Vinculación ciudadana
+
+
+## Descripción del Candidato 
+
+Alejandro Alfredo Rodríguez Alatorre es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde la Ciudad de México a través del Poder Ejecutivo Federal. Cuenta con más de dos décadas de experiencia en la administración e impartición de justicia, especializándose en Justicia Administrativa, y posee una Maestría con título profesional. 
+
+Su motivación para el cargo es consolidar una justicia cercana, equitativa y con sentido social, concibiendo la función jurisdiccional como un servicio público orientado a proteger derechos y corregir desigualdades. Sus propuestas principales incluyen promover un lenguaje claro en resoluciones judiciales, fortalecer la equidad procesal con enfoque diferenciado (género, discapacidad, situación socioeconómica) y establecer mecanismos de vinculación entre los tribunales y la ciudadanía. Se puede encontrar información adicional en su currículum vitae disponible en el enlace proporcionado y en sus perfiles en diversas redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573573036626
+- https://x.com/AlejandroARdz
+- https://www.instagram.com/alejandro_rdz_a/
+- https://www.youtube.com/@AlejandroRodrC3ADguezAlatorre
+- https://www.tiktok.com/@alejandro_rdz_a?lang=es
+- https://whatsapp.com/channel/0029Vb9sGsj2P59fItAHhM31
+
+
+## Cursos
+
+- Curso Cómo buscar, analizar y aplicar los precedentes judiciales
+- Centro de Estudios Carbonel
+- ,Diplomado Introducción a la Función Jurisdiccional
+- Instituto de la Judicatura Federal
+- ,Diplomado en Derecho Fiscal
+- Centro de Estudios Carbonel
+- ,Especialización sobre la Reforma en Materia de Justicia Laboral
+- Escuela Federal de Formación Judicial
+- ,Curso Aspectos jurídicos esenciales del derecho bursátil, Fintech y la evolución de los certificados de depósito
+- EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55275/10
+
+
+## Trayectoria Academica
+
+- Más de dos décadas en el ámbito de la administración e impartición de justicia
+- Especialista en Justicia Administrativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a ser Magistrado para consolidar una justicia cercana, equitativa y con sentido social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como un servicio público con profundo sentido social, orientado a proteger derechos y corregir desigualdades. La justicia debe ser cercana, comprensible y equitativa, con enfoque humano y sensibilidad institucional. Mi visión es fortalecer la confianza ciudadana mediante decisiones justas, claras y comprometidas con el Estado de derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe ser transparente, accesible y con sentido social. Es necesario superar el formalismo que ha alejado a la ciudadanía de los tribunales y construir un sistema que escuche, respete y resuelva. Mi visión es una justicia que cierre brechas, combata la impunidad y garantice que los derechos se ejerzan en condiciones reales de igualdad.
+
+
+## Propuestas
+
+- Justicia más cercana y comprensible. Promover el uso de lenguaje claro en resoluciones y comunicaciones judiciales, para que las personas comprendan las decisiones que les afectan, cerrando la brecha entre tribunales y ciudadanía.
+- Fortalecimiento de la equidad procesal. Impulsar criterios con enfoque diferenciado y humano, reconociendo que no todas las personas acceden en igualdad de condiciones al sistema de justicia. Esto incluye perspectiva de género, discapacidad y situación socioeconómica.
+- Vinculación con la ciudadanía. Impulsar mecanismos de diálogo entre tribunales y ciudadanía para conocer las necesidades de la sociedad. Esto incluye encuentros públicos, participación de la sociedad civil y difusión accesible de los derechos. Una justicia abierta fortalece la legitimidad institucional.
+

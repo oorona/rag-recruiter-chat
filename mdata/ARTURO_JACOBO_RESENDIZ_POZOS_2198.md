@@ -1,0 +1,72 @@
+Nombre Candidato: ARTURO JACOBO RESENDIZ POZOS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5554016696
+Correo Electronico: ajresendizpozos@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Derecho, Derechos Humanos, Género, Habilidades Directivas, Justicia, Libertad de Expresión, Licenciatura, Maestría, Protección de Periodistas, Universidad La Salle
+Tags Propósito: Acceso a la justicia, Confianza ciudadana, Cultura judicial, Descongestión judicial, Estado de Derecho, Impunidad, Inclusión social, Independencia judicial, Mediación, PJF, Resolución alternativa de conflictos, Resolución pacífica de conflictos., Tecnología, Transparencia, Vulnerabilidad, Ética judicial
+
+
+## Descripción del Candidato 
+
+ARTURO JACOBO RESENDIZ POZOS es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derechos Humanos, Impartición de Justicia y Género, así como especialización en Habilidades Directivas y el marco jurídico de la libertad de expresión. 
+
+Su motivación para buscar el cargo es contribuir al Poder Judicial de la Federación (PJF) con un enfoque integral, estructural y cultural. Sus propuestas centrales incluyen facilitar el acceso directo de la ciudadanía a la justicia, reducir la impunidad a través de un acceso confiable a la denuncia y la persecución judicial, y descongestionar el sistema judicial mediante el uso de tecnologías, la mediación y la resolución alternativa de conflictos. Su visión busca acercar la función judicial al ciudadano y fortalecer la independencia y ética judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@jacoboresendiz
+- https://www.instagram.com/jacobo_resendiz_pozos
+
+
+## Cursos
+
+- Especialidad en Habilidades Directivas,Marco Jurídico Internacional de la libertad de expresión, acceso a la información pública y protección de periodistas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54834/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad La Salle y Maestro en Derechos Humanos, Impartición de Justicia y Género
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir al PJF con un enfoque integral sustentado en dos ejes, el estructural y el cultural.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función judicial tiene que acercarse al ciudadano. La implementación de este nuevo sistema judicial accesible a la ciudadanía tendrá múltiples ventajas. Mayor confianza en la justicia, es decir, un sistema judicial accesible fomenta la transparencia y la percepción positiva del público hacia las instituciones, lo que fortalece la confianza en el Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La experiencia adquirida en la carrera judicial y en diversos órganos disciplinarios y administrativos en el Poder Judicial, me permiten identificar y promover estándares de ética judicial. La independencia judicial es un pilar fundamental del Estado de derecho, y fortalecerla, a través de un proceso democrático, coadyuvará con un cambio cultural que fomente la imparcialidad, el respeto a las decisiones judiciales y, sobre todo, la confianza ciudadana.
+
+
+## Propuestas
+
+- Acceso directo de la ciudadania.
+- Reducción de la impunidad, al facilitar el acceso a la justicia, se reducirá la posibilidad de que la comisión de delitos quede sin sanción, ya que las personas podrán acceder a la denuncia y a la prosecución judicial de manera confiable, lo que permitirá la inclusión social, permitiendo que los grupos más vulnerables (mujeres, personas con discapacidad, comunidades indígenas, entre otros) puedan ejercer plenamente sus derechos, contribuyendo a una sociedad equitativa e incluyente.
+- Descongestión del sistema judicial, incorporando el uso de herramientas tecnológicas, mediación y resolución alternativa de conflictos, lo que agilizará procesos y alivia la carga de los tribunales. El fomento de la resolución pacífica de conflictos generará la accesibilidad a mecanismos de mediación y conciliación, promoviendo la solución amistosa de controversias sin necesidad de largos litigios.
+

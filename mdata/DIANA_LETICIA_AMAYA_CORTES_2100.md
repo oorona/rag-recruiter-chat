@@ -1,0 +1,79 @@
+Nombre Candidato: DIANA LETICIA AMAYA CORTES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5529635644
+Correo Electronico: amayacdianal@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho, Derechos Humanos, Especialista, Formación Judicial, Género, Igualdad, Materia Laboral, Normas Internacionales, Prestaciones Laborales, Procuración, Reforma Laboral, UNAM, UVM
+Tags Propósito: Ambiente Laboral, Carga Laboral, Corrupción, Cumplimiento de la Ley, Derechos, Eficiencia, Expeditez, Función Jurisdiccional, Honestidad., Imparcialidad, Justicia, Legalidad, Proactividad, Resolución de Controversias, Sentencias Justas, Transparencia
+
+
+## Descripción del Candidato 
+
+Diana Leticia Amaya Cortes es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Procuración y Administración de Justicia y cédula profesional, siendo Licenciada en Derecho por la UNAM con especialización en Derechos Humanos. Ha realizado diversos cursos en materia de género, justicia laboral y derechos humanos a través de instituciones como la Escuela Federal de Formación Judicial y la UNAM.
+
+Su motivación para el cargo es impartir justicia en beneficio de la ciudadanía. Propone emitir sentencias justas basadas en principios legales, priorizar la resolución de casos conforme a derecho, evitar la corrupción, armonizar el ambiente laboral y ser una jueza proactiva para evitar el rezago en los juicios, buscando la verdad legal para una resolución justa y expedita. Su currículum vitae completo se encuentra disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/didi.amaya/?locale=es_LA
+- https://x.com/didi_amaya00?t=OfliV77UAxziSwIiiJJDsA&s=08
+- https://www.instagram.com/dianaleticia_amaya/?igsh=MTJsZzZrMTFzaW56aw3D3D#
+- https://www.tiktok.com/@dianalamayac?_t=ZM-8uwKI0778PV&_r=1
+
+
+## Cursos
+
+- Curso Género como Herramienta para la Igualdad, cuarta edición, en la Escuela Federal de Formación Judicial
+- ,Curso Juzgar con Perspectiva de Género en Materia Laboral, tercera edición, en la Escuela Federal de Formación Judicial
+- ,Taller Cálculo de Prestaciones Laborales, en la Escuela Federal de Formación Judicial
+- ,Actualización Sobre la Reforma en Materia de Justicia Laboral en el Instituto de la Judicatura Federal
+- ,Seminario Derechos Humanos y Normas Internacionales del Trabajo, en la Universidad Nacional Autónoma de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52158/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la UNAM, Especialista en Derechos Humanos UNAM y Maestra en Procuración y Adm
+- de Justicia UVM
+
+
+## Motivo para buscar el Cargo Publico
+
+Ocupar el cargo de jueza federal es mi mayor aspiración porque quiero impartir justicia en beneficio de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi compromiso se centra en emitir sentencias justas que beneficien a la ciudadanía, haciendo cumplir debidamente los principios de la función jurisdiccional, resolviendo controversias de manera imparcial, objetiva, profesional y con excelencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi propuesta consiste en que la ciudadanía tenga la plena certeza que todos los asuntos puestos a mi consideración se resolverán conforme a derecho, dándole oportunidad a las partes de obtener el derecho que buscan, cuando así proceda y acorde a la legalidad, sin retrasos y formalismos innecesarios, protegiendo en todo momento sus derechos y garantizando la emisión de sentencias justas.
+
+
+## Propuestas
+
+- Evitar y erradicar la corrupción, resolviendo únicamente con lo que se encuentra probado en el juicio, escuchando a las partes y permitiendo que expresen lo que a su derecho convenga, respetando sus posturas y explicándoles el porqué se resuelve en determinado sentido.
+- Armonizar el ambiente de trabajo, evitando jornadas excesivas para el personal, reconociendo su esfuerzo, entrega y dedicación en el desempeño de sus funciones, así como respetar y valorar el trabajo de cada integrante del órgano jurisdiccional, logrando así que las cargas laborales no sean insuperables por el contrario se vuelvan un reto fácil de cumplir de manera conjunta.
+- Cumplir con la obligación de ser una jueza proactiva, buscando la verdad legal sin esperar a que las partes señalen el desahogo de una prueba, la celebración de una diligencia, la investigación de un tema en específico, entre otras, según las necesidades del caso, impulsando el procedimiento para evitar el rezago innecesario de los juicio y emitir sentencias de forma justa y expedita.
+

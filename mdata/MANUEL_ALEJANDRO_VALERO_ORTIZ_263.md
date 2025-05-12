@@ -1,0 +1,79 @@
+Nombre Candidato: MANUEL ALEJANDRO VALERO ORTIZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6862363417
+Correo Electronico: valeroortizmanuelalejandro@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Laboral, Derechos Humanos, Juicio de Amparo, Legitimidad Judicial, Licenciatura en Derecho, Maestría en Derechos Humanos., Reforma Laboral, Sistema Penal Acusatorio, Suprema Corte, Ética Judicial
+Tags Propósito: Capacitación, Confianza, Derechos Humanos, Eficiencia, Equidad, Estado de Derecho, Igualdad, Imparcialidad, Integridad, Justicia, Legalidad, Paz, Recursos Públicos, Rendición de Cuentas, Responsabilidad., Sentencias Justas, Sistema Judicial, Transparencia, Vulnerables
+
+
+## Descripción del Candidato 
+
+MANUEL ALEJANDRO VALERO ORTIZ es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en Baja California. Cuenta con Maestría en Derechos Humanos y una Licenciatura en Derecho por el Cetys, complementada por diversos diplomados en áreas como Juicio de Amparo, Derecho Laboral, Derechos Humanos y el Nuevo Sistema de Justicia Penal Acusatorio.
+
+Su motivación para el cargo se centra en la promoción de la justicia, equidad e igualdad en el país, visualizando la función jurisdiccional como un pilar del Estado de Derecho y la base para una sociedad justa. Su candidatura se basa en tres propuestas principales: compromiso con la eficiencia y justicia en las sentencias, uso eficiente de los recursos públicos y fortalecimiento de la transparencia y rendición de cuentas dentro del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18mzBsVfVV/?mibextid=wwXIfr
+- https://www.instagram.com/alex__valero_ortiz?igsh=MW5kcXBxNTB2b20xdQ==
+- https://www.tiktok.com/@alexvaleromxl?_t=ZM-8v6UBJ52sNj&_r=1
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo edición 2022
+- Suprema Corte de Justicia de la Nación
+- ,Seminario Permanente sobre Derecho al Trabajo y Reforma Laboral
+- La audiencia preliminar en el procedimiento laboral
+- ,Diplomado en Derechos Humanos, Instituto de la Judicatura Judicial
+- ,Diplomado Sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Seminario Ética y legitimidad judicial La concepción estándar de la ética profesional y sus críticas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55389/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Cetys; Maestría en Derechos Humanos, Instituto de Estudios Superiores en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para mí, ser un buen Magistrado significa: Trabajar para que en nuestro País prevalezca la justicia, equidad e igualdad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia no es solo para los astutos, sino para todos. Un buen Magistrado debe construir el Estado de Derecho a través de sus decisiones, guiadas por el conocimiento de la Ley y la Justicia. Esto es esencial para el fortalecimiento y la visión del nuevo sistema judicial en México. La justicia no debe ser vista únicamente desde un enfoque legal, ya que es la base de cualquier sociedad. Cuando existe justicia, hay paz y la certeza de que lo ¿malo¿ será castigado y lo ¿bueno¿ premiado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El nuevo proceso de selección de Magistrados representa un reto y una oportunidad histórica para renovar el sistema judicial y devolver la confianza en la justicia. Un buen Magistrado debe ser alguien comprometido con los más vulnerables, utilizando su conocimiento y capacidad legal para resolver los problemas sociales. Una sentencia justa, alejada de intereses económicos o de poder, representa una nueva esperanza para aquellos que han perdido la fe en la justicia.
+
+
+## Propuestas
+
+- 1. Compromiso con la eficiencia y justicia en las sentencias Me comprometo a dictar sentencias de manera eficiente, justa y adecuada, asegurando que cada resolución esté basada en un análisis profundo y un firme apego a la legalidad. Como magistrado, mi labor se centrará en garantizar que la justicia sea impartida con imparcialidad, respetando siempre los derechos de las personas y adaptándome a los cambios sociales y legales.
+- 2. Uso eficiente de los recursos públicos. Me comprometo a implementar mecanismos que permitan un uso eficiente de los recursos públicos dentro del Poder Judicial. La correcta administración de los recursos será clave para garantizar que el servicio judicial sea oportuno, accesible y con altos estándares de calidad. 2.1 Capacitación y preparación constante. El ejercicio de la magistratura requiere un compromiso continuo con el aprendizaje. Me comprometo a mantenerme en constante capacitación.
+- 3. Fortalecimiento de la transparencia y rendición de cuentas. Si llego a ser magistrado, promoveré mecanismos de trabajo que garanticen la transparencia en todas las decisiones judiciales. La rendición de cuentas será uno de los pilares de mi actuación, permitiendo que la ciudadanía confíe en que sus derechos y recursos están siendo manejados con la máxima integridad y responsabilidad.
+

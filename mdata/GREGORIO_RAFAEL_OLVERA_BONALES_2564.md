@@ -1,0 +1,74 @@
+Nombre Candidato: GREGORIO RAFAEL OLVERA BONALES
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3334089851
+Correo Electronico: rafahumanista85@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Diplomado, Especialización., Formación Académica, Impartición de Justicia, Justicia Cívica, Materia Laboral, Materia del Trabajo, Sistema Acusatorio Adversarial
+Tags Propósito: Capacitación judicial, Carrera judicial, Corrupción, Digitalización, Diligencia, Eficiencia, Función jurisdiccional, Integridad, Juicios rápidos, Justicia laboral, Nepotismo, Notificaciones electrónicas, Pericia., Servidor público, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+GREGORIO RAFAEL OLVERA BONALES es candidato a Jueces/as de Distrito en JALISCO, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría y una trayectoria académica enfocada en la impartición de justicia. Su motivación para buscar el cargo se basa en su integridad, valores, y comprensión de la responsabilidad que implica el puesto de servidor público.
+
+El candidato basa su visión en mejorar la función jurisdiccional a través de la capacitación técnica de los jueces y la agilización de procedimientos mediante la digitalización, especialmente en materia laboral. Sus propuestas incluyen la implementación de una carrera judicial eficiente con exámenes rigurosos, la capacitación continua del personal, y la adopción de herramientas digitales para acelerar los juicios laborales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574545
+- https://www.instagram.com/greg.oriorafaelhumanista?igsh=eXBhb296djgxdjVx&utm_source=ig_contact_invite
+- https://www.tiktok.com/@gregoriorafael02?_t=ZM-8v5Rlardz0w&_r=1
+- https://www.facebook.com/share/1BcpDZm5T5/985684
+
+
+## Cursos
+
+- Especialidad en Materia del Trabajo,Especialización en Materia del Trabajo,Diplomado en Materia Laboral,Diplomado en el Sistema Acusatorio Adversarial,Diplomado para Personas Operadoras en el Nuevo Modelo de Justicia Cívica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54332/11
+
+
+## Trayectoria Academica
+
+- Mi formación siempre ha sido en los órganos de impartición de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona integra, con valores y honesto, soy servidor público y entiendo la responsabilidad que tiene el cargo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Su servidor actualmente se encuentra laborando en el Quinto Tribunal Laboral Federal de Asuntos Individuales en el Estado de Jalisco, con sede en Zapopan, conozco la función jurisdiccional a fondo, la gran cantidad de trabajo que cuentan los órganos de justicia en materia laboral, sin embargo, puedo observar que es posible mejorar la labor jurisdiccional, siendo más técnicos en muchas determinaciones que se indican y agilizando los procedimientos de manera electrónica y digital.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la visión de la ciudadanía es casi inexistente, el acceso a la justicia para las personas más vulnerables es casi nulo, el ciudadano promedio, encuentra tedioso el tema de la justicia porque considera que en poco o nada le favorece, que al acudir ante alguna autoridad en busca de la resolución de problemas de carácter legal, encontrarán un sinfín de problemas y obstáculos para conseguir obtener justicia, ademas la corrupción y el nepotismo, agudizan el problema social.
+
+
+## Propuestas
+
+- El juez es el encargado de la vigilancia de los procesos jurisdiccionales, por lo tanto, la capacitación de los jueces es elemental para que adquieran pericia, para que puedan administrar un juzgado con orden y diligencia.
+- Se propone implementar una carrera judicial eficiente y vigilada con exámenes verdaderamente vigilados para los concursantes y que las plazas a concurso sean para el rango inmediato inferior, para efectos de motivar al personal a continuar capacitándose y aprendiendo métodos para desarrollar con más diligencia su trabajo.
+- Los juicios en materia laboral, podrian ser mas rápidos si se llevaron a cabo de forma electrónica y digitalmente, pues hay muchas notificaciones que podrían notificarse de esta manera, con sus excepciones como el emplazamiento, de igual manera la audiencia preliminar seria mas sencilla y rapida.
+

@@ -1,0 +1,71 @@
+Nombre Candidato: DIANA LAURA RUIZ ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: dianalaura_b@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Procesal, Licenciatura, Maestría, PJF, Secretarias
+Tags Propósito: Accesibilidad, Artículo 17 Constitucional, Contexto Social, Derechos Humanos, Descapitalización, Fondo del Asunto, Formalismos Procedimentales, Garantía de Derechos, Justicia, Navegación, Sociedad Mexicana., Themis
+
+
+## Descripción del Candidato 
+
+Diana Laura Ruiz Ortega es candidata a Jueza/es de Distrito por Baja California Sur, postulada por el Poder Legislativo Federal. Cuenta con estudios de Licenciatura y Maestría en Derecho, respaldados por su cédula profesional y un curso en el Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo se basa en un compromiso con la sociedad mexicana y la búsqueda de la justicia. Propone priorizar el fondo de los asuntos sobre los formalismos procedimentales, proteger el contenido mínimo esencial de los derechos humanos y lograr una justicia accesible, entendiendo el contexto social de cada caso. Su visión de la función jurisdiccional se centra en la aplicación de valores y principios para navegar hacia la justicia, y en una impartición de justicia que se acerque a los problemas sociales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/dianalauraruizortega?igsh=MXV4a2Y1aDQ5MWVxZg3D3D&utm_source=qr
+
+
+## Cursos
+
+- CURSO DE PERSONAS SECRETARIAS DEL PJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54620/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho Maestría en Derecho Procesal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo un compromiso con la sociedad mexicana y es buscar la justicia en el horizonte.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Con valores y principios que dirijan el estudio de las normas jurídicas, la persona juzgadora puede navegar en búsqueda de la justicia, aquel punto caprichoso en donde el cielo y el mar parecen unirse. Descapitalizar los derechos humanos para que verdaderamente se garantice el contenido mínimo esencial de cada elemento que nos integra, ese debería ser uno de los muchos objetivos del juicio de amparo; dejar los formalismos procedimentales para que el fondo de los asuntos no tarde años.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Hacer valer una venda en los ojos diferente, la Diosa de la justicia, Themis, ha cambiado de tela y ahora juzga desde el acercamiento con las personas, en búsqueda de los problemas sociales para brindar aquello que siempre se ha exigido en las calles. Una justicia diferente para una sociedad diferente. No se trata de saber quién la exige, pero sí todo el contexto social en el que se integra. Se debe impartir justicia como si cada asunto fuese una nueva navegación.
+
+
+## Propuestas
+
+- Privilegiar el fondo de los asuntos sobre los formalismos procedimentales. Hacer valer el artículo 17 constitucional.
+- Proteger el contenido mínimo esencial de cada derecho humano.
+- Descapitalizar los derechos humanos con una justicia accesible.
+

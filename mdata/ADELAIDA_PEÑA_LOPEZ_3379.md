@@ -1,0 +1,73 @@
+Nombre Candidato: ADELAIDA PEÑA LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: MUJER
+Telefono: 9996504291
+Correo Electronico: adelaidapl1090@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Comisión Nacional de Derechos Humanos, Derecho, Derechos Humanos, Diversidad Sexual, Doctorado, Género, Juicio de Amparo, Licenciatura., Litigación Oral, Maestría, No Discriminación, Procuración de Justicia, Suprema Corte de Justicia, Ética Pública
+Tags Propósito: Acceso a la justicia, Amparo, Ciudadanía, Confianza institucional, Derechos Humanos, Eficiencia, Expedientes, Igualdad, Imparcialidad, Jurisdiccional, Justicia, Mejora continua, Normativa legal, Protección legal., Resolución de conflictos, Transparencia, Trato digno, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Adelaida Peña López es candidata a Jueza/es de Distrito en Yucatán, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derechos Humanos, además de maestría y licenciatura en Derecho. Su trayectoria académica se complementa con diversos diplomados en temas de acceso a la justicia, derechos humanos y litigación, incluyendo formación en perspectiva de género y diversidad sexual.
+
+La candidata basa su motivación en la experiencia y preparación adquirida para el cargo. Su visión se centra en impartir justicia de manera eficiente, transparente e imparcial, priorizando los derechos humanos y garantizando el acceso a la justicia para toda la población. Entre sus propuestas se incluyen abatir el rezago de expedientes, realizar un análisis exhaustivo de los casos considerando normas nacionales e internacionales, y otorgar un trato digno y atención personalizada a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.facebook.com/share/18btCeE77A/?mibextid=wwXIfr
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18btCeE77A/?mibextid=wwXIfr
+- https://www.instagram.com/adelaida1190/?igsh=ZnBxOXQ5ejRhcTBz&utm_source=qr#
+- https://www.tiktok.com/@adepl?_t=ZM-8v5xcLxfHjK&_r=1
+
+
+## Cursos
+
+- Diplomado Acceso a la Justicia en Materia de Derechos Humanos, por parte de la Suprema Corte de Justicia de la Nación,Diplomado Juicio de Amparo, por parte de la Suprema Corte de Justicia de la Nación,Diplomado de Derechos Humanos desde la Perspectiva de Género de la Comisión Nacional de Derechos Humanos,Curso Nueva Ética e Integridad en el Servicio Público de la Secretaría de la Función Pública,Curso de Diversidad Sexual, Inclusión y No Discriminación del Consejo Nacional para Prevenir la Discriminación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54855/11
+
+
+## Trayectoria Academica
+
+- Doctora en Derechos Humanos, Maestría en Procuración Administración de Justicia y Litigación Oral, Licenciada en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que tengo la experiencia y preparación requerida para desempeñar el cargo de Jueza de Distrito.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Me centrare en impartir justicia de manera eficiente, transparente e imparcial, emitiendo resoluciones de manera pronta y expedita, siempre con apego a ley; aplicando la mejora continua en los procesos jurisdiccionales. Al hacerlo, no solo estaría cumpliendo con mi labor de juzgadora, sino que también estaría restaurando la confianza en las instituciones y en el sistema de justicia; construyendo un entorno donde cada persona se sienta protegida y valorada por la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi objetivo principal es desempeñarme a favor de los Derechos Humanos, en donde la ciudadanía reciba un trato digno y humanista; lo que implica que escuchare de manera directa y activa a las personas que busquen el amparo de la ley, ante posibles violaciones a sus derechos humanos por parte de las autoridades. Garantizando el acceso a la justicia a toda la población, sin importar origen étnico, género, discapacidad, condición social, religión, ideología y preferencia u orientación sexual.
+
+
+## Propuestas
+
+- Abatir el rezago de los expedientes jurisdiccionales, impulsando una justicia pronta y expedita; con la finalidad de restaurar la confianza en las instituciones y en el sistema de justicia.
+- Analizar y resolver de manera exhaustiva los expedientes jurisdiccionales, realizando una ponderación entre las normas estatales, nacionales e internacionales; aplicando la norma que mas le favorezca a la persona que solicite el amparo de la ley.
+- Otorgar un trato digno a las personas, lo que implica que escuchare de manera personal a la ciudadanía que busque el amparo de ley ante posibles violaciones a sus derechos humanos; así como, resolver dudas y/o aclaraciones del estatus de su expediente judicial.
+

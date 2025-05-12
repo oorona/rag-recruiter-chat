@@ -1,0 +1,71 @@
+Nombre Candidato: MARIA GUADALUPE GAMEZ BEAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8341440989
+Correo Electronico: gabg1@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Procesal Penal, Feminicidio, Formación Jurisdiccional., Impartición de Justicia, Justicia Penal, Prevención de la Tortura, Proceso Penal Acusatorio, Recursos Penales, Segunda Instancia, Sistema Penal
+Tags Propósito: acceso a la justicia, bien común, derechos, eficiencia, estado de derecho, justicia, legalidad, perspectiva de género, profesionalismo, rendición de cuentas, resolución expedita, sentencias públicas., transparencia
+
+
+## Descripción del Candidato 
+
+María Guadalupe Gamez Beas es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en representación de Tamaulipas. Cuenta con maestría en Impartición de Justicia y Derecho Procesal Penal, complementada por diversos cursos especializados en justicia penal, feminicidio y derechos humanos. 
+
+Su motivación para buscar el cargo público es servir al país con una justicia pronta y eficaz, protegiendo los derechos ciudadanos. Su visión de la función jurisdiccional y la impartición de justicia se centra en la eficiencia, transparencia, legalidad y el equilibrio entre las partes. Sus propuestas incluyen brindar certeza jurídica con perspectiva de género, agilizar la emisión de resoluciones y difundir las versiones públicas de las sentencias.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/MarC3ADa-Guadalupe-GC3A1mez-Beas/61574423504607/
+
+
+## Cursos
+
+- DIPLOMADO PROGRAMA DE FORMACIÓN JURISDICCIÓN EN EL SISTEMA DE JUSTICIA PENAL,CURSO FEMINICIDIO Y SUS EXPECTATIVAS FRENTE AL SISTEMA PENAL EN MÉXICO,CURSO EL NUEVO SISTEMA DE JUSTICIA PENAL CON ENFASIS EN LA SEGUNDA INSTANCIA,CURSO ACTUACIÓN DE LAS Y LOS JUZGADORES EN MATERIA DE PREVENCIÓN Y ERRADICACIÓN DE LA TORTURA,CURSO LOS RECURSOS EN EL PROCESO PENAL ACUSATORIO Y ORAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53194/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Imparticion de Justicia y Maestría en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Con el propósito de servir, de honrar a mi País con una justicia pronta, expedita, protegiendo y cumpliendo los derecho
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Confiable, accesible, resolver con base a la ley y a hechos probados
+
+
+## Vision sobre la Imparticion de Justicia
+
+Eficiente, transparente, para garantizar el estado de derechos, logrando un equilibrio entre las partes y promover el bien común. Que nadie está por encima de la ley, la justicia prevalece.
+
+
+## Propuestas
+
+- Brindar certeza en cada uno de los asuntos con legalidad, profesionalismo y con perspectiva de género.
+- No habrá dilación en las resoluciones.
+- Dispuesta a establecer mecanismos para difundir las versiones públicas de las sentencias.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: NADIA SOCORRO MORENO JIMENEZ
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: MUJER
+Telefono: 6121689150
+Correo Electronico: morenojimeneznadiasocorro@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Competencia Constitucional, Derecho, Derecho Fiscal, Formación Judicial, Justicia., Juzgado, Licenciatura, Maestría, Poder Judicial, Secretarios, Tribunal
+Tags Propósito: asesoría jurídica, capacitación, conocimiento ciudadano., derechos, diligencia, eficiencia, elecciones de jueces, honestidad, independencia, integridad, jueces, justicia, justicia cercana, justicia pronta, personal judicial, preparación, rectitud, reputación, sensibilidad, transparencia
+
+
+## Descripción del Candidato 
+
+Nadia Socorro Moreno Jimenez es candidata a Jueza/es de Distrito en Guerrero, postulándose en la vía En Funciones. Cuenta con un doctorado y cédula profesional, respaldada por una formación académica que incluye licenciaturas en Derecho, maestría en Derecho Fiscal, Competencia Constitucional y cursos especializados en el Poder Judicial de la Federación. 
+
+Su motivación para buscar el cargo se centra en continuar impartiendo justicia de manera independiente, diligente y sensible. Sus propuestas incluyen el incremento de jueces y personal judicial mejor preparados, la implementación de módulos de asesoría jurídica en colonias y la creación de espacios para la transparencia en las decisiones judiciales, buscando una justicia pronta, expedita, cercana y con respeto a los derechos de todos.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BYWxDVVED/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Licenciatura en Derecho, Universidad Autónoma de la Laguna,Maestría en Derecho Fiscal, en el Colegio Mayor de San Carlos,Maestría en Competencia Constitucional y Ordinaria, en la Escuela Federal de Formación Judicial
+- ,Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, Quinta Generación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54338/11
+
+
+## Trayectoria Academica
+
+- Inició en mi ciudad natal, ahí concluí mi licenciatura en derecho
+- Eternamente enamorada de la justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero continuar impartiendo justicia de forma independiente, diligente y desde siempre, de manera sensible.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Seguir realizando esta función, con la preparación, honestidad, integridad, capacidad y sensibilidad que el cargo requiere.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia requiere preparación, rectitud, capacidad de trabajo, conocimiento y sensibilidad a los retos que enfrenta nuestro país, con una visión cálida y humana. Tratándose de materia penal, se incrementa la necesidad de sensibilidad y rectitud en el actuar, para que nunca, una persona inocente se encuentre en prisión, pero tampoco, una persona que ha dañado a la sociedad, quede sin castigo, dañando más. Tener como estandarte, el respeto a los derechos de todos.
+
+
+## Propuestas
+
+- Más jueces, mejor preparados, mejor justicia. Incrementar sustancialmente, el número de juzgadores y personal en los juzgados, esto generará el gran anhelo de que la justicia sea pronta y expedita. Esto debe de ir acompañado con la revisión y supervisión constante del trabajo de los juzgadores y su productividad. Además, cursos y capacitaciones constantes del personal judicial, porque los ciudadanos merecen gente preparada y de excelencia, que conozca y sepa decidir los asuntos que conoce.
+- Justicia cercana para todos. Implementar módulos en cada colonia de nuestra ciudad, en el que los ciudadanos pudieran acudir a recibir asesoría jurídica. Además, la existencia de una línea telefónica permanente, eficiente y gratuita, en la que las personas puedan llamar y hacer del conocimiento de distintos abogados, la situación que amerita asesoría jurídica y proponerles soluciones y asesorías, además, de acompañamiento.
+- Así resolví; tú, ¿Cómo lo harías? Espacios permanentes en radio, televisión, oficinas públicas, etc. Si la nueva realidad de México, son las elecciones de sus jueces, debe la ciudadanía conocerlos y darles herramientas e instrumentos a los jueces para hacerlo. Proporcionar espacios para que la gente conozca por qué resolvemos en determinado sentido, qué fue lo que nos llevó a decidir de esa manera. Seguramente, al ser jueces con conocimiento y buena reputación, la ciudadanía coincidiría.
+

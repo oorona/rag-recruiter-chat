@@ -1,0 +1,79 @@
+Nombre Candidato: MARIO ALBERTO GARCIA DE LOS SANTOS
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 7535362000
+Correo Electronico: garciadelossantos.candidato@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Código Nacional de Procedimientos Penales, Derecho Penal, Diplomado, Dogmática Jurídica Penal, Formación Continua, Juicio Oral, Justicia Penal Acusatorio, Licenciado, Litigación Oral, Sistema Penal.
+Tags Propósito: Acceso a la justicia, Asesoría jurídica, Capacitación, Compromiso, Defensa pública, Imparcialidad, Independencia, Integridad, Justicia, Objetividad, Poderes de la Unión, Profesionalización, Responsabilidad, Sentir ciudadano, Servidores públicos, Sistema jurídico, Sistema penal, Transparencia.
+
+
+## Descripción del Candidato 
+
+Mario Alberto García de los Santos es candidato a Juez/a de Distrito en Michoacán, postulándose desde el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en litigación en juicios orales y una trayectoria académica enfocada en el derecho penal, complementada con diversos diplomados y cursos en el Nuevo Sistema de Justicia Penal.
+
+Su motivación para buscar el cargo público se basa en su preparación y experiencia trabajando en favor de la justicia para los ciudadanos. Propone un ejercicio de la función jurisdiccional independiente, imparcial y apegado a la ley, buscando garantizar el acceso a la justicia para todos. Asimismo, plantea la colaboración institucional para mejorar el sistema jurídico mexicano y el fomento de la capacitación de futuros profesionales del derecho y del sistema penal.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://garciadelossantosmarioalberto.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15sGRWfe4K/
+- https://x.com/garciacandidato
+- https://www.instagram.com/garciadelossantomarioalberto/
+- https://www.tiktok.com/@garciadelossantos
+
+
+## Cursos
+
+- Diplomado el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Diplomado el Nuevo Sistema de Justicia Penal Acusatorio de Frente a la Sociedad
+- ,Diplomado Juicio Oral en el Proceso Penal
+- ,Curso Sensibilización Nuevo Sistema de Justicia Penal
+- ,Curso Dogmática Jurídica Penal desde la Perspectiva del Código Nacional de Procedimientos Penales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53240/11
+
+
+## Trayectoria Academica
+
+- Maestro en litigación en juicios orales, licenciado en derecho, diplomados y cursos relacionados con la materia penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ello me preparé, siempre he estado aquí al lado de las y los ciudadanos, trabajando por una Justicia para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un mecanismo que ofrece el Estado a las personas para resolver conflictos, para quienes la desempeñamos con integridad, significa una gran responsabilidad, requiere compromiso, sacrificio personal y capacitación constante, sin olvidar que servimos a nuestro País.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estoy convencido que la impartición de justicia debe realizarse de manera objetiva, independiente, imparcial y apegada a la ley, sin que el juzgador se desprenda de su parte humana, ya que los ciudadanos esperamos una solución justa y clara, que nos permita comprender el resultado. Esto se logra con jueces preparados, que conozcan el sentir de las personas. No basta acercarse al pueblo, hay que ser parte de él, eso no cualquiera puede lograrlo.
+
+
+## Propuestas
+
+- Ser un Juez independiente que no se deje llevar por presiones, recomendaciones o influencias, que dé el mismo trato a todas las personas, las escuche y contribuya a garantizarles el acceso a la justicia, servicios de defensoría pública y asesoría jurídica, gratuitos.
+- Participar de manera institucional con los Poderes de la Unión, sin invadir competencias, para detectar las principales deficiencias del sistema jurídico mexicano y mejorarlo en beneficio de todas las personas.
+- Fomentar la participación de los juzgadores en la capacitación y profesionalización de estudiantes de derecho, abogados, policías, servidores públicos y demás personas relacionadas con el sistema penal.
+

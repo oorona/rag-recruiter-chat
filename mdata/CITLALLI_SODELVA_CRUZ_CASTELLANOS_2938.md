@@ -1,0 +1,72 @@
+Nombre Candidato: CITLALLI SODELVA CRUZ CASTELLANOS
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9511407711
+Correo Electronico: citlallisodelva@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cédula Profesional., Derecho Fiscal, Formación, Licenciatura en Derecho, Maestría, Poder Judicial de la Federación, Universidad del Valle de México
+Tags Propósito: Accesibilidad, Acceso a la justicia, Anticorrupción, Bienestar, Celeridad, Cero tolerancia a la discriminación., Dignidad humana, Erradicación de desigualdades, Igualdad laboral, Justicia, LGBTQ+, Lengua de señas, Mujeres en el poder, Paz social, Perspectiva de género, Rendición de cuentas, Sistema Braille, Transparencia, Órgano de Control Ético
+
+
+## Descripción del Candidato 
+
+CITLALLI SODELVA CRUZ CASTILLANOS es candidata a Jueza/es de Distrito en Oaxaca, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y actualmente cursa una maestría en Derecho Fiscal. Su motivación para buscar el cargo público es demostrar la capacidad de las mujeres para ocupar puestos de poder en el Poder Judicial de la Federación (PJF).
+
+Su visión se centra en impartir justicia sin clientelismo, combatiendo la corrupción y garantizando el acceso a la justicia con un trato humano y transparencia. Sus propuestas incluyen la implementación de un Órgano de Control Ético y Anticorrupción en los Juzgados de Distrito, la inclusión del sistema Braille y de intérpretes de lengua de señas para garantizar la accesibilidad, y la promoción de la igualdad de género y el respeto a la diversidad en el PJF.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573123737951
+- https://www.tiktok.com/@citlalli.sodelva?_t=ZM-8uuSaeyJPyZ&_r=1
+
+
+## Cursos
+
+- Actualmente cursando Maestría en Derecho Fiscal en la Universidad del Valle de México con matrícula 940091582,Curso de formación para personas Secretarías del Poder Judicial de la Federación, Edición 2025
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52660/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO CÉDULA 12628637
+
+
+## Motivo para buscar el Cargo Publico
+
+Es tiempo de que las mujeres demostremos que podemos ocupar puestos de poder y de toma de decisiones dentro del PJF.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión como juzgadora se enfocará en impartir justicia sin clientelismo y en aras al combate a la corrupción, para que la ciudadanía renueve su confianza en las y los juzgadores. El Derecho al acceso a la justicia real, un trato humano con apego a la dignidad humana, transparencia y rendición de cuentas. Como parte de un Órgano Jurisdiccional, velaré porque se sirva con prontitud y celeridad a todas aquéllas personas que acudan a la instancia del Poder Judicial de la Federación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al ser una de las funciones más importantes del Estado, la impartición de justicia debe realizarse de manera puntual para brindar certeza en la resolución de los conflictos entre personas y/o organismos para llegar al bienestar y la paz social; la visión y actuar de las y los juzgadores deberá priorizar su sentido más humano con rapidez en los procesos, para que la sociedad opte por esta vía, para la resolución de conflictos y ningún ciudadano se vea limitado en el acceso a la justicia.
+
+
+## Propuestas
+
+- Implementación del Órgano de Control Ético y Anticorrupción dentro de los Juzgados de Distrito del Poder Judicial de la Federación, para que el personal del Poder Judicial sea capacitado en materia de transparencia, combate a la corrupción, perspectiva de género e igualdad laboral; y que dentro de las facultades del órgano, las y los trabajadores que cometan alguna violación o acto de corrupción puedan ser sancionados conforme a los lineamientos que se emitan respecto al caso.
+- La inclusión del sistema Braille en las resoluciones y atención a personas débiles visuales para que tengan la certeza de lo que se emite dentro de asuntos que afecten su esfera legal, asimismo, incluir a peritos intérpretes certificados en lengua de señas mexicana que permita facilitar la comunicación entre personas sordas y oyentes, con la finalidad de crear accesibilidad a la justicia y las personas comprendan y tomen sus propias decisiones en todo lo relacionado a sus derechos.
+- Será eje principal que el Poder Judicial de la Federación coadyuve en la erradicación de las desigualdades sociales entre las mujeres y los hombres y así reconocer la desventaja histórica de las mujeres; cero tolerancia a actos de discriminación a trabajadoras y trabajadores que pertenezcan a la comunidad LGBTQ+.
+

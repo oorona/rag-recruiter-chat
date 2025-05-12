@@ -1,0 +1,76 @@
+Nombre Candidato: IVAN IBARRA ARIAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9612281961
+Correo Electronico: iaai2@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo Administrativo, Aspectos Tributarios, Comercio Electrónico, Control de Constitucionalidad, Derecho, Derecho Fiscal, Derechos Humanos, Juicio de Nulidad, Juicio en Línea, Licenciatura, Maestría., Materia Administrativa, Reformas Fiscales
+Tags Propósito: acceso a la justicia, confianza ciudadana, control judicial, derechos humanos, digitalización, eficiencia, estado de derecho, guardias reales., imparcialidad, independencia judicial, inteligencia artificial, justicia, legalidad, modernización judicial, resoluciones, seguridad jurídica, servicio eficiente, sistema judicial, supervisión, transparencia, tribunales federales
+
+
+## Descripción del Candidato 
+
+IVAN IBARRA ARIAS es candidato a Magistratura de Tribunales Colegiados de Circuito en Chiapas, postulándose a través del Poder Legislativo Federal. Licenciado en Derecho con Maestría en Derecho Fiscal, cuenta con formación continua en temas de derechos humanos, control de constitucionalidad y procedimientos judiciales electrónicos y en línea. 
+
+Su motivación para buscar el cargo se centra en fortalecer la justicia, la imparcialidad y el estado de derecho en México. Su visión de la función jurisdiccional y la impartición de justicia se basa en la independencia, transparencia, accesibilidad y el respeto a los derechos humanos. Entre sus propuestas destacan la modernización tecnológica del sistema judicial, el establecimiento de un sistema de control de resoluciones para evitar contradicciones, y la implementación de guardias reales y eficaces en los tribunales federales para atender asuntos urgentes.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ivan.i.arias
+- https://x.com/iaai2
+- https://www.instagram.com/ivan.ibarraarias
+- https://youtube.com/@plabchar
+- https://www.tiktok.com/@ivanibarraarias91
+
+
+## Cursos
+
+- Reforma en Derechos Humanos y nuevo control de Constitucionalidad (Curso en línea) Instituto Nacional de las Mujeres,JUICIO DE NULIDAD ELECTRÓNICO Y REFROMAS FISCALES,ASPECTOS TRIBUTARIOS EN LA LEGISLACIÓN DE COMERCIO ELECTRÓNICO,JUICIO EN LÍNEA EN MATERIA ADMINISTRATIVA Casa de la Cultura Jurídica en Tapachula, Chiapas
+- ,ASPECTOS RELEVANTES DEL AMPARO ADMINISTRATIVO EN SU NUEVA LEY
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53886/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Maestro en Derecho Fiscal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero fortalecer la justicia, garantizar la imparcialidad y defender el estado de derecho en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar imparcialidad, certeza y acceso a la justicia, fortaleciendo el estado de derecho. Como Magistrado Federal, impulsaré resoluciones basadas en la legalidad y los derechos humanos, asegurando transparencia y eficiencia. La independencia Judicial es clave para equilibrar poderes y proteger la Constitución. Mi compromiso es consolidar una judicatura integra, cercana a la sociedad y resistente a influencias externas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser independiente, transparente y accesible, garantizando igualdad y certeza jurídica. Promuevo un sistema eficiente, basado en la legalidad y los derechos humanos, donde cada resolución fortalezca el estado de derecho. La modernización y la capacitación judicial son esenciales para mejorar la confianza ciudadana. Mi compromiso es una justicia imparcial, cercana a la sociedad y libre de presiones externas, asegurando la protección de los derechos fundamentales.
+
+
+## Propuestas
+
+- Impulsar y promover la modernización tecnológica del sistema judicial para reducir tiempos procesales, la digitalización de expedientes, audiencias virtuales y el uso de Inteligencia Artificial en análisis legales, garantizarán mayor transparencia y accesibilidad para los ciudadanos.
+- Impulsar un sistema de control y análisis dentro del Tribunal para evitar resoluciones contradictorias en casos similares. Esto garantizara mayor seguridad jurídica, fortaleciendo la confianza ciudadana en la impartición de Justicia Federal.
+- Establecer guardias reales y eficaces de atención los fines de semana en Tribunales Federales para resolver asuntos urgentes. Además, implementar mecanismos de supervisión para asegurar un servicio eficiente, transparente y accesible para la ciudadanía.
+

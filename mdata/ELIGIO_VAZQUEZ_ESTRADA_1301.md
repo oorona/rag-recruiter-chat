@@ -1,0 +1,73 @@
+Nombre Candidato: ELIGIO VAZQUEZ ESTRADA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 3111089997
+Correo Electronico: vazquez.es@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Combate a la Corrupción, Derecho, Derecho Procesal Administrativo, Derechos Humanos, Doctorado, Impartición de Justicia., Juicio de Amparo, Licenciatura, Maestría, Poder Judicial de la Federación, Sistema Nacional Anticorrupción
+Tags Propósito: Bien Común, Capacidad Profesional, Democracia Judicial, Derechos Humanos, Eficiencia Judicial, Estado de Derecho, Honestidad, Igualdad, Justicia Accesible, Paz Social, Poder Judicial Federal, Protección Jurídica., Transparencia, Vulnerabilidad Social
+
+
+## Descripción del Candidato 
+
+ELIGIO VAZQUEZ ESTRADA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal. Cuenta con doctorado en derecho e impartición de justicia, además de diversos diplomados y cursos en áreas como el Sistema Nacional Anticorrupción, Derechos Humanos y el Nuevo Juicio de Amparo. Su trayectoria académica y profesional se centra en el ámbito legal y judicial.
+
+Vazquez Estrada motiva su búsqueda del cargo en el fortalecimiento del Poder Judicial Federal y la accesibilidad a la justicia. Su visión de la función jurisdiccional prioriza la capacidad profesional, la honestidad y la protección de los derechos humanos. Sus propuestas incluyen una atención a personas en desventaja social, el impulso de la creación de más órganos jurisdiccionales federales para agilizar la justicia y la maximización de la protección a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1B9AXYgBZm/?mibextid=wwXIfr
+- https://www.instagram.com/eligiovazquez.estrada?igsh=MWswY2p1dTJnaGRk
+- https://www.tiktok.com/@vazquez.eligio?_t=ZM-8v10ieWRTMM&_r=1
+
+
+## Cursos
+
+- Cursos sobre el Sistema Nacional Anticorrupción, y sobre el combate a la corrupción,Diplomado en el Nuevo Juicio de Amparo, en la Casa de la Cultura Jurídica de Nayarit,Diplomado en Derechos Humanos, en la Casa de la Cultura Jurídica de Nayarit,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Diplomatura en Derecho Procesal Administrativo, en el Centro de Formación Judicial de Buenos Aires, Argentina
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55561/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho Maestría en Derecho con orientación en amparo Doctorado en derecho, en impartición de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Es necesario continuar fortaleciendo al Poder Judicial Federal y hacer que la justicia sea más accesible y humana
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional siempre debe ser ocupada por quienes estén mejor capacitados profesional y académicamente, pero que además sean personas honestas que aspiren a impartir justicia maximizando en todo momento la protección a los derechos humanos de las personas. Esto se hará realidad ahora que los ciudadanos elegirán abierta y libremente en manos de quien desean poner su confianza, para que juzgue sobre los derechos de su patrimonio, de su familia y de sus libertades.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia constituye un pilar fundamental del estado de derecho. Para alcanzar esa justicia que tanto anhelamos, es necesario contar con instituciones abiertas a ser representadas por cualquier ciudadano que cuente con la capacidad, preparación y honestidad requeridas; al mismo tiempo, para tener paz social y bien común, es indispensable tener un Poder Judicial Federal democrático, abierto, transparente, cercano y accesible a todas las personas, en condiciones de igualdad.
+
+
+## Propuestas
+
+- Sensibilidad para quienes por sus condiciones de pobreza o marginación se encuentren en desventaja social
+- Impulsar la creación de más juzgados y tribunales federales, para que la justicia sea más rápida
+- Maximizar y garantizar la protección a los derechos humanos
+

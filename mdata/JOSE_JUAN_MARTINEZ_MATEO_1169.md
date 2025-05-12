@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE JUAN MARTINEZ MATEO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5517036865
+Correo Electronico: josejuanmartinezmateo@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Derechos Humanos, Escuela Judicial Estado de México, Especialidad Constitucional, Formación Judicial, Instituto de la Judicatura Federal., Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Materia Civil, Sistemas Jurídicos Comparados, UNAM
+Tags Propósito: Capacitación, Derechos Humanos, Derechos Sociales, Diligencia, Equidad, Estado de derecho, Evaluación, Honestidad, Igualdad, Impartición de justicia, Magistrado, Normatividad., Poder Judicial, Profesionalismo, Protección de justiciables, Razonabilidad jurídica, Rendición de cuentas, Servicio público
+
+
+## Descripción del Candidato 
+
+Jose Juan Martinez Mateo es candidato a Magistrado de Tribunales Colegiados de Circuito del Poder Judicial de la Federación. Cuenta con Maestría y estudios de Licenciatura y Especialidad en Derecho por la Universidad Nacional Autónoma de México. Su trayectoria incluye cursos de formación para Juez y Secretario Judicial en materia civil, así como especializaciones en reforma laboral y argumentación jurídica.
+
+Martinez Mateo postula a este cargo por vocación al servicio público, buscando contribuir a una mejor función jurisdiccional a través de la capacitación continua y la evaluación objetiva de los servidores públicos. Su visión para la impartición de justicia se centra en la razonabilidad jurídica, el respeto a los derechos humanos y la implementación de mecanismos de rendición de cuentas que legitimen el actuar del Poder Judicial ante la sociedad. Sus propuestas incluyen fomentar la transparencia, la aplicación efectiva de los derechos sociales y una actuación profesional basada en el estudio a fondo de cada caso.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://josejuanmartinezmateo.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574098769435
+- https://x.com/JosJuanMar4111/photo
+- https://www.instagram.com/josejuan.martinezmateo.7?utm_source=qr&igsh=ZDBkOTAyNmNpMGR2
+- https://www.youtube.com/@JoseJuanMartinezMateo
+- https://www.tiktok.com/@josejuanmartinezmateo
+- https://josejuanmartinezmateo.blogspot.com/
+
+
+## Cursos
+
+- Curso de Formación para Juez en Materia Civil impartido por la Escuela Judicial del Estado de México
+- ,Curso de Formación para Secretario Judicial en Materia Civil impartido por la Escuela Judicial del Estado de México,,Especialidad Sobre la Reforma en Materia de Justicia Laboral impartido por el Instituto de la Judicatura Federal,III
+- Congreso Internacional de Argumentación Jurídica ¿Cómo argumentar los Derechos Humanos?,Seminario Internacional México Rusia: Culturas y Sistemas Jurídicos Comparados
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53945/10
+
+
+## Trayectoria Academica
+
+- Licenciatura, Especialidad (Constitucional) y Maestría en Derecho en la Universidad Nacional Autónoma de México (C
+- U)
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar el cargo de Magistrado de Circuito por vocación al servicio público y para servir a la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Con el objeto de lograr una mejor función jurisdiccional se debe proporcionar una capacitación de calidad a cada uno de sus servidores públicos, para posteriormente ser sometidos a evaluaciones objetivas de manera constante y con ello lograr una adecuada impartición de justicia. Asimismo, es necesario fomentar en los juzgadores un hábito de rendición de cuentas a la ciudadanía, cuando se trate de asuntos de relevancia social, y a cada ciudadano respecto a su asunto en particular.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Planteo una impartición de justicia basada en la razonabilidad jurídica hasta ahora lograda, en la que se respeten los principios de equidad e igualdad, buscando una protección amplia de los Derechos Humanos para los justiciables y una aplicación de los derechos sociales en los que se logre su respeto eficaz.
+
+
+## Propuestas
+
+- Propongo se considere fomentar una impartición de justicia en la que se implementen mecanismos que permitan legitimar el actuar del Poder Judicial Federal frente a la sociedad, como el hábito de rendición de cuentas a la ciudadanía, cuando se trate de asuntos de relevancia social, y a cada ciudadano respecto a su asunto en particular. Lo anterior, con respeto a la normatividad existente en nuestro sistema jurídico.
+- Propongo un actuar honesto, diligente y profesional en cada una de las funciones encomendadas al cargo público, basado en una capacitación de calidad; lo anterior, a efecto de dar preferencia al estudio del fondo del asunto, cuando sea procedente, con el objetivo de lograr una protección amplia de los Derechos Humanos de los ciudadanos.
+- Propongo hacer cumplir el estado de derecho con base en la razón jurídica, el respeto a los Derechos Humanos y una aplicación de los derechos sociales en los que se logre su respeto eficaz.
+

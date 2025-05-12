@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN MANUEL OROSO GIL
+Cargo: Juezas/es de Distrito
+Entidad: COLIMA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jm_oroso@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho Procesal Constitucional, Derecho., Doctor en Derecho, Formación Judicial, Juicio de Amparo, Justicia Penal, Justicia para Adolescentes, Maestría, Razonamiento Probatorio, Secretario Judicial
+Tags Propósito: Accesibilidad, Bienestar Común, Cercanía, Comunicación, Control Estricto., Corrupción, Derechos, Eficiencia, Erradicación de la Corrupción, Honestidad, Impartición de Justicia, Integridad, Justicia, Modernización, Sistema Judicial, Tecnología, Transformación, Transparencia
+
+
+## Descripción del Candidato 
+
+JUAN MANUEL OROSO GIL es candidato a Jueces/es de Distrito en Colima, postulándose por la vía de En Funciones. Cuenta con un doctorado en Derecho y una trayectoria académica enfocada en justicia penal. Su motivación para buscar el cargo se centra en combatir la corrupción y mejorar el acceso a la justicia en Colima.
+
+El candidato propone una modernización del sistema judicial a través de la implementación de tecnología, el fortalecimiento de la transparencia y el combate a la corrupción, y el establecimiento de canales de comunicación más cercanos con la ciudadanía. Su visión de la función jurisdiccional es transformadora, buscando una impartición de justicia accesible, equitativa e integral para todos los ciudadanos. Más información sobre su perfil y propuestas se puede encontrar en su currículum vitae disponible en línea: [https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54249/11](https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54249/11) y en sus perfiles de redes sociales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574372762530&sk=about
+- https://x.com/orosojm?s=21&t=F9fB6KWOcHm-XxcZh0HZKg
+- https://www.instagram.com/juan.oroso?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
+- https://www.tiktok.com/@juanmanuelorosogil?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Especialidad en Justicia para Adolescentes de la Escuela Federal de Formación Judicial,Diplomado en Razonamiento Probatorio,Curso Básico de Formación y Preparación de Secretario del Poder Judicial de la Federación,Diplomado en Juicio de Amparo,Diplomado en Derecho Procesal Constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54249/11
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho, con maestrías relacionadas a la justicia penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Colima necesita justicia. La sociedad está cansada de la corrupción. Tengo la experiencia y la honestidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es que debe ser transformadora, para que todas las personas puedan acceder a la justicia. Tenemos que generar condiciones para estar más cerca de la gente, que realmente se protejan los derechos de todos y no solo de unos cuantos. Estoy a favor de la modernización, de la preparación constante de jueces y magistrados, de crear nuevos canales de comunicación con la gente y de endurecer los controles para evitar la corrupción.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia tiene que ser para todas y todos por igual. No debe haber más delincuentes en la calle por corrupción, ni inocentes en las cárceles por falta de recursos. La justicia debe ser accesible, las personas encargadas de impartirla deben ser honestas e íntegras, pero también preparadas. Ni corrupción, ni improvisación. La justicia es una herramienta para un cambio social, en el que cada decisión que tomemos promueva un entorno pacífico, de respeto y de bienestar común.
+
+
+## Propuestas
+
+- Una modernización de todo el sistema judicial. Implementar tecnología que permita hacer mucho más eficientes los procesos y que la impartición de justicia sea pronta y expedita. La gente muchas veces desiste porque acceder a la justicia le representa invertir mucho tiempo y mucho dinero. Esto se tiene que acabar.
+- Transparencia y Combate a la Corrupción. Como en cualquier área o institución hay personas muy valiosas, en el Poder Judicial de la Federación la mayoría de quienes la integran lo son, pero lamentablemente también hay quienes caen en prácticas incorrectas, se tienen que aplicar controles más estrictos para erradicar cualquier indicativo de corrupción.
+- Cercanía con la gente. Uno de los principales errores en la función jurisdiccional es que se ha estado lejanos de la gente, se necesitan construir canales de comunicación, tanto para escuchar lo que tenemos que mejorar como para informarles de cuáles son sus derechos y cómo acceder a ellos.
+

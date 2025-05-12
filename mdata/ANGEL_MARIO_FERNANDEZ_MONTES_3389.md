@@ -1,0 +1,74 @@
+Nombre Candidato: ANGEL MARIO FERNANDEZ MONTES
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 9991514799
+Correo Electronico: fernandezporlajusticia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: 2012, 2023, 2024., Certificación, Derechos Humanos, EC301, Formación Continua, Juicio de Amparo, Licenciatura en Derecho, Maestría en Educación, Planeación Didáctica, Redacción, SCJN, TEPJF, UADY, UMSA, UVG
+Tags Propósito: Constitución., accesibilidad, audiencias abiertas, confianza, derechos humanos, dignidad humana, equidad, imparcialidad, inclusión, integridad, justicia, lenguaje sencillo, proceso judicial, protección, puertas de cristal, responsabilidad, sentencias claras, sistema judicial, transparencia, vulnerables, ética
+
+
+## Descripción del Candidato 
+
+Ángel Mario Fernández Montes es candidato a Juez de Distrito en Yucatán, postulado por el Poder Ejecutivo Federal. Cuenta con maestría en Educación y una trayectoria académica que incluye el título de Licenciado en Derecho. Ha completado diversos cursos y diplomados en áreas como juicio de amparo, derechos humanos y redacción jurídica, impartidos por instituciones como la SCJN, el TEPJF y la UADY.
+
+Su motivación para buscar el cargo público es servir a la sociedad con justicia e imparcialidad, protegiendo los derechos humanos. Su visión sobre la función jurisdiccional y la impartición de justicia se centra en la imparcialidad, el respeto a los derechos humanos y la comprensión de las realidades de las personas. Sus propuestas principales incluyen la implementación de "Justicia Transparente" (acceso ciudadano a los juicios), "Audiencias Abiertas" y la redacción de "Sentencias Claras" con el objetivo de fortalecer la confianza pública en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573939534707
+- https://x.com/fernandeztujuez
+- https://www.instagram.com/fernandezporlajusticia/
+
+
+## Cursos
+
+- CONOCER EC301, vigencia del certificado hasta el 13 de septiembre de 2025,Diplomado de Juicio de Amparo, edición 2024, duración 80 horas, impartido por la SCJN,Diplomado Derechos Humanos Aproximaciones para su Defensa edición 2024, duración 80 horas, impartido por la SCJN,Curso Básico de Redacción, con duración de 40 horas, impartido por el TEPJF,Curso Planeación didáctica, con duración de 40 horas, otorgado por la UADY
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53055/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, por la UVG Campus Pichucalco, 2012
+- Maestro en Educación, por la UMSA, Mérida, 2023
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar un cargo público para servir a la sociedad con justicia, imparcialidad y proteger los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como la garantía de una justicia imparcial, empática y fiel a la Constitución. Ser Juez de Distrito no es solo aplicar la ley, sino comprender las realidades de las personas y proteger sus derechos. Mi compromiso es actuar con ética y transparencia, asegurando que cada decisión respete la dignidad humana y promueva la equidad. Trabajaré para fortalecer la confianza en el sistema judicial y contribuir a una sociedad más justa e inclusiva.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la justicia como un derecho fundamental que debe ejercerse con imparcialidad, equidad y respeto a los derechos humanos. Mi compromiso es aplicar la ley con integridad, garantizando que cada persona reciba un trato justo, sin distinciones. La justicia debe ser accesible y efectiva, especialmente para los más vulnerables. Serviré con responsabilidad y ética, asegurando que el sistema judicial sea un pilar firme de protección y confianza para la sociedad.
+
+
+## Propuestas
+
+- Justicia Transparente: Los jueces no debemos ser figuras lejanas. Propongo un sistema de puertas de cristal en los juzgados para que los ciudadanos puedan observar, de manera segura y respetuosa, cómo se llevan a cabo los juicios y cómo analizamos cada caso. No se expondrá información privada, pero sí se garantizará el acceso real al proceso judicial, permitiendo que la gente vea y comprenda cómo y por qué se toman las decisiones. Más transparencia, más confianza en la justicia.
+- Audiencias Abiertas: Justicia Cercana y Comprensible. La justicia debe ser accesible y clara para todos. Impulsaré audiencias públicas abiertas, permitiendo la presencia ciudadana o su transmisión en vivo con explicaciones sencillas de los procedimientos. Que nadie se quede fuera del proceso judicial: comprender cómo y por qué se toman decisiones fortalecerá la confianza en los jueces y el sistema. No se expondrá información privada.
+- Sentencias Claras: Justicia que se Entiende. La justicia no solo debe ser imparcial, sino también comprensible. Las sentencias deben ser accesibles y explicadas de forma clara para la sociedad. Impulsaré que cada resolución judicial incluya un lenguaje sencillo, sin perder rigor legal, para que todos puedan entender cómo y por qué se toman decisiones. Una justicia que se explica, es una justicia en la que se confía. La transparencia no expone datos privados, pero sí acerca el derecho a la gente.
+

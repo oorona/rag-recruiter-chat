@@ -1,0 +1,74 @@
+Nombre Candidato: ANTONIO ANATAYEL MONTEJANO ARAUZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5529011531
+Correo Electronico: anatayelmontejano@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado Constitucionalista, Acciones Civiles, Amparo, Código Procesal Civil, Derecho Civil., Derecho Constitucional, Experiencia Profesional, Juicio de Amparo, Litigio, Mercantil, Sucesiones
+Tags Propósito: accesibilidad, bloque de convencionalidad, capacitación, compromiso social, conciencia social, confianza, constitucionalidad, democratización, desigualdades estructurales, dignidad humana, diálogo ciudadano, eficiencia, empatía, equidad, integridad, justicia, justicia confiable., justicia eficaz, justicia humana, justicia oportuna, legalidad, lenguaje ciudadano, lenguaje claro, liderazgo, perspectiva social, profesionalismo, respeto, sentido social, transformación social, trato digno, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+Antonio Anatayel Montejano Arauz es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose al Poder Legislativo Federal. Cuenta con una Maestría en Derecho Constitucional y Amparo, y 20 años de experiencia en las áreas civil, mercantil y amparo. Su trayectoria profesional se enfoca en acercar el derecho a la ciudadanía.
+
+Su motivación para buscar el cargo público es acercar la justicia federal a la gente, con un enfoque en la empatía, integridad y compromiso social. Propone una función jurisdiccional con apego a la Constitución, pero también con sentido social, priorizando resoluciones claras y accesibles, trato digno en los juzgados, y la consideración de contextos personales y sociales al emitir sentencias. Busca liderar un juzgado eficiente, ético y cercano a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://montejanojuez.carrd.co/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JuridicoBJ#
+- https://www.tiktok.com/@anatayelmontejano
+- https://www.whatsapp.com/channel/0029Vb0zEyLBvvsYyEuzqS1Y
+
+
+## Cursos
+
+- Maestría en Derecho Constitucional y Amparo, Mención Honorifica,Diplomado Nuevo Código Nacional de Procedimientos Civiles y Familiares,Diplomado Juicio de Amparo SCJN,Diplomado Acciones Civiles y Mercantiles,Diplomado Sucesiones
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53993/11
+
+
+## Trayectoria Academica
+
+- Abogado constitucionalista con 20 años de experiencia en civil, mercantil, amparo
+- He acercado el derecho a la gente
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero acercar la justicia federal a la gente, con empatía, integridad y compromiso social auténtico.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con apego a la Constitución y al bloque de convencionalidad, pero también con sentido social. Juzgar no es solo aplicar la ley, sino transformar realidades desde la legalidad, reconociendo desigualdades estructurales y actuando con empatía. La judicatura debe ser cercana, ética y consciente de su rol en una sociedad democrática que exige justicia útil y humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Democratizar el lenguaje judicial y la atención al público Implementar resoluciones claras, accesibles y comprensibles, con lenguaje ciudadano. Capacitar al personal en atención con perspectiva social y crear espacios de diálogo entre jueces y ciudadanía para fortalecer la confianza en la justicia.
+
+
+## Propuestas
+
+- Emitir resoluciones claras y brindar trato digno en el juzgado. La justicia debe ser comprensible y humana. Como juez, emitiré resoluciones con lenguaje claro para que cualquier persona entienda lo que se decide. En audiencias y trámites garantizaré un trato respetuoso, accesible y paciente. Escuchar con atención, explicar con sencillez y tratar con dignidad es parte esencial de hacer justicia para todas y todos.
+- Juzgar con empatía, equidad y conciencia social. Aplicar la ley con sensibilidad fortalece la justicia. Al resolver, consideraré los contextos personales, sociales y familiares de cada caso, prestando especial atención a niñas, niños, adolescentes, mujeres y personas en situación de vulnerabilidad. En materia civil y familiar, actuaré con equidad y profundo respeto a la dignidad humana, construyendo sentencias que reflejen justicia real y cercana a quienes más la necesitan.
+- Organizar un juzgado eficiente, ético y cercano a la gente. La justicia empieza con el ejemplo desde dentro del juzgado. Como juez, lideraré con orden, profesionalismo y compromiso ético. Me aseguraré de que cada expediente avance sin demoras innecesarias y que cada persona sea atendida con seriedad. Con un equipo motivado y reglas claras, ofreceremos una justicia oportuna, eficaz y confiable para todas y todos.
+

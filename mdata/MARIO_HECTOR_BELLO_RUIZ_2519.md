@@ -1,0 +1,71 @@
+Nombre Candidato: MARIO HECTOR BELLO RUIZ
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: 7205948930
+Correo Electronico: hectoradomaytis118@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Certificación, Ciencias Penales, Derecho, Diplomado, Especialización, Facilitador Penal, Licenciatura, Mecanismos Alternativos, Sistema Penal Acusatorio, Sistema Penal Oral, Solución de Controversias, UNIVERISIDAD ICEL.
+Tags Propósito: Autonomía Judicial, Cero Corrupción, Colaboración Fiscalías, Debido Proceso, Diálogo, Fortalecimiento Institucional, Igualdad, Imparcialidad, Impartición de Justicia, Legalidad, Mejora Continua, Objetividad, Principios Constitucionales, Profesionalismo, Rendición de Cuentas., Sistema Penal, Transparencia
+
+
+## Descripción del Candidato 
+
+Mario Hector Bello Ruiz es candidato a Juez/a de Distrito en Hidalgo, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y ha realizado diversos cursos de especialización en el Sistema Penal Acusatorio y mecanismos alternativos de solución de controversias en el Instituto Nacional de Ciencias Penales.
+
+El candidato expone como motivación para el cargo su conocimiento del sistema penal actual y su compromiso con la integridad. Su visión sobre la función jurisdiccional se centra en el profesionalismo, la imparcialidad, la autonomía y la cero corrupción, buscando evitar la impunidad y apegarse estrictamente a las bases legales. Propone fomentar la colaboración entre fiscalías y defensorías para fortalecer el sistema penal a través del intercambio de experiencias y la identificación de áreas de mejora.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574983372047
+
+
+## Cursos
+
+- CERTIFICACION DE INVITADOR DE MECANISMOS ALTERNATIVOS SOLUCIÓN CONTROVERSIAS EN EL INSTITUTO NACIONAL DE CIENCIAS PENAL,CURSO PARA ESPECIALIZACION DE MINISTERIOS PUBLICOS EN EL SISTEMA PENAL ACUSATORIO Y ORAL,DIPLOMADO EN EL SISTEMA PENAL ACUSATORIO Y ORAL EN EL INSTITUTO NACIONAL DE CIENCIAS PENALES,ESPECIALIZACION PARA FACILITADOR PENAL FEDERAL EN EL INSTITUTO NACIONAL DE CIENCIAS PENALES
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52583/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO EN LA UNIVESIDAD ICEL CAMPUS LOMAS VERDES SE OBTUVO TITULO Y CEDULA PROFESIONAL
+
+
+## Motivo para buscar el Cargo Publico
+
+TENGO EL CONOCMIENTO DEL SISTEMA PENAL ACTUAL, DEMOSTRAR A MI PAIS QUE TENGO LA CAPACIDAD Y NO ME CORROMPO CON NADIE
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+PROFESIONALISMO TOTAL, CAPACIDAD Y CONOCIMIENTOS, IMPARCIALIDAD, AUTONOMÍA EN LAS DECISIONES JUDICIALES. CERO CORRUPCIÓN. EVITAR A TODA COSTA LA IMPUNIDAD EN LA COMISIÓN DE LOS DELITOS, SOLUCIONES EN LOS PROCESOS CON ESTRICTO APEGO A LOS PRINCIPIOS, LA OBJETIVIDAD, A LA LÓGICA, A LAS BASES LEGALES Y TENER CRITERIOS RAZONABLES EN LAS DECISIONES DE LA FUNCIÓN JURISDICCIONAL.
+
+
+## Vision sobre la Imparticion de Justicia
+
+LA IMPARTICIÓN DE JUSTICIA DEBE SER LA COLUMNA VERTEBRAL DEL SISTEMA PENAL EN MÉXICO, LA CUAL DEBE DE REALIZARSE A TODOS EN GENERAL POR IGUAL, EVITANDO RESOLVER CONFLICTOS CON PREFERENCIAS O INCLINACIONES INDEBIDAS. OTORGANDO A LAS PARTES INMERSAS EN UN CONFLICTO PENAL LAS MISMAS OPORTUNIDADES QUE A SU DERECHO CORRESPONDA DESDE EL INICIO HASTA EL FINAL DEL PROCESO PENAL. ESTRICTO APEGO A LOS PRINCIPIOS CONSTITUCIONALES Y PROCESALES EN EL ÁMBITO PENAL.
+
+
+## Propuestas
+
+- EL PROCESO PENAL ES COMO UN RELOJ DONDE CADA ENGRANE CUMPLE UNA FUNCIÓN Y UNIDOS CUMPLEN CON SU OBJETIVO, PROPONGO FOMENTAR LA REALIZACIÓN DE REUNIONES CON LOS TITULARES DE LAS FISCALÍAS Y LAS DEFENSORÍAS CON EL PROPÓSITO DE ENTABLAR DIALOGOS DE INTERCAMBIO DE IDEAS EN BASE A LA EXPERIENCIA PARA CONSTRUIR, MEJORAR, PROPONER, DETECTAR DEBILIDADES, FORTALECER Y CONSOLIDAR EL SISTEMA PENAL PARA CUMPLIR CON SU OBJETO.
+- No proporcionó
+- No proporcionó
+

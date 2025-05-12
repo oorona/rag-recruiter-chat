@@ -1,0 +1,78 @@
+Nombre Candidato: OSCAR ALEJANDRO ZUÑIGA VIDALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8999101463
+Correo Electronico: oscaralejandrozunigavidales@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cátedras, Derecho., Derechos humanos, Docencia, Formación judicial, Gestión administrativa, Género, Igualdad, Proporcionalidad, Secretarios de Juzgados, Tribunales, Universidades, Violencia, Órganos jurisdiccionales federales
+Tags Propósito: Acceso a la justicia., Asesoría jurídica, Celeridad, Confianza, Cultura jurídica, Defensoría pública, Derechos humanos, Estado de derecho, Honestidad, Imparcialidad, Justicia, Plazos, Profesionalismo, Reformas legales, Responsabilidad social, Sensibilidad social, Simplificación de procedimientos
+
+
+## Descripción del Candidato 
+
+Oscar Alejandro Zúñiga Vidales es candidato a Magistrado de Tribunales Colegiados de Circuito en Nuevo León, postulando en la vía En Funciones. Cuenta con Maestría y cédula profesional, además de una trayectoria académica que incluye la impartición de cursos en universidades y la Escuela Judicial.
+
+Su motivación para buscar el cargo es impartir justicia con honestidad, profesionalismo e imparcialidad. Su visión de la función jurisdiccional la describe como un servicio público de alta responsabilidad social, y de la impartición de justicia, como el reconocimiento y protección de los derechos humanos y fundamentales. Sus propuestas incluyen exigir mayor preparación y experiencia a los impartidores de justicia, proponer reformas legales para simplificar procedimientos y reducir plazos, y promover políticas públicas para informar a la ciudadanía sobre sus derechos y opciones de asesoría legal.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Oscar Alejandro Zuñiga Vidales
+- https://www.instagram.com/oscaralejandrozunigavidales
+- https://www.tiktok.com/oscar.alejandro.z0
+
+
+## Cursos
+
+- Curso de Formación para Secretarios de Juzgados de Distrito y Tribunales de Circuito, Escuela Judicial (año 2007)
+- ,Curso de Inducción para la Gestión Administrativa de los Órganos Jurisdiccionales Federales, Escuela Judicial
+- ,Curso de Género como Herramienta para la Igualdad
+- Décima Edición, en la Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia, en la Escuela Federal de Formación Judicial
+- ,Curso de Proporcionalidad e Interpretación de los Derechos Humanos, en la Escuela Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55207/10
+
+
+## Trayectoria Academica
+
+- He impartido gran número de cursos y cátedras sobre distintas ramas del Derecho en Universidades y la escuela judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia a las personas de forma honesta, profesional, imparcial y con sentido de responsabilidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es un servicio público de alta responsabilidad social y de gran importancia para el respeto del estado de derecho, ya que, las decisiones que se toman en los distintos tipos de conflictos legales tienen un impacto directo en la vida de las personas, por lo cual, la función jurisdiccional debe ser desarrollada por personas con experiencia, profesionalismo, con alta sensibilidad social, en forma ética y respetando los derechos humanos de las partes involucradas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es que se reconozca a cada persona, sin distinción, el goce de sus derechos humanos y fundamentales, previstos en la Constitución, Tratados Internacionales, así como en las leyes que de ellos derivan y que esto se realice con profesionalismo, sentido social y celeridad. Lo anterior con la finalidad que todo ciudadano pueda acercarse a las instancias jurisdicionales con la certeza de que el sistema judicial es confiable, imparcial, objetivo y profesional.
+
+
+## Propuestas
+
+- Exigir mayor preparación y experiencia a los impartidores de justicia y todo el equipo que conforman los distintos órganos jurisdiccionales, desde una óptica de sentido de compromiso social.
+- Proponer reformas a la ley a fin de que se mejore la impartición de justicia, simplificando los procedimientos, reduciendo los plazos y con ello lograr resolver los conflictos en el menor tiempo posible.
+- Proponer políticas públicas de información a la ciudadanía a fin de que conozcan sus derechos, y la forma de exigir su respeto, para lograr una mejor cultura jurídica; asimismo, brindar más información sobre las distintas áreas de asesoría o defensoría pública que prestan sus servicios en distintas ramas del derecho, de forma gratuita.
+

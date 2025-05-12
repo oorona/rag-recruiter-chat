@@ -1,0 +1,85 @@
+Nombre Candidato: JESUS TRINIDAD BAUTISTA VILLARREAL
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9321160818
+Correo Electronico: je_tri@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de justicia, Audiencias judiciales, Formación académica., Inteligencia emocional, Interculturalidad, Liderazgo, Nuevo Sistema Penal Acusatorio, Poder Judicial de Chiapas, Razonamiento probatorio, Ética judicial
+Tags Propósito: Acceso a la justicia, Amparo, Arbitraje, Capacitación, Compromiso, Conciliación, Derecho constitucional, Derechos humanos, Digitalización, Eficiencia, Equidad, Formación continua, Imparcialidad, Inclusión, Justicia, Justicia alternativa, Mediación, Modernización, Perspectiva de género, Resolución de conflictos, Transparencia, Tratados internacionales.
+
+
+## Descripción del Candidato 
+
+JESUS TRINIDAD BAUTISTA VILLARREAL es candidato a Magistratura de Tribunales Colegiados de Circuito en Chiapas, postulándose desde el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Administración de Justicia en el Nuevo Sistema Penal Acusatorio y su motivación para buscar el cargo público se centra en su vocación de servicio.
+
+Su visión para la función jurisdiccional y la impartición de justicia enfatiza la imparcialidad, transparencia, acceso igualitario y la eficiencia del sistema. Sus propuestas incluyen la digitalización de procesos, la capacitación continua del personal judicial con una perspectiva amplia (incluyendo la visión de los litigantes y la sociedad), y el fortalecimiento de la mediación y justicia alternativa como etapa obligatoria en los procedimientos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1R52QkDkmy/?mibextid=wwXIfr
+- https://x.com/jesstrinid45552?s=11
+- https://www.instagram.com/jesusbautistavillarreal?igsh=ZDZzeHF3aWg1NHk5&utm_source=qr
+- https://youtube.com/@jesustrinidadbautistavillarrea?si=ZxQnf0rxmZc3wjnq
+- https://www.tiktok.com/@jesusbautistavillarreal?_t=ZM-8uwSQNrXMqk&_r=1
+
+
+## Cursos
+
+- El momento de la valoración probatoria a la luz del razonamiento probatorio
+- Poder Judicial del Estado de Chiapas
+- ,Inteligencia emocional, unidad y liderazgo
+- Poder Judicial del Estado de Chiapas
+- ,Normas Éticas que regulan la impartición de Justicia
+- Poder Judicial del Estado de Chiapas
+- ,Destrezas en la conducción y manejo de audiencias
+- Poder Judicial del Estado de Chiapas
+- ,Interculturalidad en la impartición de justicia
+- Poder Judicial del Estado de Chiapas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52434/10
+
+
+## Trayectoria Academica
+
+- Doctor en Administración de Justicia en el Nuevo Sistema Penal Acusatorio
+- Cédula Profesional en trámite
+
+
+## Motivo para buscar el Cargo Publico
+
+Siempre me ha gustado servirle al prójimo, desde niño encontré un gusto por dar a las personas algo bueno de mi.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Observar los principios de imparcialidad, transparencia y compromiso con la justicia. Creo firmemente que el sistema judicial debe ser un pilar de confianza para la sociedad, garantizando que cada decisión esté basada en la legalidad, el respeto a los derechos humanos y la equidad. Como magistrado federal, aspiro a fortalecer la relación entre el Poder Judicial y la ciudadanía, promoviendo un acceso a la justicia que sea eficiente, inclusivo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia se basa en el acceso igualitario y efectivo a un sistema que responda con prontitud, transparencia y sensibilidad a las necesidades de la sociedad.
+
+
+## Propuestas
+
+- Digitalizar y modernizar procesos: Implementar mayores tecnologías avanzadas para agilizar trámites de los juicios de amparo, reducir tiempos de resolución y garantizar transparencia en cada etapa del procedimiento.
+- Capacitación continua para jueces, magistrados y personal judicial: Establecer programas obligatorios de formación en temas como derechos humanos, perspectiva de género, nuevas legislaciones, uso de herramientas tecnológicas, derecho constitucional, amparo y tratados internacionales, pero no sólo desde la perspectiva institucional y académica, sino también considerando la visión de personas litigantes y de la sociedad en general.
+- Fortalecimiento de la mediación, conciliación y justicia alternativa: Promover los mecanismos alternos de solución de conflictos , como la mediación, la conciliación y el arbitraje, para aliviar la carga de los tribunales y ofrecer soluciones más rápidas y accesibles para toda la ciudadanía, como etapa obligatoria a todo procedimiento y no sólo como un simple formulismo.
+

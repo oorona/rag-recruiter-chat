@@ -1,0 +1,84 @@
+Nombre Candidato: ERIKA ROXANA DZIB JASSO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho Administrativo, Derechos Humanos, Derechos Indígenas, Escuela de Formación Judicial., Licenciatura en Derecho, Maestría en Derecho, Poder Judicial, Razonamiento Probatorio, Universidad Iberoamericana, Universidad Nacional Autónoma de México, Universidad de Girona
+Tags Propósito: Acceso a la justicia, Ciudadanía, Conciencia social, Convivencia social, Derecho, Derechos, Función jurisdiccional, Humanización de la justicia., Igualdad, Impartición de justicia, Justicia, Participación ciudadana
+
+
+## Descripción del Candidato 
+
+Erika Roxana Dzib Jasso es candidata al Poder Legislativo Federal, postulándose para Magistraduras de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con Maestría en Derecho por la Universidad Nacional Autónoma de México y ha cursado diversas especializaciones y diplomados en áreas como Derecho Administrativo, Razonamiento Probatorio, Derechos Humanos y Derechos de los Pueblos Indígenas.
+
+Su motivación para buscar el cargo público es brindar sus conocimientos y experiencia a la ciudadanía. Su visión de la función jurisdiccional y la impartición de justicia se centra en acercar el derecho a la gente, promover la conciencia social sobre el impacto de la justicia y asegurar el acceso a la misma en condiciones de igualdad. Sus propuestas incluyen apoyar a la ciudadanía en el ejercicio de sus derechos, promover el acceso igualitario a la justicia y fomentar foros de participación ciudadana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A4gmMWErq/?mibextid=wwXIfr
+- https://x.com/erikadzib?s=21
+- https://www.instagram.com/dziberikamx?igsh=amJtaDliZ2hjeDM3&utm_source=qr
+- https://www.tiktok.com/@dziberika?_t=ZM-8v4v5UXLPMN&_r=1
+
+
+## Cursos
+
+- Especialidad en derecho administrativo
+- Escuela de Formación Judicial
+- ,Especialidad en Razonamiento Probatorio
+- Universidad de Girona
+- ,Derechos de los Pueblos y Comunidades Indígenas
+- Escuela de Formación Judicial
+- ,Diplomado en Derechos Humanos
+- Universidad Iberoamericana
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52865/10
+
+
+## Trayectoria Academica
+
+- Licenciatura y Maestría en derecho
+- Universidad Nacional Autónoma de México
+- Especialidad en derecho administrativo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar mis conocimientos y experiencia a todas las personas que deseen expresarse de acuerdo con el derecho.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ejercicio de la abogacía en el área para la cual me postulo me ha permitido sensibilizarme y reconocer que la función no puede ser ajena al sentir y a los anhelos del pueblo. La sociedad requiere que se difunda la labor jurisdiccional para que se genere conciencia social sobre el impacto que tiene la justicia en las vidas de las personas y en nuestro entorno.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no es ajena a la razón, ni al derecho, pues quien acude a tribunales con razón, la ve reconocida y amparada. Ahora, se debe promover el derecho como un fenómeno de sencillez que pueda llegar a todas las personas. El derecho lo vivimos todos desde nuestro nacimiento, al ser el mejor instrumento para la convivencia social. Por ende, la justicia debe impartirse de la manera más humana y cercana a la gente, ya que nos involucra a todos.
+
+
+## Propuestas
+
+- Apoyar a la ciudadanía a que se exprese de acuerdo con el derecho y así pueda obtener justicia.
+- Promover el acceso a la justicia en condiciones de igualdad.
+- Fomentar foros y eventos en los que tenga intervención la ciudadanía.
+

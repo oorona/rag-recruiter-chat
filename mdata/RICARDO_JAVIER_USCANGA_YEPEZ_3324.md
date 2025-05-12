@@ -1,0 +1,73 @@
+Nombre Candidato: RICARDO JAVIER USCANGA YEPEZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2294828585
+Correo Electronico: uscangayepezricardojavier@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Contaduría, Derecho, Diplomado, Educación Superior, Licenciatura., Mercadotecnia, Universidad Autónoma de Veracruz
+Tags Propósito: Administración de justicia, Colaboración, Confianza, Constitución, Eficiencia, Honestidad, Humanismo, Igualdad, Inclusión., Innovación, Medios alternativos, Poder Judicial, Resolución de conflictos, Sistema judicial, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ricardo Javier Uscanga Yepez es candidato a Juez/a de Distrito en Veracruz, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura en Contaduría y Derecho, respaldada por cédula profesional, y un diplomado en Mercadotecnia.
+
+Su motivación para buscar el cargo se basa en su convicción de que su generación puede contribuir a la mejora humanística del sistema judicial. Sus propuestas centrales incluyen la resolución pacífica de conflictos, el uso de la innovación y la tecnología en la administración de justicia, y el fortalecimiento de la confianza en el Poder Judicial a través de un trabajo profesional, humanista y respetuoso. Su visión de la función jurisdiccional se enfoca en valores que generen confianza en el sistema y garanticen los derechos ciudadanos, mientras que busca un sistema judicial expedito, eficiente y transparente, con atención a la población vulnerable.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/Uscanga_YRicardoJ
+- https://www.tiktok.com/Uscanga_YRicardoJ
+
+
+## Cursos
+
+- 2004 Universidad Autónoma de Veracruz, Villa Rica, Boca Del Río, Ver
+- Diplomado en Mercadotecnia, Folio 0389065743
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55014/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Contaduría, Universidad Autónoma de Veracruz, licenciatura en Derecho Centro de Estudios Superiores Ver
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy convencido que nuestra generación puede contribuir en el mejoramiento humanístico del sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Contemplar en el ejercicio de la actividad jurisdiccional los valores que generen confianza en el sistema jurídico mexicano, que proteja y garantice a la ciudadanía en igualdad y con respeto a la Constitución.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser parte de un sistema judicial expedito, eficiente y transparente, al servicio de la sociedad y con especial atención en la población vulnerable.
+
+
+## Propuestas
+
+- Resolución de conflictos de manera pacífica y constructiva, privilegiando en todo momento la solución por medios alternativos, legales y al alcance de las partes.
+- Valorar la innovación, la tecnología y la colaboración, que permita contar con tendencias actuales y mejores prácticas en la administración de justicia.
+- Contribuir en un mejor posicionamiento del Poder Judicial, generando confianza, por medio del trabajo profesional, humanista, honesto, respetuoso e inclusivo.
+

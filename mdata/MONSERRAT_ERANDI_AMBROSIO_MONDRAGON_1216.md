@@ -1,0 +1,74 @@
+Nombre Candidato: MONSERRAT ERANDI AMBROSIO MONDRAGON
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: 4434731866
+Correo Electronico: lic.monseambrosio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Electoral, Derecho Procesal Constitucional, Docencia Universitaria, Licenciatura, Maestría, UMSNH
+Tags Propósito: Accesibilidad, Cero opacidad, Cero privilegios, Ciudadanía, Confianza, Dilaciones, Eficiencia, Equidad, Estado de derecho, Humanismo, Impartición de justicia., Inmediatez, Justicia, Legalidad, Procesos justos, Resolución de casos, Sistema judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+MONSERRAT ERANDI AMBROSIO MONDRAGON es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal para el estado de Michoacán. Cuenta con Maestría en Derecho Procesal Constitucional y es Licenciada en Derecho por la Universidad Michoacana de San Nicolás de Hidalgo (UMSNH), además de experiencia como docente universitaria y actualmente cursa la Maestría en Derecho Electoral en la misma universidad.
+
+Su motivación para buscar el cargo se basa en su convicción de que la justicia debe ser cercana, transparente e inmediata, respaldada por su trayectoria y aptitudes. Su visión se centra en consolidar un sistema de justicia transparente, accesible y ágil, proponiendo una justicia transparente, cercana e inmediata, con el objetivo de eliminar rezagos, mejorar la accesibilidad y fortalecer la confianza en las instituciones. Información adicional sobre su trayectoria profesional está disponible en el enlace a su Curriculum Vitae proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/monserraterandi.ambrosiomondragon?mibextid=ZbWKwL
+- https://www.instagram.com/monsesitaambrosio?igsh=OHJzcjcycjE2YWJx
+- https://www.tiktok.com/@monsesitaambrosio?_t=ZM-8v66HsE9a6R&_r=1
+- https://www.threads.net/@monsesitaambrosio
+
+
+## Cursos
+
+- Candidata a Maestra en Derecho Electoral en la UMSNH
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52161/10
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho Procesal Constitucional en la UMSNH; Licenciada en Derecho en la UMSNH, y como docente universitaria
+
+
+## Motivo para buscar el Cargo Publico
+
+La justicia debe ser cercana, transparente e inmediata, cuento con las aptitudes, trayectoria y convicción para lograrlo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se orienta a consolidar un sistema de justicia verdaderamente transparente, accesible y ágil, donde cada resolución garantice certeza, equidad y confianza. Mi compromiso es acercar la justicia a la ciudadanía, eliminando barreras procesales y promoviendo decisiones inmediatas y fundamentadas, con estricto apego a la ley y sensibilidad social, para fortalecer el Estado de derecho en beneficio de todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Consolidar una impartición de justicia transparente, accesible y eficiente, donde cada persona encuentre respuestas inmediatas a sus necesidades jurídicas. A través de un enfoque humanista y con apego irrestricto a la legalidad, que fortalezca la confianza ciudadana en las instituciones, garantizando procesos justos y equitativos. Mi compromiso es transformar la justicia en un derecho tangible para todas y todos.
+
+
+## Propuestas
+
+- Justicia Transparente: cero opacidad, cero privilegios. Garantizar que el proceso judicial sea accesible y comprensible para todos, evitando dudas sobre posibles favoritismos o irregularidades.
+- Justicia Cercana: escuchar para resolver. Acercar la justicia a quienes más la necesitan, escuchar las realidades que permitan identificar áreas de mejora en el sistema judicial.
+- Justicia Inmediata: no más rezagos, no más dilaciones. Acelerar la resolución de casos, beneficiando tanto a la ciudadanía como al sistema judicial en su conjunto.
+

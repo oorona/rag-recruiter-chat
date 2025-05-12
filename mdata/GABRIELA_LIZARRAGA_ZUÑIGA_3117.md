@@ -1,0 +1,73 @@
+Nombre Candidato: GABRIELA LIZARRAGA ZUÑIGA
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: MUJER
+Telefono: 6691900718
+Correo Electronico: GABRIELLALIZU@GMAIL.COM
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Actuario, Concurso Escolarizado, Derecho, Diplomado, Escuela Judicial, Especialización, Formación, Juicio de Amparo, Justicia Laboral, Licenciatura, Poder Judicial de la Federación, Reforma Laboral., Seguridad Social
+Tags Propósito: actualización, armonía, capacitación, celeridad, confianza, derecho., eficacia, eficiencia, evaluación, expediente judicial, función jurisdiccional, imparcialidad, justicia, legalidad, resolución de conflictos, responsabilidad, seguimiento, sociedad, tecnología
+
+
+## Descripción del Candidato 
+
+Gabriela Lizarraga Zúñiga es candidata a Jueza/es de Distrito en Sinaloa, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho por la Universidad Autónoma de Sinaloa y especialidad en materia Laboral por la Escuela Judicial, además de diversos cursos de formación en áreas como justicia laboral, seguridad social y juicio de amparo.
+
+Su motivación para buscar el cargo se basa en su experiencia para impartir justicia de manera imparcial, pronta y completa. Su visión de la función jurisdiccional se centra en la resolución de conflictos con apego a principios como imparcialidad, legalidad y celeridad. Sus propuestas incluyen la implementación de un expediente judicial útil y operativo con apoyo de nuevas tecnologías, así como la creación de un ambiente laboral de confianza para mejorar los procesos en instancias judiciales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/gabriela.lizu/
+
+
+## Cursos
+
+- Curso de formación para personas secretarias del Poder Judicial de la Federación: Aprobado con promedio general 9
+- 0,Primer concurso escolarizado 2024 para acceder a la categoría de Actuaria y Actuario del Poder Judicial de La Federación,Curso de Especialización sobre la Reforma en Materia de Justicia Laboral ¿ Séptima Generación,Diplomado en Seguridad Social,Diplomado Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54229/11
+
+
+## Trayectoria Academica
+
+- Especialidad en materia Laboral, Escuela Judicial
+- Licenciatura en Derecho por la Universidad Autónoma de Sinaloa
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la experiencia para impartir justicia y asumir la responsabilidad de manera imparcial, pronta y completa.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es un plan de vida que se decide por la vocación de resolver los conflictos que se presentan en la sociedad y asumir la responsabilidad de impartir justicia en forma imparcial, pronta, completa y gratuita, es decir, dentro de los plazos que fijen las leyes partiendo y actuando de conformidad con los principios de imparcialidad, legalidad, honradez , independencia, lealtad, celeridad, eficiencia y eficacia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es una labor esencial en la cual las jueces y juezas deben estar en constante estudio en la práctica, como en la doctrina y la jurisprudencia en relación con una sociedad que está en constante cambio, pues es indispensable estar capacitada, actualizado, especializado en derecho para la solución de conflictos que se presentan diariamente en el ámbito normativo, social y axiológico.
+
+
+## Propuestas
+
+- Implementar el expediente judicial útil y operativo que facilite el ejercicio de la función jurisdiccional, dotando a jueces y juezas de los medios técnicos necesarios para poder desempeñar su función jurisdiccional usando las nuevas tecnologías.
+- Generar un espacio de confianza y ambiente armónico y así generar un proceso de seguimiento a las tareas para evaluar los resultados para identificar e idear medidas para solucionarlos, y por ende mitigar los problemas en el proceso en instancia judicial.
+- No proporcionó
+

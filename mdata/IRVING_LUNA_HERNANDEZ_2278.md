@@ -1,0 +1,71 @@
+Nombre Candidato: IRVING LUNA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Adversarial, Bloque de constitucionalidad, CEAD, CoIDH, Constitucionalismo, Corte Interamericana, Derecho Constitucional, Derecho de Amparo., Derechos Humanos, IJF, Igualdad, Justicia Constitucional, No Discriminación, Sistema Penal Acusatorio, UNAM, UPAEP
+Tags Propósito: Capacitación jurídica, Constitución, Derechos fundamentales, Función judicial., Imparcialidad, Justicia, Profesionalismo, Ética judicial
+
+
+## Descripción del Candidato 
+
+Irving Luna Hernandez es candidato a Jueces de Distrito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Constitucional y especialización en justicia constitucional y derecho de amparo. Su trayectoria académica se complementa con cursos en Derechos Humanos, Bloque de Constitucionalidad, Corrientes Contemporáneas del Constitucionalismo, Jurisprudencia de la Corte Interamericana de Derechos Humanos, Derecho a la Igualdad y no Discriminación, y el Sistema Penal Acusatorio y Adversarial.
+
+Su motivación para buscar el cargo público radica en el interés por el respeto y promoción de los derechos fundamentales. Su visión de la función jurisdiccional se centra en la protección de derechos y el cumplimiento de la Constitución, enfatizando la importancia de principios éticos sólidos en la imparcialidad de las sentencias. Sus propuestas incluyen el profesionalismo en la función judicial, la actualización y capacitación constante, y la imparcialidad en el dictado de sentencias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Derechos Humanos y Bloque de constitucionalidad, UNAM,Corrientes contemporáneas del constitucionalismo, CEAD,Programa de actualización sobre la Jurisprudencia de la Corte Interamericana de Derechos Humanos, CoIDH,Derecho a la Igualdad y no Discriminación, IJF,Sistema Penal Acusatorio y Adversarial, UPAEP
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53834/11
+
+
+## Trayectoria Academica
+
+- Maestro en derecho constitucional y Especialista en justicia constitucional y derecho de amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Me interesa el respeto y promoción de los derechos fundamentales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El juez tiene la responsabilidad de proteger los derechos y garantizar el cumplimiento de la Constitución.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para una correcta impartición de justicia y protección de los derechos fundamentales, el juzgador debe guiar su decisión basado en principios éticos sólidos.
+
+
+## Propuestas
+
+- Profesionalismo en la función judicial
+- Actualización y capacitación constante en temas jurídicos y sociales
+- Imparcialidad en el dictado de sentencias
+

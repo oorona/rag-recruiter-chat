@@ -1,0 +1,85 @@
+Nombre Candidato: ANA MARCELA ZATARAIN BARRETT
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5518180195
+Correo Electronico: amzbredes2@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Derecho Constitucional, Derechos Humanos, Formación Judicial., Justicia, Metodologías Sociales, Perspectiva de Género, Proceso Penal, Secretaria de Juzgado, Seguridad Social, Sistema Penal Acusatorio, Tribunal de Circuito
+Tags Propósito: Acceso a la justicia, Capacitación, Ciudad de México., Defensoría Pública, Equidad, Justicia, Nepotismo, Poder Judicial Federal, Servicio público, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ana Marcela Zatarain Barrett es candidata al Poder Legislativo Federal, con experiencia en las Magistraturas de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con una Maestría en Derecho Constitucional y Amparo, así como con diversos diplomados en áreas como Derechos Humanos, Seguridad Social, perspectiva de género y el Sistema Penal Acusatorio.
+
+Su motivación para buscar el cargo público es continuar sirviendo al pueblo de México, enfocándose en dictar sentencias justas, especialmente para los más vulnerables, y en impartir justicia de manera igualitaria y accesible. Sus propuestas incluyen abatir el nepotismo en el Poder Judicial, establecer Institutos de la Defensoría Pública en todas las alcaldías de la Ciudad de México y fortalecer la capacitación de los trabajadores del Poder Judicial Federal.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Ana-Marcela-Zatarain-Barrett/pfbid02EuWKgKuqFGcrF6dxcKZ6jSD5aEt2pYggNrx7uYZ8yAHLj6zkJNNfVJM9geJ7KgtKl/?rdid=RalMFw0WQPootQWR&share_url=https3A2F2Fwww.facebook.com2F
+- https://www.instagram.com/marcelazatarainb/?igsh=MWgzbDBnd3B3bGd0Zg3D3D#
+- https://www.tiktok.com/@marcelazatarainbarrett?_t=ZM-8v6179zd4oX&_r=1
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos Aproximaciones para su Defensa Ed
+- 2024, SCJN Unidad Gral
+- de Conocimiento Científico y DH,Diplomado en Seguridad Social 3a
+- Generación
+- CJF Escuela Federal de Formación Judicial
+- ,Diplomado Juzgar con Perspectiva de Género
+- CJF Escuela Federal de Formación Judicial
+- ,Diplomado en Sistema Penal Acusatorio 6A
+- Ed
+- CJF Escuela Federal de Formación Judicial
+- ,Metodologías Sociales en el Proceso Penal
+- Para un Acceso Efectivo a la Justicia, Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54755/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Constitucional y Amparo UVT, Especialidad Secretaria de Juzgado de Dto
+- y Tribunal de Circuito
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo seguir sirviendo al pueblo de México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Dictar sentencias justas y equitativas para las mexicanas y mexicanos principalmente a los más vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es realizar la función de manera igualitaria y equitativa, que sea accesible y llegue a todas las personas y a todos los lugares, sin favoritismos ni discriminación.
+
+
+## Propuestas
+
+- Abatir totalmente el nepotismo, esto es, familiares, amigos, amigas de titulares o de otros trabajadores de la institución que se benefician y acceden a los cargos públicos sin estar preparados para la función que desempeñan.
+- Que en todas las alcandías de la Ciudad de México haya un Instituto de la Defensoría Pública o del Pueblo, de esta manera, las personas tendrían acceso a la justicia.
+- Mayor capacitación para las y los trabajadores del Poder Judicial Federal, con el fin de brindar un servicio público de calidad.
+

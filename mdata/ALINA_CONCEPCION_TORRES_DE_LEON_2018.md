@@ -1,0 +1,74 @@
+Nombre Candidato: ALINA CONCEPCION TORRES DE LEON
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 8147930699
+Correo Electronico: alinac.torres.l@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Argumentación Jurídica, Derecho Constitucional, Derecho Laboral, Diplomado, Doctorado, Formación, Licenciatura, Poder Judicial, Reforma Laboral, Seguridad Social
+Tags Propósito: Acceso a la Justicia, Celeridad, Debido Proceso, Derechos Humanos, Dignidad Humana, Eficiencia, Equidad, Formación, Justicia Laboral, Justicia Práctica., Legalidad, Sistema de Justicia, Solución de Conflictos, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+ALINA CONCEPCION TORRES DE LEON es candidata a Jueza/es de Distrito en Chiapas, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho y se encuentra cursando el Doctorado en Derecho, además de diversas especializaciones en materia laboral y argumentación jurídica.
+
+Su motivación para buscar el cargo es convertirse en agente de cambio y defensora de los derechos y la justicia. Su visión se centra en el acceso a la justicia con perspectiva de derechos humanos e igualdad, buscando fortalecer la tutela efectiva de los derechos, especialmente en el ámbito laboral. Sus propuestas incluyen el uso de la tecnología para agilizar procesos, la creación de criterios de solución de controversias enfocados en la justicia práctica y la promoción de la transparencia y el conocimiento del sistema judicial a través de programas para estudiantes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574708788722
+- https://www.instagram.com/alinactorresl/
+
+
+## Cursos
+
+- Jornada de Sensibilización Sobre la Reforma en Materia de Justicia Laboral,Diplomado Práctico en Materia Laboral, Seguridad Social y Amparo,Taller de Reformas en Materia Laboral,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Diplomado en Argumentación Jurídica: La Argumentación Jurídica en el Ámbito del Derecho Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54925/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho; Mtra
+- en Derecho Constitucional y Amparo; y actualmente curso último cuatrimestre Doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ser un agente de cambio, una protectora de los derechos de las personas y una defensora de la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Comprometida con la defensa de los derechos fundamentales, me inclino por el acceso a la justicia con perspectiva de derechos humanos e igualdad para todos. Mi labor busca fortalecer la tutela efectiva de los derechos de las personas, así como garantizar procesos justos, equitativos y expeditos en el ámbito laboral, tomando siempre como referencia la protección de la dignidad humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi enfoque en la justicia laboral está orientado a garantizar la protección de los derechos de los trabajadores y patrones, con apego a los principios de legalidad, equidad y debido proceso. Mi labor busca contribuir a la consolidación de un sistema de justicia laboral eficiente y accesible para todos, a efecto de garantizar un trato digno respecto a los derechos de todos y en la búsqueda de la verdad en cada procedimiento.
+
+
+## Propuestas
+
+- Eficiencia y celeridad: Utilizar todos los avances tecnológicos y experiencia personal para agilizar los procesos judiciales y reducir los tiempos de resolución de los casos, tal como organizar equipos de trabajo en la tramitación de asuntos especializados para reducir los tiempos de espera y mejorar la eficiencia en el servicio.
+- Sistema de Justicia: Crear criterios de solución de las contiendas, buscando que el derecho coincida con la justicia, evitando formalismos innecesarios y dando prioridad a soluciones prácticas, prontas, sencillas y equitativas para todas las partes involucradas.
+- Formación de nuevas generaciones: Transparencia de acceso a la justicia para estar al alcance de todos, a través de visitas guiadas a la comunidad estudiantil con el fin de que conozcan la justicia en el desarrollo del proceso judicial desde el interior del tribunal, en busca de la transparencia en la impartición de justicia, el conocimiento y confianza para los futuros profesionistas.
+

@@ -1,0 +1,84 @@
+Nombre Candidato: MARIA NORA MACARENA GARZA GUERRA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8140060359
+Correo Electronico: marianora.garza@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Laboral, Derecho Laboral, Derechos Humanos, Jurisprudencia, Licenciatura en Derecho, Maestría en Derecho de Amparo., Pensiones, Procesos Judiciales, Seguridad Social, UANL, UDEM, Violencia contra las Mujeres
+Tags Propósito: armonía social, bien común, confianza ciudadana, derechos humanos, equidad, formación jurídica, inclusión, integridad, justicia, justicia social, justicia ágil, marco normativo, reforma judicial, sensibilidad social., trato humano, valores morales, verdad
+
+
+## Descripción del Candidato 
+
+Maria Nora Macarena Garza Guerra es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal en Nuevo León. Cuenta con licenciatura en Derecho de la UDEM y estudios de maestría en Derecho de Amparo de la UANL. Su trayectoria se complementa con cursos en derechos humanos, amparo laboral, actualización en derecho laboral y visibilización de la violencia contra las mujeres, entre otros, impartidos por instituciones como el Consejo de la Judicatura del Estado de Nuevo León y la STPS.
+
+Su motivación para buscar el cargo se basa en contribuir a impartir justicia con un sentido humano y profesional. Su visión de la función jurisdiccional enfatiza la búsqueda de la verdad, el apego a la ley y el compromiso ciudadano, proponiendo además una actualización en temas de justicia social, equidad e inclusión para el personal jurídico y administrativo. Busca mejorar la percepción de confianza en el sistema judicial a través de un trabajo ágil, un trato humano y cercano a las circunstancias individuales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1YXRw5PoyK/?mibextid=wwXIfr
+- https://www.instagram.com/garzaguerra.macarena/
+
+
+## Cursos
+
+- Curso: Derechos Humanos en los Procesos Judiciales
+- Impartido por el Consejo de la Judicatura del Estado de N
+- L
+- ,Curso: Amparo Laboral
+- Impartido por el Consejo de la Judicatura del Estado de N
+- L
+- ,Curso: Curso de actualización Derecho Laboral, Seguridad Social y Pensiones
+- Impartido por la STPS
+- ,Curso: Visibilización de la Violencia contra las Mujeres
+- Impartido por el Consejo de la Judicatura del Estado de N
+- L
+- ,Curso: La Jurisprudencia, su Difusión y Consulta
+- Impartido por la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53057/10
+
+
+## Trayectoria Academica
+
+- Soy egresada de la Licenciatura en Derecho de la UDEM, después, ingresé a la Maestría en Derecho de Amparo, de la UANL
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero contribuir a impartir justicia con un sentido humano y profesional para enfrentar los retos actuales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La búsqueda de la verdad, el apego al marco normativo, la disciplina y el compromiso con la ciudadanía. Por mi parte, la aplicación del derecho debe ser estricta con apego a las leyes. Sin embargo, considero que también es labor del juzgador, comprender e identificar aspectos del mencionado marco normativo que podrían reformarse o mejorarse para que se adapte a las circunstancias que fortalezcan la impartición de justicia en cuanto a una mayor sensibilidad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quien imparte justicia, debe vivir honestamente y contribuir, como integrante de una sociedad, en perseguir el bien común y una armonía social. Lo anterior, con base a la verdad, los valores morales, el respeto y los derechos humanos.
+
+
+## Propuestas
+
+- Tomando en cuenta que la reforma judicial busca brindar una impartición de justicia más humana, temas como la justicia social, equidad, inclusión, paridad, entre otros, deben ser prioritarios en esta nueva era de esta gran institución, por lo que considero importante que el personal jurídico y administrativo refuerce su formación en dichos temas.
+- Del mismo modo, es prioritario para mí, mejorar la percepción de confianza de la ciudadanía en esta institución, a base de trabajo, resultados, justica ágil y expedita, un trato más humano y cercano a las circunstancias de las personas.
+- No proporcionó
+

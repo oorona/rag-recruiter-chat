@@ -1,0 +1,75 @@
+Nombre Candidato: RIGOBERTO ROJAS NUÑEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7292632811
+Correo Electronico: rigobertorojasnunez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Auditoría Financiera Forense, Derecho, Especialidad., Gobierno Corporativo, Licenciatura, Oficial de Cumplimiento
+Tags Propósito: LGBTQI, accesibilidad, adolescentes, asistencia jurídica, autonomía, comunidades indígenas, derechos constitucionales, derechos humanos, discapacidad, eficiencia, equidad, igualdad, imparcialidad, inclusión, independencia, justicia, minorías étnicas, niños, personas mayores, pobreza, programas sociales., sistema judicial, transparencia, tribunales, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Rigoberto Rojas Núñez es candidato a Juez de Distrito en México, postulándose por el Poder Judicial de la Federación. Licenciado en Derecho con especialización en Gobierno Corporativo, Auditoría Financiera Forense y como Oficial de Cumplimiento, cuenta con cédula profesional. Motiva su candidatura la importancia y la necesidad de una comprensión profunda de las leyes para el cargo.
+
+Su visión se centra en garantizar un sistema de justicia justo, independiente, accesible, eficiente y transparente, con énfasis en la imparcialidad y la aplicación equitativa de la ley. Sus propuestas incluyen el apoyo a grupos en situación de vulnerabilidad, la priorización de los derechos humanos y constitucionales en la toma de decisiones, y el desarrollo de programas de asistencia jurídica gratuita para personas de bajos recursos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AcBvvc4z7/?mibextid=wwXIfr
+- https://www.instagram.com/lic_rigoberto_rojas?igsh=MWg0dzVjMm52Y2F0cQ==
+- https://www.youtube.com/@AMIGORIGO-m9j
+- https://www.tiktok.com/@lic_rigoberto_rojas?_t=ZM-8uvfW37KXJf&_r=1
+- https://www.linkedin.com/in/rigoberto-rojas-nuC3B1ez-44008a1a2?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- Auditoría Financiera Forense, Gobierno Corporativo, Oficial de Cumplimiento
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55488/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, con especialidad en Gobierno Corporativo, Auditoría Financiera Forense y Oficial en Cumplimiento
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es una responsabilidad de gran importancia y requiere una profunda comprensión de las leyes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar un sistema de justicia justo, independiente, accesible, eficiente y transparente. Como juez, debo impartir justicia con imparcialidad, actuando sin favoritismos, ni prejuicios para que todos tengan igualdad de oportunidades. Mi trabajo debe ser independiente, sin influencias externas, basado en la ley y los hechos. Los tribunales deben ser accesibles para todos, funcionar con eficiencia y emitir decisiones claras y fundamentadas, asegurando transparencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser imparcial, independiente, accesible y eficiente, asegurando igualdad de condiciones para todos. Como juez debo actuar con autonomía, sin influencias externas, aplicando la ley con transparencia y equidad. Los tribunales deben ser inclusivos, ágiles y emitir resoluciones claras y bien fundamentadas, fortaleciendo la confianza en el sistema judicial y garantizando un acceso real y sobre todo en bien de la sociedad, eliminando barreras económicas y burocráticas.
+
+
+## Propuestas
+
+- Apoyo a todos los grupos en igualdad de derechos: como niños y adolescentes, personas mayores, personas con discapacidad, mujeres, comunidades indígenas y minorías étnicas, personas en situación de pobreza, así como a la comunidad LGBTQI
+- Derechos Humanos y Constitucionales: Priorizar la protección de los derechos humanos y constitucionales en todas las decisiones, asegurando un enfoque justo y equilibrado.
+- Programas de Asistencia Jurídica: Desarrollar programas de asistencia jurídica gratuita para personas de bajos ingresos y grupos vulnerables, garantizando el acceso igualitario a la justicia.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: ANA LILIA PEÑA SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: 5663572943
+Correo Electronico: analiliapenasanchez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Civil, Derecho Constitucional, Derecho Familiar, Derecho Penal, Educación Primaria, IICATHI, IITESM, Licenciatura en Derecho, Litigación Penal, UAEH.
+Tags Propósito: derechos, equidad, hidalgenses, honestidad, igualdad, imparcialidad, justicia, justicia laboral, justiciables., ley, protección, transparencia
+
+
+## Descripción del Candidato 
+
+Ana Lilia Peña Sánchez es candidata a Jueza/es de Distrito en Hidalgo, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho, respaldada por estudios en Derecho Constitucional, Civil, Penal y Familiar, así como en Litigación Penal. Su trayectoria incluye experiencia como profesora de educación primaria.
+
+La candidata expresa su motivación para buscar el cargo público como un deseo de contribuir a un sistema justo y equitativo para los habitantes de Hidalgo. Su visión para la función jurisdiccional y la impartición de justicia se centra en un estricto apego a la ley, la protección de los derechos de los justiciables, la transparencia en la aplicación de la ley, y la honestidad e imparcialidad de los juzgadores.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AnaLiliaPS/
+- https://www.x.com/analiliaps
+- https://www.tiktok.com/@analiliaps
+
+
+## Cursos
+
+- Derecho Constitucional 2005   2006 ITESM,Derecho Civil   2006   2007   ICATHI,Derecho Penal 2006   2009   ICATHI,Derecho Familiar 2009   2010   ICATHI,Litigación Penal 2010   ICATHI
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54857/11
+
+
+## Trayectoria Academica
+
+- Profesora de Educación Primaria CREN, Licenciada en Derecho UAEH, Derecho Constitucional ITESM   Derecho Familiar ICATHI
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir para construir un sistema justo y equitativo, para todas y todos los hidalguenses.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que se realice un verdadero cambio en la impartición de la justicia, con estricto apego a la ley, con la convicción de proteger los derechos de todas y todos los mexicanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia laboral deber ser imparcial. Quien se someta a la acción de la justicia sea escuchado. El cambio en la justicia laboral es actuar con estricto apego a la Ley.
+
+
+## Propuestas
+
+- La Ley debe ser aplicada con transparencia.
+- Protección de los derechos de los justiciables.
+- Los juzgadores están obligados a actuar con honestidad y con estricto apego a la Ley, donde prevalezca la imparcialidad e igualdad.
+

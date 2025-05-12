@@ -1,0 +1,75 @@
+Nombre Candidato: MIGUEL ANGEL RAMOS SENTIES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5514937655
+Correo Electronico: miguel.senties88@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Postdoctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Antijuridicidad, Ciencias Penales, Curriculum Vitae, Derecho Constitucional, Derecho Penal, Docencia, Doctorado, Juicios Orales, Licenciatura, Maestría, Punibilidad
+Tags Propósito: Confianza, Derecho., Derechos, Eficiencia, Equidad, Género, Igualdad, Imparcialidad, Independencia, Indígenas, Instituciones, Integridad, Juicios, Justicia, Reconstrucción social, Responsabilidad, Sentencias, Sesgos, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Miguel Ángel Ramos Senties es candidato al Poder Legislativo Federal con experiencia en las Magistraturas de Tribunales Colegiados de Circuito. Cuenta con formación académica de posdoctorado, además de licenciaturas, maestrías y doctorados en Derecho, Ciencias Penales y Derecho Constitucional, complementada con docencia en diversas áreas del derecho penal.
+
+Ramos Senties motiva su búsqueda del cargo público con el objetivo de impartir justicia cercana, transparente, imparcial y justa. Sus propuestas se centran en restaurar la confianza en las instituciones de justicia, promoviendo decisiones basadas en la equidad, transparencia, y la incorporación de enfoques de género, derechos indígenas y protección a grupos vulnerables. Busca garantizar procesos judiciales imparciales, integrales y con apego a los valores éticos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1DEotNfEfB/
+- https://x.com/miguelrsenties?s=21&t=_kmfwewI4i7m9IcweLCUzA
+- https://www.instagram.com/miguelangelramossenties?utm_source=qr&igsh=N240MXNoYWN3Mjgw
+- https://www.tiktok.com/@miguelangelramossenties?_t=ZM-8uxtSd4tfTq&_r=1
+
+
+## Cursos
+
+- Docente en maestría y doctorado en: (i) Derecho Penal, (ii) Punibilidad, (iii) Antijuridicidad y otros
+- ,Diversos cursos, diplomados, simposios, descritos en Curriculum Vitae,Maestrante del último semestre de la Maestría en Juicios Orales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55256/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, maestro en Ciencias Penales, Doctor en Ciencias Penales y Doctor en Derecho Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Impartir justicia cercana a las personas, transparente, imparcial pero sobre todo justa.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estoy convencido que la labor jurisdiccional debe de ser desempeñada con absoluta imparcialidad, integridad, justicia, independencia, prudencia, responsabilidad, conocimiento, preparación, transparencia, eficiencia, eficacia, pero sobre todo con apego a los más altos valores éticos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+México necesita restaurar la confianza de la ciudadanía en las instituciones de justicia, requiere Juzgadores que inspiren confianza y contribuyan a la reconstrucción del tejido social la aspiración al cargo no es sólo una meta personal, sino una visión de un México más justo, equitativo e igualitario y estoy convencido que desde ésta posición adoptaré la construcción de un país en que la justicia no sea solo un privilegio sino un verdadero derecho y ello lo haré ver reflejado en cada sentencia.
+
+
+## Propuestas
+
+- Creo fervientemente que ser Magistrado implica más que un simple dominio técnico de la abogacía, requiere capacidad de actuar con imparcialidad, valor y sensibilidad entendiendo el contexto social sobre el que se resuelve, pues no se trata sólo de resolver conflictos legales de las personas sino de restaurar la confianza que las personas tienen en las Instituciones
+- Contribuir a erradicar esas prácticas que merman la confianza de la ciudadanía, promoviendo decisiones basadas en principios de justicia, equidad y transparencia, pues pienso que derivado de la preparación y capacitación con la que cuento me permitirá abrir nuevas perspectivas, como la incorporación de enfoques de género, derechos indígenas y protección a grupos vulnerables, entre otros.
+- Juicios basados en imparcialidad, integridad, justicia, independencia, prudencia, responsabilidad, conocimiento, preparación, transparencia, eficiencia, eficacia, pero sobre todo con apego a los más altos valores éticos. Como Magistrado mi compromiso será garantizar procesos libres de sesgos, donde prevalezca el derecho sobre cualquier interés particular.
+

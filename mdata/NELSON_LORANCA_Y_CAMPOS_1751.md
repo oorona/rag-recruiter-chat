@@ -1,0 +1,78 @@
+Nombre Candidato: NELSON LORANCA Y CAMPOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: lorancaycamposnelson@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Ciencias Penales, Coaching, Consejo de la Judicatura Federal, Derecho, Derecho Procesal Civil, Formación Judicial, Igualdad de Género, Juicios Orales, Justicia Mercantil, Liderazgo, Protección de Datos Personales, Transparencia, Universidad Iberoamericana.
+Tags Propósito: Abuso de poder, Acceso a la justicia, Calidad del proceso, Ciudadanía, Corrupción, Cultura de paz, Discapacidad, Eficiencia, Equidad, Honestidad, Imparcialidad, Justicia, Legalidad, Legitimidad procesal, Medios alternativos de solución de controversias, Objetividad, Probidad, Profesionalismo, Servicio público., Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Nelson Loranca y Campos es candidato a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en Tlaxcala. Cuenta con formación académica de posgrado, incluyendo un Doctorado en Ciencias Penales y Juicios Orales, y ha completado diversos cursos en áreas como justicia mercantil, coaching, liderazgo, igualdad de género, transparencia y formación para secretarios de tribunal. 
+
+Su motivación para buscar el cargo se basa en el servicio público y la honestidad, buscando acercar la justicia a grupos vulnerables. Propone una justicia pronta, completa, imparcial, transparente y cercana a la gente, enfocándose en romper con la impunidad y el abuso de funciones. Además, plantea mejorar el acceso a la justicia a través de medios alternativos de solución de controversias y fomentar una legitimidad procesal basada en la eficiencia, la justicia y la participación ciudadana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/lorancaycamposnelson
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Lorancaycamposnelson
+- https://x.com/lorancaycampos
+- https://www.instagram.com/lorancaycamposnelson?igsh=aWNsZjkzajEzd2d4&utm_source=qr
+- https://www.tiktok.com/@lorancaycamposnelson
+
+
+## Cursos
+
+- Diplomado en Justicia Mercantil, Escuela Federal de Formación Judicial del Consejo de la Judicatura Federal
+- ,Diplomado en Coaching y Liderazgo, Universidad Iberoamericana de Puebla
+- ,Curso Género como Herramienta para la Igualdad, Consejo de la Judicatura Federal y ONU Mujeres
+- ,Curso de Formación para Personas Secretarias de Tribunal de Circuito: Concurso escolarizado, edición 2022, CJF
+- ,Curso Transparencia, Acceso a la Información Pública y Protección de Datos Personales, CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53918/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Maestro en Derecho Procesal Civil y Doctor en Ciencias Penales y Juicios Orales
+
+
+## Motivo para buscar el Cargo Publico
+
+Para poder servir con vocación de servicio y honestidad, acercando la justicia a los grupos mas vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La labor de las personas juzgadoras, debe estar enfocada en los siguientes elementos: Una justicia pronta, completa, imparcial, y sobre todo cercana a la gente. Sin espacio para el tráfico de influencias. Sin espacio para la corrupción. Con procesos claros, eficientes y transparentes. Debiendo ser consciente de las dificultades de todas las personas. A creer que el servicio público es una causa justa y que la lucha por la justicia es una responsabilidad compartida.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es crucial que las juezas y jueces, sean capaces de explicar sus decisiones, haciendo referencia a los argumentos que las justifican, pero esa explicación debe darse en un leguaje democrático, sencillo y llano, que sea comprensible por las personas, con independencia de su grado de educación y que atienda las particularidades de las personas con alguna discapacidad, en alguna situación de vulnerabilidad o que por su edad requieran de mayores detalles.
+
+
+## Propuestas
+
+- Construir una justicia diferente, de puertas abiertas. Cerrar la brecha entre los poderosos y los oprimidos. Romper con el abuso de funciones, la soberbia, la opulencia, la impunidad y el hostigamiento laboral. Comprometido con nuestro país, actuando con vocación de servicio, honestidad, legalidad, probidad, objetividad y profesionalismo.
+- Un acercamiento de las autoridades judiciales con la sociedad mexicana, comprender que el acceso a la justicia implica más que el acceso a los tribunales, debe existir una mejora institucional en torno a los medios alternativos de solución de controversias, lo que reduciría significativamente la cantidad de asuntos resueltos en sede jurisdiccional creando una cultura de amigable composición.
+- Crear una legitimidad procesal, en la que la propia autoridad y sus decisiones sean percibidas como apropiadas y justas, legitimidad que se puede alcanzar garantizando respuestas eficientes, emitiendo decisiones justas, realizando procesos de toma de decisión en conjunto con la ciudadanía; considerando que el factor principal de satisfacción en los justiciables no es el resultado, sino la calidad del proceso.
+

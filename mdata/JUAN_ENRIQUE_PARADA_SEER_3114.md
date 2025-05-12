@@ -1,0 +1,73 @@
+Nombre Candidato: JUAN ENRIQUE PARADA SEER
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6682320824
+Correo Electronico: justiciaparatodos@enriqueparada.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho, Derecho Procesal, Derechos Indígenas, Doctorado, Estrategias de Defensa, Formación Judicial., Juicios Orales, Juzgados de Distrito, Litigación, Sistema Penal Acusatorio, UNAM, Violencia
+Tags Propósito: Acceso a la Justicia, Bienestar Social, Campañas Informativas, Defensoría Pública, Derechos Humanos, Empatía, Escuela Judicial., Función Jurisdiccional, Imparcialidad, Justicia Humanista, Objetividad, Profesionalización Judicial, Reforma Judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+Juan Enrique Parada Seer es candidato a Juez/a de Distrito en Sinaloa, postulándose por el Poder Judicial de la Federación. Cuenta con un doctorado en Derecho Procesal y una trayectoria académica en la UNAM y el Centro Universitario de Ciencias e Investigación. Su motivación para buscar el cargo se basa en su vocación humanista, su experiencia en la protección de derechos humanos y su deseo de resolver problemas con cercanía a la población.
+
+Parada Seer propone fortalecer la profesionalización del Poder Judicial con un enfoque en la sensibilidad social y el humanismo, así como generar campañas informativas sobre sentencias de impacto social y el acceso a la Defensoría Pública Federal. Su visión sobre la función jurisdiccional se centra en principios de independencia, imparcialidad, transparencia y cercanía a la sociedad, buscando una impartición de justicia humanista y protectora de los derechos de la población.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://www.enriqueparada.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/enriqueparadaseer/
+- https://www.instagram.com/enriqueparadaseer/
+- https://www.tiktok.com/@enriqueparadaseer?_t=ZM-8v4gqOGFyR3&_r=1
+
+
+## Cursos
+
+- ESPECIALIDAD EN LITIGACIÓN Y ESTRATEGIAS DE DEFENSA EN JUICIOS ORALES, EN CENTRO DE ESTUDIOS SUPERIORES,ESPECIALIDAD EN ADMINISTRACIÓN DE JUSTICIA EN JUZGADOS DE DISTRITO, EN INSTITUTO DE LA JUDICATURA FEDERAL,DIPLOMADO SOBRE LEYES Y DERECHOS INDIGENAS, INSTITUTO DE LA JUDICATURA FEDERAL,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA, DE LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,PROGRAMA DE ACTUALIZACIÓN EN EL SISTEMA PENAL ACUSATORIO, DEL INSTITUTO DE LA JUDICATURA FEDERAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54484/11
+
+
+## Trayectoria Academica
+
+- LICENCIADO DERECHO POR LA UNAM, HASTA DOCTORADO EN DERECHO PROCESAL CENTRO UNIVERSITARIO DE CIENCIAS E INVESTIGACIÓN
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi vocación humanista, experiencia protegiendo derechos humanos y resolviendo con cercanía los problemas del pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe desempeñarse siempre bajo los principios de independencia, imparcialidad, objetividad, profesionalismo y excelencia, sin perder de vista que somos servidores que nos debemos al pueblo y el pueblo será quien nos elija. Es por ello que la impartición de justicia debe ser pública, humanista y trasparente, cercana a la sociedad, lo que es posible gracias a la reforma judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que la justicia debe ser impartida de manera humanista, clara y precisa, dado que todos y cada uno de los asuntos son únicos y deben estudiarse con una visión empática y proteccionista; asimismo, al momento de emitir sentencias debe procurarse el bienestar del pueblo, sobre los intereses personales de las partes que intervienen, con el fin de otorgar justicia a la sociedad.
+
+
+## Propuestas
+
+- La primera propuesta es fortalecer la profesionalización de los miembros del Poder Judicial de la Federación, sensibilizarlos sobre la realidad social del pueblo, para lograr mayor empatía y que las resoluciones emitidas sean apegadas a la justicia y acorde a los derechos humanos establecidos en la Constitución y Tratados Internacionales.
+- Asimismo, para mejorar la función jurisdiccional, propongo que la nueva escuela judicial imparta para el personal adscrito al Poder Judicial de la Federación, además de los cursos sobre temas del derecho, un curso sobre humanismo y empatía. Esto ayudaría a que los funcionarios puedan comunicarse con mayor claridad con los ciudadanos que no cuentan con los conocimientos técnicos, y que no necesariamente, en todas las ocasiones que acudan a un tribunal, tengan la necesidad de ir acompañadas de su
+- Para lograr un mayor acercamiento al pueblo, propongo generar campañas informativas: tanto de las sentencias de los juzgadores, que tengan un impacto positivo en favor de la sociedad, como de la información necesaria para saber a dónde acudir a que los orienten y les ayuden con la elaboración de una demanda de amparo de forma gratuita, en la Defensoría Pública Federal, en caso de ser víctimas de un acto de autoridad que vulnere sus derechos humanos.
+

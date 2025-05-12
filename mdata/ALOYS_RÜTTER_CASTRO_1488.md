@@ -1,0 +1,82 @@
+Nombre Candidato: ALOYS RÜTTER CASTRO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: 4422316351
+Correo Electronico: aloysruttercastro@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Ciencias Penales, Compliance, Derecho, Derechos Humanos, Doctorado, España, Harvard, Máster, Online, Procuración de Justicia, U.S. Political Institutions., Universidad Pompeu Fabra
+Tags Propósito: Reforma judicial, acceso a la justicia, amparo, contrapesos, corrupción, derechos humanos, estándares internacionales., grupos sociales, igualdad, impunidad, independencia judicial, justicia accesible, justicia completa, justicia pronta, profesionalismo, seguridad jurídica, sentencias claras, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+ALOYS RÜTTER CASTRO es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con doctorado en Derecho, así como maestrías en Corporate Compliance y Ciencias Penales. Su trayectoria académica y profesional se centra en el ámbito legal, incluyendo especialización en Derechos Humanos y Procuración de Justicia Federal.
+
+Su motivación para buscar el cargo público se basa en la implementación de la reforma al Poder Judicial, promoviendo la excelencia, independencia y libertad. Su visión para la función jurisdiccional y la impartición de justicia se enfoca en acercar la justicia a la sociedad, combatir la impunidad y garantizar un acceso social real, transparente y sensible a las problemáticas nacionales, con especial atención a grupos vulnerables. Sus propuestas incluyen un sistema judicial accesible y profesional, libre de corrupción, y la integración de mejores prácticas internacionales en materia de derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/aloys.rutter
+- https://www.x.com/@RutterAloys
+- https://www.instagram.com/aloysruttercastro
+- https://www.tiktok.com/rutter_ac_
+- https://www.linkedin.com/in/aloys-rütter-castro
+
+
+## Cursos
+
+- Universidad Pompeu Fabra Barcelona, España 	DOCTORADO en Derecho,CEUPE Centro Europeo de Postgrado y Empresa ¿ Madrid, España
+- Online Máster en Corporate Compliance,Harvard EdX American Government
+- U
+- S
+- Political Institutions
+- Citizen politics  America
+- ,Especialización en Derechos Humanos y Desaparición Forzada,de Derechos Humanos en Materia de Procuración de Justicia Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55130/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho, Maestrías en Corporate Compliance y en Ciencias Penales y Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Hacer realidad los objetivos de la reforma al Poder Judicial, asegurando excelencia, independencia y libertad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Acercar la justicia a la sociedad y recobrar la confianza en el sistema de justicia, de esta manera combatir la impunidad. Necesario un sistema judicial sensible a las problemáticas nacionales y al reclamo de la población por justicia, de fácil acceso, sin trabas ni formalismos que actualmente impiden el acceso a la justicia. Garantizar un sistema judicial transparente, libre de nepotismo y de corrupción. Asegurar que el Poder Judicial sea un contrapeso real a los otros poderes del Estado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Lograr un real acceso social a la justicia pronta y completa, que resuelva los asuntos de fondo y no de forma. Que los juzgadores seamos cercanos y sensibles con los gobernados. Impartir justicia sencilla, privilegiando el dictado de sentencias de fácil lectura, sin tecnicismos innecesarios. Integrar las mejores prácticas y criterios internacionales de protección de los derechos humanos. Que el sistema de justicia no tenga compromisos ni ataduras con agentes externos.
+
+
+## Propuestas
+
+- Ser un Magistrado cercano y sensible a los problemas sociales, que garantice una impartición de justicia profesional, accesible, pronta, completa y expedita. Privilegiar el dictado de sentencia de fácil lectura y comprensión, sin tecnicismos innecesarios, que realmente resuelva el problema planteado. Así, se busca recuperar la confianza social en el sistema de justicia, lo cual tiene un efecto favorable en la lucha en contra de la impunidad y la corrupción, favoreciendo la participación social.
+- Garantizar un sistema de justicia transparente, sin compromisos, sin nepotismo y sin corrupción. Combatir la inseguridad mediante el dictado de sentencias de amparo, priorizando la resolución de los problemas que afectan a la nación. Incluir en el sistema de impartición de justicia una visión internacional con las mejores prácticas de impartición de justicia que tengan un impacto favorable en la protección de los derechos humanos.
+- Asegurar el acceso a la justicia para todas las personas, con especial enfoque en personas y grupos sociales vulnerables, como mujeres, indígenas, adultos mayores, niñas y niños, personas con discapacidad, personas migrantes, refugiados y que buscan asilo, personas con enfermedades físicas y/o mentales, personas de la comunidad LGBTIQ+, así como personas que por situaciones económicas pueden ver vulnerados sus derechos humanos.
+

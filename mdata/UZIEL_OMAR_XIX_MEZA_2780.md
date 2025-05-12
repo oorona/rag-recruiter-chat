@@ -1,0 +1,79 @@
+Nombre Candidato: UZIEL OMAR XIX MEZA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7773711986
+Correo Electronico: juezomarxix@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Blockchain, Brest Francia, Derecho Familiar, Derecho Procesal Constitucional, Derecho Procesal de Amparo, Firma Electrónica, Suprema Corte de Justicia de la Nación, TSJM., Universidad Autónoma del Estado de Morelos
+Tags Propósito: Acceso a la justicia, Asistencia legal, Comunidades indígenas, Corrupción, Derechos humanos, Eficiencia, Equidad, Independencia judicial, Justicia, Mediación, Modernización, Participación ciudadana, Profesionalización, Rendición de cuentas, Tecnología, Transformación digital, Transparencia, Vulnerabilidad., Zonas rurales
+
+
+## Descripción del Candidato 
+
+UZIEL OMAR XIX MEZA es candidato a Jueces/as de Distrito por el Poder Legislativo Federal en Morelos. Cuenta con Maestría en Derecho Procesal Constitucional y una Licenciatura en Derecho por la UAEM, así como una Licenciatura en Administración Pública en Brest, Francia. Su trayectoria incluye cursos de especialización en Derecho Procesal Constitucional, Derecho Familiar, Blockchain y participación como expositor en foros sobre firma electrónica.
+
+Su motivación para buscar el cargo es impulsar una justicia justa, transparente y eficaz, buscando aumentar la confianza ciudadana en el sistema judicial.  Su visión para la función jurisdiccional se centra en el acceso a la justicia, independencia, rendición de cuentas, protección de los derechos humanos, eficiencia y actualización constante de los juzgadores. Sus propuestas principales incluyen la implementación de transparencia radical, la erradicación de la corrupción en el sistema judicial y la ampliación del acceso a la justicia para grupos vulnerables y zonas rurales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BeVxq4Rfs/?mibextid=wwXIfr
+- https://www.instagram.com/lic.omarxix?igsh=MTRjcXpvMTlpN3M2cQ3D3D&utm_source=qr
+- https://www.tiktok.com/@lic.omarxix?_t=ZM-8v4M4YOlWRq&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Procesal Constitucional por la Suprema Corte de Justicia de la Nación,Congreso  en Derecho Procesal de Amparo por la Universidad Autonoma del Estado de Morelos,Blockchain Consultant Porfessional por Blockchain Academy,Expositor en el Foro Diálogos por la Justicia en Morelos con el tema Firma Electrónica impartida por el TSJM
+- ,Especialización en Derecho Familiar por el Centro de Estudios Jurídicos Carbonell A
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55049/11
+
+
+## Trayectoria Academica
+
+- M
+- en D
+- Procesal Constitucional Lic
+- en Derecho por la UAEM y Lic
+- de Administración Publica en Brest Francia
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impulsar una justicia justa, transparente y eficaz, aumentando la confianza ciudadana en el sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es necesario fortalecer la impartición de Justicia en los siguientes ejes: Acceso a la justicia. Independencia y autonomía y rendición de cuentas. Protección de los derechos humanos. Eficiencia y Eficacia. Actualización constante de los juzgadores. Generar canales de participación ciudadana. Implementación de herramientas tecnológicas para una justicia pronta y expedita.
+
+
+## Vision sobre la Imparticion de Justicia
+
+1. ENFOQUE EN LA JUSTICIA ABIERTA: a través de la transparencia radical, participación ciudadana y rendición de cuentas. 2. MODERNIZACIÓN Y EFICIENCIA: mediante la transformación digital, simplificación de procesos y especialización judicial. 3. ENFOQUE EN DERECHOS HUMANOS: a partir de la perspectiva de género, atención a grupos vulnerables y combate a la discriminación. 4. FORTALECIMIENTO INSTITUCIONAL: con la independencia judicial, combate a la corrupción y profesionalización.
+
+
+## Propuestas
+
+- La transparencia radical para la mejora de la función jurisdiccional en la que implique un enfoque exhaustivo y sin reservas para hacer que el sistema judicial sea completamente abierto y accesible al público. A través Publicación proactiva de sentencias, resoluciones y datos judiciales en formatos accesibles y la divulgación de información sobre el funcionamiento interno de los tribunales.
+- Erradicar la corrupción en el sistema judicial mexicano, fortaleciendo la confianza ciudadana y garantizando el acceso equitativo a la justicia, aumentar la conciencia pública sobre las formas y consecuencias de la corrupción judicial, empoderar a la ciudadanía para participar activamente en la vigilancia y denuncia de actos corruptos, promover la transparencia y la rendición de cuentas en todos los niveles del sistema judicial e impulsar reformas legales.
+- Acceso a la justicia para todos: Implementar programas de asistencia legal gratuita para personas de bajos recursos y grupos vulnerables. Promover la mediación y la conciliación como métodos alternativos de resolución de conflictos, reduciendo la carga de los tribunales. Acercar modulos especializados en impartición de justicia en zonas rurales y comunidades indígenas, adaptando los procedimientos a sus necesidades culturales y lingüísticas.
+

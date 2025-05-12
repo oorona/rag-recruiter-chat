@@ -1,0 +1,73 @@
+Nombre Candidato: ANA CRISTINA RAMOS LEON
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9932281336
+Correo Electronico: anacristinaramosleon7@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: 2010, Abogada, Carrera Judicial, Derecho Constitucional, Maestría, Poder Judicial de la Federación
+Tags Propósito: Calidad de Justicia, Confianza, Derechos Humanos, Eficiencia, Humanismo, Igualdad, Imparcialidad, Justicia, Lenguaje Sencillo, Objetividad, Profesionalismo, Sentencias Claras, Transparencia, Términos de Ley., Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ana Cristina Ramos León es candidata a Jueza/es de Distrito en Tabasco, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Constitucional y una trayectoria en la Carrera Judicial del Poder Judicial de la Federación desde 2010.
+
+Su motivación para buscar el cargo público es la defensa de los derechos humanos y garantizar el acceso a la justicia en igualdad de condiciones. Su visión de la función jurisdiccional se centra en la atención humana y la imparcialidad en la resolución de casos, buscando recuperar la confianza en los juzgadores. Sus propuestas incluyen resolver con imparcialidad, humanismo y objetividad, emitir sentencias claras y fundadas, y tramitar los asuntos dentro de los plazos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573722904717
+- https://www.instagram.com/anacristinafanpage/
+- https://www.tiktok.com/@anacristinarl?_t=ZM-8uxPYeaqSsJ&_r=1
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55227/11
+
+
+## Trayectoria Academica
+
+- CARRERA JUDICIAL EN EL PODER JUDICIAL DE LA FEDERACION DESDE EL 2010, MAESTRA EN DERECHO CONSTITUCIONAL, ABOGADA
+
+
+## Motivo para buscar el Cargo Publico
+
+Para defender a las personas de quienes violan sus derechos humanos, garantizándoles justicia en condiciones de igualdad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Hacer conciencia en el órgano jurisdiccional que detrás de un expediente hay una persona exigiendo justicia y por tanto se le debe otorgar de manera humana, imparcial, objetiva y en tiempo, sin hacer distinciones de ningún tipo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que las personas vuelvan a confiar en sus juzgadores a través de la selección de sus impartidores de justicia, quienes deber ser personas sensibles y humanas ante los diversos casos que se les presenten, además imparciales y eficientes, lo que se logrará acompañado del ejemplo que inyecten a su personal, pues una mala cabeza, contamina a los demás, garantizando a quienes se encuentran en situaciones de vulnerabilidad, que podrán obtener una justicia de calidad en condiciones de igualdad.
+
+
+## Propuestas
+
+- Resolver con imparcialidad, profesionalismo, humanismo y objetividad
+- Realizar sentencias claras, precisas, con lenguaje sencillo, fundadas y motivadas.
+- Tramitar y resolver los asuntos dentro de los términos de ley
+

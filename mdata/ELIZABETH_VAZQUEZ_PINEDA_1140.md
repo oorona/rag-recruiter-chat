@@ -1,0 +1,77 @@
+Nombre Candidato: ELIZABETH VAZQUEZ PINEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 5565124559
+Correo Electronico: mageliz777@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Colegio de Abogados, INDEPAC., Instituto de la Judicatura Federal, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Laboral, Maestría en Derechos Humanos, Propiedad Intelectual, Rendición de Cuentas, Secretaría de Juzgado, Transparencia, Tribunal Colegiado, UNAM, Universidad Anáhuac
+Tags Propósito: Acceso a la Justicia, Administración de Justicia, Capacitación, Confianza, Dignidad Humana, Eficiencia, Especialización, Imparcialidad, Jurisprudencia, Justicia, Justicia Social, Juzgados., Profesionalismo, Reforma Legal, Resolución Alternativa de Conflictos, Transparencia, Tribunales, Ética
+
+
+## Descripción del Candidato 
+
+Elizabeth Vázquez Pineda es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con 18 años de experiencia en tribunales federales, con una carrera judicial especializada en materia administrativa. Es Licenciada en Derecho por la UNAM, con Maestrías en Derechos Humanos y Derecho Laboral, además de diversas especializaciones y diplomados en áreas como secretaría de juzgado, propiedad intelectual y transparencia.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en el respeto a la dignidad humana, la ética, la transparencia y la eficiencia en la resolución de casos. Sus propuestas incluyen la capacitación continua de jueces y personal judicial, la especialización de juzgados y tribunales, y la promoción de métodos alternativos de resolución de conflictos para agilizar el acceso a la justicia y lograr una solución pacífica de controversias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/166ciGGx8C/?mibextid=wwXlfr
+- https://x.com/eli_vazpin?s=21&Zl_52ndS6VokPjdf-KDkpw
+- https://www.instagram.com/eli.vazpin?igsh=MXVjcHNpN3VqYW9zZQ==
+- https://www.tiktok.com/@eli.vazpin?_t=ZM-8uWzKiYn51R&_r=1
+
+
+## Cursos
+
+- ESPECIALIDAD EN SECRETARÍA DE JUZGADO DE DISTRITO Y TRIBUNAL COLEGIADO DE CIRCUITO POR EL INSTITUTO DE LA JUDICATURA FED,ESPECIALIDAD EN PROPIEDAD INTELECTUAL POR EL ILUSTRE Y NACIONAL COLEGIO DE ABOGADOS DE MÉXICO
+- ,DIPLOMADO EN TRANSPARENCIA Y RENDICIÓN DE CUENTAS, UNIVERSIDAD ANÁHUAC DE MÉXICO
+- ,CURSO DE NOCIONES DEL JUICIO DE AMPARO POR EL INSTITUTO DE LA JUDICATURA FEDERAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54995/10
+
+
+## Trayectoria Academica
+
+- LICENCIADA EN DERECHO POR LA UNAM, MAESTRÍA EN DERECHOS HUMANOS Y MAESTRÍA EN DERECHO LABORAL POR EL INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi experiencia de 18 años de servicio en tribunales federales, con carrera judicial especializada en administrativo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ejercicio de la función jurisdiccional debe garantizar el respeto a la dignidad humana de las personas, basada en estándares éticos, sin corrupción, en el que se resuelvan los casos de manera pronta, clara, eficiente y transparente, que genere confianza en la sociedad en acudir a los órganos jurisdiccionales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser realizada por órganos jurisdiccionales en los que sus integrantes la ejerzan con calidad, profesionalismo, excelencia, objetividad, independencia e imparcialidad, que genere confianza en la sociedad; esto implica un compromiso real con la eficacia y eficiencia en favor de la administración de justicia. La impartición de justicia debe ser para todos los miembros de la sociedad, cercana a todas las personas y que se traduzca en una verdadera justicia social.
+
+
+## Propuestas
+
+- Capacitación continua de los juzgadores y personal judicial, para que todos los involucrados en la impartición de justicia se mantengan actualizados para enfrentar los desafíos que implican las constantes reformas a las leyes, así como de la emisión de criterios jurisprudenciales, tanto en el ámbito nacional como internacional. Esta formación constante garantizará que las decisiones se basen en el conocimiento más reciente, necesario para la correcta aplicación e interpretación de la ley.
+- Se debe buscar la especialización en todo el país en los Juzgados de Distrito y Tribunales Colegiados de Circuito, ello agilizaría el trámite y resolución de los asuntos, lo que a su vez coadyuvaría en la redistribución de cargas laborales.
+- Promover la solución pacífica a través de la implementación de la resolución alternativa de conflictos, que consiste en la aplicación de métodos y procesos para resolver disputas sin necesidad de iniciar un juicio formal, tales como la mediación, el arbitraje y la conciliación. Con ello, se logra solucionar problemáticas de manera más rápida, económica y amigable, promoviendo acuerdos entre las partes.
+

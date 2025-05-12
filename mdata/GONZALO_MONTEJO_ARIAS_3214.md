@@ -1,0 +1,74 @@
+Nombre Candidato: GONZALO MONTEJO ARIAS
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9932329431
+Correo Electronico: gonzalomontejoarias@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Comunicación, Derecho Procesal Constitucional, Derechos Humanos, Doctorado en Derecho, Educación Continua, Formación Profesional., Género, Ley de Amparo, Licenciatura en Derecho, Maestría en Ciencias Penales, Procedimientos Civiles, Reforma Laboral, Seguridad Social
+Tags Propósito: Amparo, Capacitación, Constitución, Derechos Humanos, Derechos Laborales, Igualdad de Género, Imparcialidad, Jurisdicción, Jurisprudencia, Justicia, Ley, Objetividad, Procedimiento Legal., Profesionalismo, Sentencias, Servidores Públicos, Suprema Corte de Justicia, Transparencia, Tratados Internacionales
+
+
+## Descripción del Candidato 
+
+GONZALO MONTEJO ARIAS es candidato a Jueces/es de Distrito en Tabasco, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con un doctorado en Derecho y una amplia formación complementaria a través de diversos diplomados y cursos especializados en áreas como comunicación, juicio de amparo, seguridad social y derechos humanos, incluyendo capacitación en perspectiva de género y derecho procesal constitucional.
+
+Su motivación para buscar el cargo es mejorar la actividad jurisdiccional, buscando un mayor acercamiento de las sentencias a la ciudadanía. Su visión de la función jurisdiccional y la impartición de justicia se centra en el respeto a los términos legales, la pronta administración de justicia, la escucha a las partes, el respeto a los derechos laborales y la aplicación de los derechos humanos y la jurisprudencia. Sus propuestas incluyen la capacitación constante de los servidores públicos, la simplificación de los trámites legales y la resolución de los asuntos con objetividad, profesionalismo e imparcialidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16AYEdMRV4/?mibextid=wwXIfr
+- https://x.com/gonzalomontejoa?s=21
+
+
+## Cursos
+
+- Diplomado en Comunicación Escrita y Oral, Diplomado del Nuevo Juicio de Amparo,	Diplomado en Seguridad Social 3ª Grcion,Diplomado en Adjudicación de Derechos Humanos, Curso Juzgar Con Perspectiva de Género en Materia Laboral Tercera Edición,Curso de Actualización S/ el código Nacional de Procedimientos Civiles Y Familiares, Taller de Cálculo de Prestac
+- Lab,Seminario sobre la Reforma Laboral,  los Derechos Humanos, Diplomado en Derecho Procesal Constitucional,Curso Virtual: Diálogos para la Instrumentación de la Nueva Ley de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53994/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO; MAESTRÍA EN CIENCIAS PENALES; DOCTORADO EN DERECHO, DIVERSOS DIPLOMADOS, CURSOS y OTROS
+
+
+## Motivo para buscar el Cargo Publico
+
+MEJORAR LA ACTIVIDAD JURISDICCIONAL PARA QUE CON LAS SENTENCIAS QUE SE DICTEN HAYA MÁS ACERCAMIENTO CON LA CIUDADANÍA
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+RESPETAR LOS TÉRMINOS DE LEY EN LOS TRÁMITES DE LOS ASUNTOS DE LA COMPETENCIA DEL JUZGADO, GARANTIZANDO SIEMPRE UNA PRONTA ADMINISTRACIÓN E IMPARTICIÓN DE JUSTICIA PARA LAS PERSONAS QUE ACUDAN A SOLICITAR LA PROTECCIÓN CONSTITUCIONAL A TRAVÉS DE LAS DEMANDAS DE AMPARO; ESCUCHANDO EN TODO MOMENTO A LAS PARTES EN SUS MANIFESTACIONES A TRAVÉS DE SUS ESCRITOS O DE MANERA PRESENCIAL; ASÍ COMO RESPETAR LOS DERECHOS LABORALES DE LA BASE TRABAJADORA, QUE SON EL PILAR BÁSICO DE LA FUNCIÓN JURISDICCIONAL
+
+
+## Vision sobre la Imparticion de Justicia
+
+QUE LOS ASUNTOS DE LA COMPETENCIA DEL JUZGADO, SE RESUELVAN SIN CONTRATIEMPO Y QUE LAS SENTENCIAS SE DICTEN, EN LOS CASOS QUE LO AMERITEN, BAJO LA PERSPECTIVA DE GÉNERO, ELIMINANDO TODA DISCRIMINACIÓN Y DESIGUALDAD ENTRE HOMBRES Y MUJERES; Y BAJO LA BASE DE LOS DERECHOS HUMANOS RECONOCIDOS EN LA CONSTITUCIÓN FEDERAL Y EN LOS TRATADOS INTERNACIONALES EN LOS QUE MÉXICO ES PARTE; ASÍ COMO DE LAS HERRAMIENTAS QUE LA SUPREMA CORTE DE JUSTICIA PROPORCIONA (JURISPRUDENCIAS, PROTOCOLOS DE ACTUACIONES).
+
+
+## Propuestas
+
+- CAPACITACION BÁSICA CONSTANTE A LOS SERVIDORES PÚBLICOS PARA UNA MEJOR RELACIÓN LABORAL Y QUE ESTEN ACTUALIZADOS JURÍDICAMENTE, PARA EL MEJOR DESEMPEÑO DE SUS FUNCIONES, Y RESPETAR SIEMPRE LOS DERECHOS LABORALES DE LOS TRABAJADORES A SU CARGO
+- QUE EL TRÁMITE DE LOS ASUNTOS SEA CLARO, PRECISO, ENTENDIBLE Y SENCILLO, BAJO EL PROCEDIMIENTO QUE EXIGE LA LEY DE AMPARO Y LA LEY SUPLETORIA
+- QUE EL JUZGADOR TENGA EL CONOCIMIENTO JURÍDICO QUE SE REQUIERE, PARA QUE AL RESOLVER LOS ASUNTOS QUE SE LE PRESENTEN, LO HAGA CON OBJETIVIDAD, PROFESIONALISMO E IMPARCIALIDAD, SIN QUE SE DEJE INFLUENCIAR POR FUENTES EXTERNAR Y EXTRAÑAS, DANDO RAZÓN JURÍDICA AL QUE LA TIENE, PARA GARANTIZAR UNA VERDADERA JUSTICIA A LA SOCIEDAD
+

@@ -1,0 +1,76 @@
+Nombre Candidato: JAVIER CRUZ VAZQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: javier.cruz.vazquez2018@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización en Derechos Humanos, Anticorrupción, Derecho Procesal Penal, Derechos Humanos, Género, Maestría en Derecho Procesal., Migración, Redacción de Resoluciones, Reforma Fiscal, Sistema de Justicia, Temas Fiscales
+Tags Propósito: Poder Judicial., accesibilidad, atención ciudadana, comprensión, derechos, diálogo, empatía, experiencia, jornadas de puertas abiertas, jueces en la comunidad, justicia cercana, justicia humana, orientación jurídica, participación ciudadana, protección, proximidad, rapidez, resolución de problemas, sensibilidad, transparencia, vocación
+
+
+## Descripción del Candidato 
+
+JAVIER CRUZ VAZQUEZ es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose para los poderes Ejecutivo, Judicial y Legislativo Federal. Cuenta con doctorado en Derecho Procesal Penal y se encuentra cursando un doctorado en Anticorrupción y Sistema de Justicia. Su trayectoria académica se complementa con cursos en derechos humanos, migración, género y temas fiscales.
+
+El candidato manifiesta su motivación para el cargo como un deseo de impartir justicia con cercanía y sensibilidad hacia la ciudadanía, buscando una justicia “viva” que responda a las necesidades reales de las personas. Propone acercar el poder judicial a la comunidad a través de oficinas de atención ciudadana en los tribunales, jornadas de puertas abiertas y un programa de jueces en la comunidad, con el objetivo de fomentar la empatía, resolver dudas y escuchar directamente las inquietudes de la población.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573171382180&mibextid=wwXIfr&mibextid=wwXIfr
+- https://x.com/xavycruz99?s=21
+- https://www.instagram.com/javier_cruz_vazquez?igsh=b3hic3h3Nm1qYzgw &utm_source=qr
+- https://www.tiktok.com/@javier.cruz.vzque?_t=ZM-8uR3LEGnHcM&_r=1
+
+
+## Cursos
+
+- Estándares Internacionales en Derechos Humanos, Migración y Género,Ciclo de conferencias sobre la Reforma Fiscal,Curso de Redacción de Resoluciones,Seminario de Actualización en Derechos Humanos y sus Garantías,Taller sobre temas fiscales estatales y municipales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52651/10
+
+
+## Trayectoria Academica
+
+- Doctorando en Anticorrupción y Sistema de Justicia; doctorado en Derecho Procesal Penal; Maestro en Derecho Procesal
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi deseo es juzgar con una sensibilidad profunda, con cercanía auténtica a la gente, escuchando sus historias.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es que la justicia federal, históricamente distante, ahora debe acercarse a las personas, escuchando sus problemáticas con empatía y sensibilidad. Deseo impartir una justicia viva, cercana, moldeada por las necesidades reales de la gente, con la experiencia y el corazón de quien juzga por vocación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe transformarse en un acto más humano, donde la cercanía a las personas y la protección de sus derechos sea el pilar fundamental. Quiero escuchar los problemas de la gente con empatía, entendiendo que se acercan a los tribunales con la aspiración de ser protegidas contra los actos de las autoridades. Con mi experiencia y vocación, busco atender las necesidades reales de la gente, impartiendo una justicia sensible, viva y dedicada, que remedie y no solo resuelva.
+
+
+## Propuestas
+
+- Oficinas de atención ciudadana en los tribunales. Establecer un módulo de orientación semana atendido por personal capacitado y jueces, al que las personas puedan acercarse para resolver dudas y expresar inquietudes directamente. Esto fomenta la empatía, agiliza la comprensión de los procesos y muestra el rostro humano de la justicia.
+- Jornadas de puertas abiertas y diálogo. Organizar mensualmente eventos en los tribunales donde los jueces expliquen su trabajo, resuelvan preguntas del público y escuchen sus historias en un ambiente informal. Estas jornadas pueden incluir charlas sobre casos resueltos, destacando la rapidez y dedicación del Poder Judicial, para contrarrestar la percepción de lentitud y distancia sin alterar normas legales.
+- Programa de jueces en tu comunidad. Implementar un esquema donde los jueces visiten escuelas, mercados o plazas públicas para platicar con la gente, explicar cómo funcionan los tribunales y recoger inquietudes de viva voz.
+

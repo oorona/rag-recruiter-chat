@@ -1,0 +1,78 @@
+Nombre Candidato: IVAN RESENDIZ FERREIRA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5519282935
+Correo Electronico: ivan.naomi@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Catedrático Universitario, Derecho Mercantil, Especialista en Derecho, Juicio Oral Penal, Juicio de Amparo, Licenciado en Derecho, Maestro en Derecho, Paraguay., Prueba Pericial, Secretario de Tribunal, Sistema Penal Acusatorio, Universidad de Asunción
+Tags Propósito: Acceso a la justicia, Afrodescendientes, Bajos recursos., Corrupción, Derechos humanos, Educación jurídica, Equidad, Grupos vulnerables, Impunidad, Inclusión, Justicia, LGBTIQ, Mujeres, Personas con discapacidad, Población indígena, Rendición de cuentas, Sistema jurídico, Transparencia, Violencia de género, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+IVAN RESENDIZ FERRERA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulando a cargos en el Poder Ejecutivo Federal, Poder Judicial de la Federación y Poder Legislativo Federal. Cuenta con Maestría concluida y una trayectoria académica que incluye el grado de Licenciado, Especialista y Maestro en Derecho, además de experiencia como catedrático y Secretario de Tribunal. 
+
+Su motivación para buscar el cargo público se centra en contribuir a una justicia accesible para todos, especialmente para grupos vulnerables, incluyendo la comunidad LGBTIQ+. Su visión de la función jurisdiccional y la impartición de justicia se enfoca en lograr una mayor inclusión y equidad, y sus propuestas incluyen el acceso gratuito a la justicia para personas de bajos recursos, programas de educación jurídica para comunidades vulnerables, el fortalecimiento de la transparencia en el sistema judicial y la creación de tribunales especializados en violencia de género y delitos graves.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://sites.google.com/view/ivan-resendiz/biografC3ADa
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Bh7EBCWGy/?mibextid=wwXIfr
+- https://x.com/calilprince?s=11
+- https://www.instagram.com/ivan.resendiz25?igsh=MTRqcG95ejRyOTd2Yw3D3D&utm_source=qr
+- https://youtube.com/@ivanresendiz3355?si=KBC-IhPKhEe5Qa7u
+- https://www.tiktok.com/@ivanresendiz91?_t=ZM-8uvs4zbnyGD&_r=1
+- https://www.threads.net/@ivan.resendiz25?igshid=NTc4MTIwNjQ2YQ==
+
+
+## Cursos
+
+- Diplomado en Sistema Penal Acusatorio,Diplomado en Juicio Oral Penal,Diplomado en Juicio de Amparo,La Prueba Pericial, quinta edición,Derecho Mercantil (Universidad de Asunción, Paraguay)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54829/10
+
+
+## Trayectoria Academica
+
+- Licenciado, Especialista y Maestro en Derecho, así como catedrático de diversas universidades, Secretario de Tribunal
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy un hombre cisgénero con preferencias homosexuales y quiero contribuir a que la justicia sea realmente para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Dentro de la función jurisdiccional podemos encontrar que históricamente las personas han sufrido discriminación, específicamente grupos vulnerables, tales como personas con escasos recursos, mujeres, personas con discapacidad, indígenas, afrodescendientes y miembros de la comunidad LGBTIQ; sin embargo, me gustaría lograr que dichos grupos tengan total acceso a la justicia y concluir elaborando resoluciones más justas, objetivas e imparciales, con las que el pueblo de México este conforme.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Lograr una justicia más inclusiva en México (para todos), fortalecería nuestro sistema jurídico, siendo más equitativo y accesible, mejoraría significativamente la vida de los sectores y promovería una sociedad más justa y democrática. Es por ello que es fundamental continuar trabajando hacia una justicia que sea verdaderamente para el pueblo de México.
+
+
+## Propuestas
+
+- Acceso a la justicia gratuita para personas de bajos recursos.
+- Implementación de programas de educación jurídica para comunidades vulnerables.
+- Fortalecimiento de la transparencia y rendición de cuentas dentro del sistema judicial, a efecto de combatir eficazmente la corrupción y la impunidad, así como la Creación de tribunales especializados para atender casos de violencia de género y otros delitos graves.
+

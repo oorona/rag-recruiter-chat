@@ -1,0 +1,75 @@
+Nombre Candidato: LUCINO CORDERO ESTUDILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2225659670
+Correo Electronico: lucinocordero38@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Público, Doctorado, Educación Superior, Especialidad, Justicia para Adolescentes, Licenciatura en Derecho, Maestría, Proceso Penal Acusatorio, Sistema Penal Acusatorio, Trayectoria Académica.
+Tags Propósito: Accesibilidad, Claridad, Completa, Derechos, Dilación, Equidad, Fondo, Formalismos, Imparcialidad, Justicia, Necesitados, Plazos, Pronta, Pueblo., RendiciónDeCuentas, Reparo, Sentencias, Transparencia, Vulnerables
+
+
+## Descripción del Candidato 
+
+Lucino Cordero Estudillo es candidato a Magistrado de los Tribunales Colegiados de Circuito del Poder Judicial de la Federación, en Puebla. Cuenta con un extenso background académico que incluye dos licenciaturas, dos especialidades, dos maestrías y un doctorado en Derecho Público. 
+
+Su motivación para buscar el cargo es impartir justicia enfocándose en las necesidades de los más vulnerables y resolver conforme a la ley. Su visión de la función jurisdiccional y la impartición de justicia se centra en garantizar un trato justo, equitativo y transparente, así como una justicia pronta, completa e imparcial. Sus propuestas incluyen dictar sentencias en plazos breves, priorizar la resolución de fondo sobre formalismos, y ser accesible con el público rindiendo cuentas de sus resoluciones.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://w3.cjf.gob.mx/sevie_page/busquedas/Consultas/index_ficha.asp?exp=206121&rutaFichas=FichasSecAct
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Lucinocorderoestudillo/
+- https://x.com/LuccinoCE
+- https://www.instagram.com/lucinocorderoestudillo/
+- https://www.youtube.com/@lucinocorderoe
+- https://www.tiktok.com/@lucinoce8
+
+
+## Cursos
+
+- DOCTORADO EN DERECHO PÚBLICO,MAESTRÍ EN SISTEMA PENAL ACUSATORIO Y ADVERSARIAL,MAESTRÍA EN PROCESO PENAL ACUSATORIO,ESPECIALIDAD EN JUSTICIA PARA ADOLESCENTES,LICENCIATURA EN DERECHO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52625/10
+
+
+## Trayectoria Academica
+
+- Curse, aprobé y me titulé de 2 licenciaturas, 2 especialidades, 2 maestrias y un doctorado en derecho público
+
+
+## Motivo para buscar el Cargo Publico
+
+Como magistrado impartire justicia siempre velando por los mas necesitados, resolvere conforme a la ley y sere JUSTO
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar que al momento de impartir justicia cada persona reciba un trato justo, equitativo y transparente. Ser un Magistrado cercano al pueblo y consciente de sus necesidades. Al momento de resolver los asuntos garantizar una justicia pronta, completa e imparcial. Asimismo, privilegiar las soluciones de fondo en lugar de formalismos que retrasen la justicia. Ser un juzgador que velara porque quien le causó el daño a la víctima se lo repare. Impartir justicia más cercana a la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que la justicia llegue a todos y que esta sea pronta, completa e imparcial. Siempre garantizando que los más vulnerables reciban un trato justo. Que todo aquel que se queje de alguna injusticia tenga la confianza de acudir ante un magistrado que velara para que se le respeten sus derechos.
+
+
+## Propuestas
+
+- 1. Justicia pronta, dictar las sentencias en los plazos mas breves posibles, sin dilación o retardos injustificados.
+- 2. Priviligiar resolver el fondo del asunto en lugar de formalismos procesales. Siempre que toque resolver los asuntos resolver ya el asunto, para que no sigan en espera o reponer procedimientos por simples formalismos.
+- 3. Ser accesible con el pueblo y rendirles cuentas de lo resuelto. Cada vez que sea necesario informar al pueblo la decisión que se tomó y las razones, dado que eso impactara en la sociedad. Asi como buscar que las sentencias sean concretas y claras para que todos las puedan leer.
+

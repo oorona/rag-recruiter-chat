@@ -1,0 +1,75 @@
+Nombre Candidato: SANDRA MONSERRAT ALVAREZ SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: monserrat.alvarezs@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Conciliación Laboral, Derecho Laboral, Derechos Trabajadores., Maestría Derecho, Prevención Violencia Género, Universidad Iberoamericana
+Tags Propósito: acceso a la justicia, celeridad, derecho laboral, derechos de los trabajadores, derechos humanos, eficacia, eficiencia, equidad, imparcialidad, jurisprudencia, justicia, justicia laboral, objetividad, puertas abiertas, sistemas de justicia., transparencia
+
+
+## Descripción del Candidato 
+
+SANDRA MONSERRAT ALVAREZ SANCHEZ es candidata a Jueza/es de Distrito en Baja California, postulada por el Poder Ejecutivo Federal. Cuenta con una Maestría en Derecho, enfocada en la rama laboral, por la Universidad Iberoamericana, y ha concluido cursos en conciliación laboral, derecho laboral y prevención de la violencia de género. Su trayectoria profesional incluye representación de empleadores y empleados, así como su actual desempeño como Secretaria Instructora.
+
+La candidata busca el cargo público con el objetivo de fomentar la justicia y la equidad, promover la eficiencia y participar en la creación de precedentes en la jurisprudencia laboral. Sus propuestas se centran en garantizar el respeto a los derechos de las partes involucradas, agilizar los procedimientos y contribuir al desarrollo del derecho laboral en México, con un enfoque en la apertura, claridad y respeto a la dignidad humana en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18qbodNtpu/?mibextid=wwXIfr
+- https://www.instagram.com/monserrat.alvarezs?igsh=MTN4aThxdmUxOGVscg3D3D&utm_source=qr
+- https://www.tiktok.com/@monseabogadalaboralista?_t=ZM-8uxGqqWHsTl&_r=1
+
+
+## Cursos
+
+- Constancia conciliación laboral, sus procedimientos y roles
+- ,Constancia en derecho laboral y derechos de las personas trabajadora
+- ,Prevención de la violencia de genero
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52152/11
+
+
+## Trayectoria Academica
+
+- Estudie una maestría en derecho en la Universidad Iberoamericana, con tendencia al derecho laboral el cual es mi pasión
+
+
+## Motivo para buscar el Cargo Publico
+
+Fomentar la justicia y la equidad, promover la eficiencia y la eficacia, participar en la creación de precedentes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi trayectoria profesional se ha centrado en el derecho laboral, lo que me ha permitido desarrollar un profundo conocimiento de la legislación en esta materia. He representado a empleadores y empleados en diversos procedimientos judiciales, trabajé y conocí el viejo sistema de justicia laboral y actualmente me desempeño como Secretaria Instructora, lo que me permite tener una visión clara del cambio que se necesita, debemos ser juzgadores de puertas abiertas, con un lenguaje claro y sencillo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+ser una Juez de puertas abiertas, tengo un compromiso moral y personal con la justicia, me comprometo a ser imparcialidad y la objetividad en mis decisiones, garantizando que se respeten los derechos de todas las partes involucradas, estoy comprometida con garantizar que todos los ciudadanos tengan acceso a la justicia, independientemente de su condición social o económica y mi enfoque se centra en respetar la dignidad y los derechos humanos de todas las personas involucradas.
+
+
+## Propuestas
+
+- Fomentar la justicia y la equidad: Garantizar que se respeten los derechos de todas las partes involucradas y se tomen decisiones justas y equitativas, sufrí muchas injusticias y mi deber es dar lo mejor para que no suceda con las personas a las que imparta justicia.
+- Promover la eficiencia y la eficacia: Implementar procedimientos y mecanismos que permitan resolver los conflictos de manera rápida y efectiva, siempre respetando los principios de celeridad, equidad, imparcialidad que permea nuestro sistema.
+- Participar en la creación de precedentes y decisiones que contribuyan al desarrollo de la jurisprudencia laboral en nuestro país.
+

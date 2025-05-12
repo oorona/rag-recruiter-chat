@@ -1,0 +1,79 @@
+Nombre Candidato: JAIME ADOLFO MORLOTTE AYALA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jaimeadolfomorlotteayala@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarios, Departamento de Estado, Departamento de Justicia, Derecho Civil, Derecho Electoral, Derecho Mercantil, Derecho Penal, Derecho Procesal, Derecho Procesal Penal, Derecho Sustantivo, Especialista en Derecho., Judicatura Federal, Justicia Criminal, Maestría en Derecho, Poder Judicial de la Federación, Responsabilidades Administrativas
+Tags Propósito: Acceso a la justicia, Agilidad, Cercanía con la gente, Constitución, Corrupción, Derechos humanos, Dignidad humana, Discriminación, Eficiencia, Honestidad, Igualdad, Imparcialidad, Impunidad., Interés superior del niño, Justicia, Legalidad, Nepotismo, Perspectiva de género, Pro persona, Transparencia, Tratados internacionales, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jaime Adolfo Morlotte Ayala es candidato a Magistraturas de Tribunales Colegiados de Circuito, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría y cédula profesional, así como formación continua a través de diversos diplomados y cursos en áreas como derecho penal, administrativo, electoral y responsabilidades administrativas, incluyendo estudios en instituciones de Estados Unidos.
+
+Su motivación para buscar el cargo público es servir con profesionalismo, honestidad e imparcialidad en la impartición de justicia. Su visión se centra en una función jurisdiccional cercana a la gente, garantizando igualdad de acceso a la justicia, y en emitir resoluciones con un enfoque humanista, agilidad, transparencia y perspectiva de género. Sus propuestas principales incluyen proteger la dignidad de las personas en el proceso judicial, juzgar con perspectiva de género y asegurar el cumplimiento de la Constitución y los tratados internacionales, promoviendo la transparencia y combatiendo la corrupción.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574300502467&locale=es_LA
+- https://x.com/JaimeMoraya
+- https://www.instagram.com/jaime.morlottea/
+- https://www.tiktok.com/@jaime.moray?lang=es
+
+
+## Cursos
+
+- Colegio de Jueces y Magistrados del Poder Judicial de la Federación Diplomado en Derecho Penal y Procesal Penal
+- ,Instituto de la Judicatura Federal Diplomado en Responsabilidades Administrativas y Situación Patrimonial
+- ,Departamento de Estado y Departamento de Justicia de los Estados Unidos de Norteamérica Foro de Justicia Criminal
+- ,Escuela Judicial Electoral Curso de Derecho Sustantivo y Procesal Electoral para Secretario de Estudio y Cuenta
+- ,Instituto de la Judicatura Federal Curso para Actuarios
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54244/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Especialista en Derecho Civil y Mercantil, Especialista y Maestro en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con profesionalismo, honestidad e imparcialidad en la impartición de justicia en condiciones de igualdad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Durante la labor jurisdiccional tendré en cuenta el aspecto fundamental de tener una cercanía con la gente, aplicando la justicia a las personas involucradas en un conflicto en el que se tenga que resolver una controversia mediante la participación directa como juzgador en todo el procedimiento judicial, así como un continuo contacto directo con las partes con dignidad e irrestricto respeto por sus derechos humanos teniendo todas las personas un acceso a la justicia en condiciones de igualdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para mí significa emitir resoluciones con un sentido humanista de justicia, con mayor agilidad, transparencia y eficiencia, así como tener cercanía con la gente para poder contribuir a la transformación de la percepción pública sobre el sistema judicial, juzgando con perspectiva de género y remediando potenciales efectos discriminatorios que las leyes puedan tener en perjuicio de personas que histórica, social y culturalmente se han encontrado más vulnerables en la impartición de justicia.
+
+
+## Propuestas
+
+- Proteger dentro de mis funciones en todo momento la dignidad de las personas, teniendo cercanía con las personas que solicitan acceso a la justicia en todas las etapas del proceso judicial actuando con profesionalismo y objetividad, brindándoles agilidad, transparencia y eficiencia durante todas las etapas del proceso judicial, desempeñando la función jurisdiccional con completa honestidad e imparcialidad, apoyándolos con decisiones justas, completa legalidad y protección a sus Derechos Humanos.
+- Juzgar en los casos que así lo requieran con perspectiva de género, tomando todas las medidas necesarias y conducentes para evitar cualquier tipo de discriminación, desigualdad y exclusión de las mujeres en su acceso a la justicia, así como la de toda persona que histórica, social y culturalmente haya sido desfavorecida y también muy importante, proteger en todo momento en el desempeño de la función jurisdiccional que llegare a desempeñar, el interés superior de la niñez.
+- Velar en todas las etapas procesales por el cumplimiento absoluto de la Constitución y los Tratados Internacionales aplicando el principio pro persona en todos los casos; asimismo, tomar todas las medidas necesarias para evitar casos de corrupción y nepotismo, actuando siempre con total transparencia y legalidad evitando así cualquier tipo de impunidad, dando trato igual a todas las personas sin distinción de clase social, evitando cualquier tipo de discriminación.
+

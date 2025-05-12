@@ -1,0 +1,77 @@
+Nombre Candidato: JOSE ROBERTO ROJAS ROBLES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7771360664
+Correo Electronico: robert_1689@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de Justicia, Conferencias, Congreso Internacional, Derecho Familiar, Derecho de Amparo, Juicio de Amparo, Ley de Amparo., Maestría, Seminario, Suprema Corte de Justicia, Universidad Autónoma de Morelos
+Tags Propósito: Acceso a la Justicia, Cercanía a la Ciudadanía, Compromiso Social, Confianza, Derechos Humanos, Dignidad, Eficiencia, Equidad, Imparcialidad, Independencia Judicial, Innovación, Justicia, Justicia Humana, Legalidad, Paz Social, Profesionalización., Resolución de Conflictos, Tecnología, Transparencia, Ética Judicial
+
+
+## Descripción del Candidato 
+
+Jose Roberto Rojas Robles es candidato a Magistratura de Tribunales Colegiados de Circuito en Morelos, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría en Administración y Procuración de Justicia, egresado de la Universidad Autónoma del Estado de Morelos, y ha participado en diversos cursos y seminarios relacionados con el Derecho de Amparo y Familiar, incluyendo diplomados impartidos por la Suprema Corte de Justicia de la Nación.
+
+Su motivación para el cargo público se centra en la emisión de sentencias judiciales justas y con sentido humano. Su visión de la función jurisdiccional y la impartición de justicia se orienta a la adaptación a las necesidades sociales, la protección de los derechos humanos, la transparencia y la accesibilidad. Sus propuestas principales incluyen garantizar la imparcialidad y ética judicial, implementar una justicia humana y cercana a la ciudadanía, y comprometer su función jurisdiccional al servicio de la sociedad promoviendo la cultura de la legalidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AQTUxZWmD/?mibextid=wwXIfr
+- https://www.instagram.com/joserobert.rojas?igsh=YWxkNHNwN2x0aWMz&utm_source=qr
+- https://www.tiktok.com/@robertorojasroble?_t=ZM-8uw2b2r5s4E&_r=1
+
+
+## Cursos
+
+- PARTICIPACIÓN EN EL SEMINARIO TEÓRICO PRÁCTICO DE DERECHO DE AMPARO
+- ,DIPLOMADO DE JUICIO DE AMPARO 2022, IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+- ,PARTICIPACIÓN EN XV CONGRESO INTERNACIONAL DE DERECHO FAMILIAR: LA FAMILIA ES PARA SIEMPRE
+- ,PARTICIPACIÓN EN EL CICLO DE CONFERENCIAS: JORNADAS DE DERECHO FAMILIAR
+- ,PARTICIPACIÓN EN CONFERENCIA MAGISTRAL: ANÁLISIS CRÍTICO DE LA NUEVA LEY DE AMPARO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54719/10
+
+
+## Trayectoria Academica
+
+- Egresado de la Universidad Autónoma del Estado de Morelos, con una Maestría en Administración y Procuración de Justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Ayudar a las personas con la emisión de sentencias judiciales justas y con sentido humano siempre ha sido mi convicción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es que debe adaptarse a las necesidades de la sociedad actual, siendo necesario que se consolide como un pilar fundamental del Estado de derecho, garantizando justicia accesible, imparcial, transparente, eficiente y cercana a todas las personas. Debe orientarse hacia la protección de los derechos humanos y a una verdadera resolución de conflictos con apego a la legalidad, generando confianza en la sociedad a través de decisiones justas y con sentido humano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe estar basada en la legalidad, la protección de los derechos humanos y la equidad, contribuyendo a la paz social, siendo necesario un sistema de justicia innovador, eficiente y sobre todo, cercano a las personas, que haga uso de herramientas tecnológicas para agilizar los procesos y reducir la desigualdad en el acceso a la justicia; asimismo, la ética, la independencia judicial y la profesionalización deberán ser siempre fundamentales para una justicia confiable.
+
+
+## Propuestas
+
+- Imparcialidad y Ética Judicial. Son principios que regirán mi actuar como funcionario judicial para garantizar la confianza en el sistema judicial, ya que la independencia de jueces y magistrados frente a influencias externas, ya sean políticas, económicas o sociales, es clave para asegurar decisiones justas y basadas exclusivamente en el derecho, sin olvidar el sentido humano.
+- Justicia Humana y Cercana. Mi propuesta es impartir una justicia accesible y comprensible para todas las personas, garantizando con ello que puedan ejercer sus derechos sin obstáculos burocráticos, ni barreras económicas y sobre todo, con respeto a su dignidad; siendo necesario la impartición de una justicia humana que priorice la dignidad de las personas ofreciendo soluciones realmente efectivas a sus necesidades.
+- Compromiso Social. El desempeño de mi función jurisdiccional estará al servicio de la sociedad, promoviendo la cultura de la legalidad, el respeto a los derechos humanos con un actuar transparente, cercano a la ciudadanía y garantizando que cualquier persona que acuda a la justicia, pueda conocer, entender y ejercer sus derechos sin obstáculos y con la confianza de que serán escuchadas y tratadas con imparcialidad, respetando en todo momento su dignidad.
+

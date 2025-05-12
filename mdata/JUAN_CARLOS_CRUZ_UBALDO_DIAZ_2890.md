@@ -1,0 +1,71 @@
+Nombre Candidato: JUAN CARLOS CRUZ UBALDO DIAZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8121067251
+Correo Electronico: carlos.ubaldo.76@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Artículos 103 y 107 Constitucionales, DGFP PGR, Departamento de Justicia EUA, FACDYC UANL, INACIPE, INDEPAC, Juicio de Amparo, Ley Reglamentaria, Licenciatura Derecho Ciencias Sociales, Litigación Penal Oral, Litigación oral, Maestría Derecho Procesal Penal, Recursos Juicio de Amparo, Sistema Penal Acusatorio Adversarial, UANL.
+Tags Propósito: Accesibilidad, Capacitación Judicial, Certeza Jurídica, Confianza Institucional, Corrupción, Debido Proceso, Derechos Humanos, Eficiencia, Estado de Derecho, Gestión de Expedientes, Imparcialidad, Independencia, Legalidad, Perspectiva de Género., Seguridad Jurídica, Sistema Judicial, Tecnologías Digitales, Transparencia, Tutela Judicial
+
+
+## Descripción del Candidato 
+
+Juan Carlos Cruz Ubaldo Diaz es candidato a Jueces/as de Distrito en Nuevo León, postulando por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Penal y Licenciatura en Derecho y Ciencias Sociales, complementadas con diversos cursos en litigación oral, juicio de amparo y sistema penal acusatorio adversarial.
+
+Su motivación para buscar el cargo se centra en la construcción de un sistema judicial accesible y transparente. Su visión de la función jurisdiccional y la impartición de justicia se basa en el Estado de Derecho, la aplicación imparcial de las normas jurídicas y la protección de los derechos humanos. Sus propuestas incluyen la revisión de prácticas para evitar la corrupción, la implementación de tecnologías digitales en la gestión judicial y el fortalecimiento de la capacitación en derechos humanos y perspectiva de género para jueces y operadores judiciales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100007386586462
+
+
+## Cursos
+
+- DESTREZAS DE LITIGACIÓN ORAL, DEPARTAMENTO DE JUSTICIA EUA,EL JUICIO DE AMPARO EN LA NUEVA LEY REGLAMENTARIA DE LOS ARTICULOS 103 Y 107 CONSTITUCIONALES, DGFP DE LA PGR,RECURSOS EN EL JUICIO DE AMPARO, INACIPE,TECNICAS DE LITIGACION DE JUICIO ORAL PENAL, FACDYC UANL,DIPLOMADO DEL SISTEMA PENAL ACUSATORIO ADVERSARIAL, DEPARTAMENTO DE JUSTICIA EUA   DGFP DE LA PGR
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52668/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Procesal Penal (INDEPAC)   Licenciatura en Derecho y Ciencias Sociales (UANL)
+
+
+## Motivo para buscar el Cargo Publico
+
+Por la construcción de un sistema judicial accesible y transparente que proteja y garantice los derechos de la Nación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizo el Estado de Derecho, aseguro la correcta aplicación de las normas jurídicas con imparcialidad, independencia, eficiencia. Brindando certeza y seguridad jurídica a los ciudadanos, fortaleciendo la confianza en las instituciones de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Avalo la impartición de justicia accesible, pronta, completa e imparcial, centrada en la protección de los derechos humanos y la legalidad, con transparencia, sensibilidad social y apego a los principios constitucionales, garantizando el debido proceso y la tutela judicial efectiva.
+
+
+## Propuestas
+
+- Revisión de perfiles y de prácticas maliciosas, para evitar actos de corrupción
+- Implementación de tecnologías digitales para agilizar la gestión de expedientes y audiencias.
+- Fortalecimiento de la capacitación continua de los jueces y operadores judiciales en derechos humanos y perspectiva de género.
+

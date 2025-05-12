@@ -1,0 +1,71 @@
+Nombre Candidato: LUIS GERARDO ROSETE LUNA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5535079050
+Correo Electronico: g.roseteluna@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 2016-2018, Derecho, Derecho Probatorio, Electoral, Formación Virtual, Licenciatura, Medios de Impugnación, Universidad Privada del Estado de México
+Tags Propósito: Acceso a la Justicia, Capacitación, Ciudadanía, Confianza, Derechos Humanos, Empatía, Enfoque Humano, Equidad, Escuchar, Igualdad, Jueces, Justicia, Magistrados, Servidores Públicos., Servir, Transparencia
+
+
+## Descripción del Candidato 
+
+LUIS GERARDO ROSETE LUNA es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho por la Universidad Privada del Estado de México y cédula profesional. Ha realizado cursos en Sistema de Medios de Impugnación y Derecho Probatorio en Materia Electoral.
+
+Su motivación para buscar el cargo público se basa en servir a la ciudadanía, impartir justicia con igualdad, equidad y empatía. Sus propuestas incluyen la impartición de justicia con un enfoque en la igualdad y la empatía, la actualización continua de conocimientos y habilidades de jueces y magistrados a través de cursos y seminarios, y un mayor acercamiento entre la ciudadanía y los encargados de impartir justicia, priorizando un enfoque humano en la resolución de los asuntos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ASMEpFbsg/
+
+
+## Cursos
+
+- Curso Virtual de Sistema de Medios de Impugnación,Curso en Derecho Probatorio en Materia Electoral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54936/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en la Universidad Privada del Estado de México de 2016 2018
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar un cargo publico para Servir, Escuchar e Impartir Justicia con Igualdad, Equidad y Empatía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Justicia Accesible Para Todas, Todos. Transparencia en la Impartición de Justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión para impartir justicia es ser parte del cambio que garantiza que los derechos humanos sean respetados, mejorar la confianza en la justicia. Fomentar los buenos valores y ser eso que el la ciudadanía necesita, buenos servidores públicos de impartición de Justicia
+
+
+## Propuestas
+
+- Mi primer propuesta es la impartición de justicia vista desde un enfoque como lo es la igualdad la equidad y sobre todo la empatía. Creo que es es lo que necesita el país entero para poder garantizar los derechos de todas y todos.
+- Mi segunda propuesta sería que todos los jueces y magistrados de todos los circuitos asistan a cursos y seminarios con el único fin de actualizar conocimientos y habilidades para un mejor desempeño en el cargo.
+- Que la ciudadanía tuviera más acercamiento hacia los jueces y magistrados, atendiendo de manera personal y sin miramientos a todas y todos los que recurren para salvaguardar sus derechos y a su vez priorizar con un enfoque humano los asuntos que tengan en su ponencia.
+

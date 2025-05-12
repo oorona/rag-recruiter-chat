@@ -1,0 +1,74 @@
+Nombre Candidato: ALEJANDRINA MALDONADO MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9212064040
+Correo Electronico: amaldonadomartinez71@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Auditoría., Contador Público Auditor, Derechos de la Infancia, Derechos de la Niñez, Especialización Judicial, Instituto de la Judicatura Federal, Libertad de Expresión, Licenciatura en Derecho, Menores Infractores, Protección a Periodistas, Sistema Acusatorio, Suprema Corte de Justicia de la Nación, UNICEF
+Tags Propósito: acceso a la justicia, cercanía, comunicación, confianza, derechos, equidad, función judicial, igualdad, imparcialidad, justicia, justicia cercana., justicia para todos, juzgadores, profesionalismo, respeto, sociedad, transparencia, trato igualitario
+
+
+## Descripción del Candidato 
+
+Alejandrina Maldonado Martínez es candidata a Jueza/es de Distrito en Tabasco, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho, especialización judicial de la Secretaría PJF, además de estudios en contaduría y auditoría. Ha realizado diversos cursos en temas de derechos de la niñez, sistema acusatorio, menores infractores y libertad de expresión, entre otros.
+
+Su motivación para buscar el cargo es aportar su formación y experiencia a la carrera judicial, contribuyendo a la justicia en México. Propone lograr la apertura y transparencia en los juzgados y tribunales, así como una impartición de justicia respaldada por la capacidad, profesionalismo e imparcialidad. Sus propuestas centrales incluyen facilitar la comunicación entre jueces y partes involucradas en juicios, eliminar tratos desiguales y acercar a los juzgadores a la población para generar confianza en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AiQJcJWjp/
+- https://x.com/ale05046170
+- https://www.instagram.com/maldonadoalejandrina?igsh=MWJ3OTV3NTVyMm9tcA==
+- https://www.tiktok.com/@alejandrinamaldon8?_t=ZM-8v4pYSAfstr&_r=1
+
+
+## Cursos
+
+- LOS DESAFÍOS PRESENTES Y FUTUROS DE LA AGENDA DE DERECHOS DE LA NIÑEZ, CASA DE LA CULTURA JURÍDICA, SCJN,CURSO SOBRE TEORIA DEL PROCESO Y SISTEMA ACUSATORIO, INSTITUTO DE LA JUDICATURA FEDERAL,LOS DERECHOS DE LA INFANCIA Y EL ACCESO A LA JUSTICIA, UNICEF Y LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN,CURSO SOBRE MENORES INFRACTORES, SUPREMA CORTE DE JUSTICIA DE LA NACIÓN,MARCO JURÍDICO INTERNACIONAL DE LA LIBERTAD DE EXPRESIÓN, ACCESO A LA INFORMACIÓN PÚBLICA Y PROTECCIÓN A PERIODISTAS, KB
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54141/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO, ESPECIALIZACION JUDICIAL SECRETARIA PJF, CONTADOR PUBLICO AUDITOR Y ESPECIALIDAD EN AUDITORIA
+
+
+## Motivo para buscar el Cargo Publico
+
+DESEO APORTAR MI FORMACIÓN Y EXPERIENCIA EN LA CARRERA JUDICIAL, PARA CONTRIBUIR A LA JUSTICIA EN NUESTRO PAÍS.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+LOGRAR LA APERTURA Y TRANSPARENCIA DE LA FUNCIÓN DE JUZGADOS Y TRIBUNALES Y A SU VEZ QUE EL PUEBLO DE MÉXICO TENGA CONFIANZA EN LOS JUZGADORES.
+
+
+## Vision sobre la Imparticion de Justicia
+
+IMPARTICIÓN DE JUSTICIA RESPALDADA POR LA CAPACIDAD, PROFESIONALISMO, IMPARCIALIDAD, HONESTIDAD, TRASPARENCIA Y RESPETO DE LOS JUZGADORES, QUE GENERE CONFIANZA EN LA SOCIEDAD.
+
+
+## Propuestas
+
+- JUSTICIA A PUERTAS ABIERTAS. IMPLEMENTAR EL MEJOR MEDIO DE COMUNICACIÓN POSIBLE ENTRE EL JUZGADOR Y LAS PERSONAS INVOLUCRADAS EN EL JUICIO, A FIN DE QUE TENGAN CONFIANZA EN QUE TODO SE HARÁ CONFORME A DERECHO, INCLUSIVE CUANDO SE TRATE DE ACTOS DE AUTORIDAD.
+- JUSTICIA PARA TODOS. ELIMINAR CUALQUIER TRATO DESIGUAL QUE PUEDA EXISTIR POR RAZONES SOCIALES, ECONÓMICAS, DE PODER O DE GÉNERO, PARA LOGRAR EL MAYOR EQUILIBRIO POSIBLE ENTRE LAS PARTES EN UN JUICIO.
+- JUSTICIA CERCANA. GENERAR EL ACERCAMIENTO DE LA POBLACIÓN CON LAS PERSONAS JUZGADORAS, PARA ESCUCHAR SUS INQUIETUDES Y QUE TENGAN LA SEGURIDAD DE QUE ANTE CUALQUIER DAÑO O INJUSTICIA QUE SUFRAN, LA JUSTICIA ESTÁ DE SU LADO.
+

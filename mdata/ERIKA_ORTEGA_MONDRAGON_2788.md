@@ -1,0 +1,78 @@
+Nombre Candidato: ERIKA ORTEGA MONDRAGON
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7771542887
+Correo Electronico: erikasofy2@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Derecho Penal, Derecho Penal Acusatorio, Derecho Penal Oral., Derecho Procesal Penal, Educación Continua, Escuela Judicial, Licenciatura en Derecho, Maestría, Tribunal Superior de Justicia, Ética Judicial
+Tags Propósito: acceso a la justicia, agilización de procesos, certeza, debido proceso, derechos, empatía, humanidad, instituciones, integridad, justicia, legalidad, lenguaje claro, presunción de inocencia, protección, transparencia, vocación de servicio., vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Erika Ortega Mondragón es candidata al Poder Legislativo Federal, aspirando a un cargo como Jueza/es de Distrito en Morelos. Cuenta con una Maestría en Derecho Procesal Penal y es Licenciada en Derecho por la Universidad del Valle de Cuernavaca. Su trayectoria incluye formación en derecho penal acusatorio, argumentación jurídica, ética judicial y derecho penal oral.
+
+La candidata motiva su búsqueda del cargo por su trayectoria profesional y vocación de servicio, proponiendo una justicia que brinde certeza, proteja los derechos de todas las personas y fortalezca la confianza en las instituciones. Además, busca brindar atención integral a víctimas vulnerables, asegurar el respeto a la presunción de inocencia, agilizar procesos y fomentar el uso de lenguaje claro en las resoluciones judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100056624154143
+- https://x.com/erikaortega_mon?t=xL9BrfOIUYI2QF2XPH4P5w&s=08
+- https://www.instagram.com/erikaortega_mon?igsh=MWIoYnhobHpvdXc4Yw==
+- https://www.tiktok.com/@erikaortega_mon?_t=ZM-8v665vP50Zr&_r=1
+
+
+## Cursos
+
+- PRIMER CONGRESO LATINOAMERICANO EN DERECHO PENAL ACUSATORIO
+- ,CURSO DE CLÍNICA DE ARGUMENTACIÓN JURÍDICA
+- ,CURSO DE ÉTICA EN LA ESCUELA JUDICIAL DEL HONORABLE TRIBUNAL SUPERIOR DE JUSTICIA DEL ESTADO DE MORELOS
+- ,DIPLOMADO EN DERECHO PENAL ORAL EN LA ESCUELA JUDICIAL DEL PODER JUDICIAL DEL ESTADO DE MORELOS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54197/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho por la Universidad del Valle de Cuernavaca
+- Cursé la Maestría en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque cuento con la trayectoria profesional, vocación de servicio, valores y principios para ejercer la función.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia va más allá del papel, es una promesa que se debe cumplir cada día, no debe sentirse lejana, ni fría, debe vivirse con empatía, con conciencia y con la firme voluntad de hacer lo correcto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Hoy más que nunca necesitamos que la justicia se escuche, se entienda y se actúe con humanidad. Las miradas y las voces de quiénes buscan protección y claman por justicia, tienen que ser vistas y escuchadas.
+
+
+## Propuestas
+
+- Garantizar una justicia que brinde certeza y legalidad, proteger los derechos de todas y todos, fortalecer la confianza en las Instituciones.
+- Brindar atención integral a las víctimas y facilitar el acceso a la justicia, especialmente a aquellas en situación de vulnerabilidad.
+- Asegurar el respeto a la presunción de inocencia y evitar la criminalización innecesaria. Asegurar el estricto cumplimiento del debido proceso. Agilizar los procesos. Fomentar el uso de lenguaje claro en resoluciones y sentencias para que sean comprensibles para todos.
+

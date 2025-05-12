@@ -1,0 +1,80 @@
+Nombre Candidato: GRETA LOZADA AMEZCUA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Curso., Derecho, Diplomado, Doctorado, Especialización Judicial, Función Jurisdiccional, Igualdad de Género, Justicia Penal Acusatoria, Métodos Alternos de Solución de Controversias, Violencia
+Tags Propósito: acceso a la justicia, asesoría jurídica gratuita, buen trato, corrupción, derechos humanos, diversidad cultural, eficiencia, empoderamiento ciudadano, equidad, formación judicial, inclusión, justicia de paz, justicia humanista, justicia restaurativa, mecanismos alternativos de resolución de conflictos, perspectiva de género, rendición de cuentas, transformación social., transparencia, vulnerabilidad, víctimas
+
+
+## Descripción del Candidato 
+
+GRETA LOZADA AMEZCUA es candidata a Magistratura de Tribunales Colegiados de Circuito en JALISCO, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría y actualmente cursa el Doctorado en Derecho, así como un Diplomado en Métodos Alternos de Solución de Controversias. Su trayectoria académica se complementa con cursos sobre justicia penal, la función jurisdiccional, género e igualdad, y espacios libres de violencia.
+
+Su motivación para el cargo es transformar la justicia hacia un modelo humanista, restaurativo y accesible. Propone fortalecer la formación de funcionarios judiciales, promover la transparencia y rendición de cuentas, y empoderar a la ciudadanía a través de la difusión de los derechos humanos y el acceso a asesoría legal gratuita. Busca una función jurisdiccional y una impartición de justicia centrada en la dignidad de las personas, la perspectiva de género, la diversidad cultural y la resolución alternativa de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+http://www.gretalozadaamezcua.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573851691491
+- https://x.com/greta_lozada?s=11&t=Ln_QtO5-SZnYGVa2UMNPUw
+- https://www.instagram.com/gretalozadaamezcua/
+- http://www.youtube.com/@GretaLozadaAmezcua
+- https://www.tiktok.com/@greta.lozada.amez?_t=ZM-8v52iMzihdt&_r=1
+- https://www.facebook.com/gretta.amezcua?locale=es_LA
+
+
+## Cursos
+
+- Curso para generar espacios libres de violencia
+- ,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la perspectiva constitucional
+- ,Diplomado en Introducción a la Función Jurisdiccional
+- ,Especialización Judicial
+- ,Curso Género como Herramienta para la Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53822/10
+
+
+## Trayectoria Academica
+
+- Actualmente estudiando el Doctorado en Derecho y también el Diplomado en Métodos Alternos de Solución de Controversias
+
+
+## Motivo para buscar el Cargo Publico
+
+Para trabajar en la transformación hacia una justicia humanista, restaurativa, que llegue a todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe tener como cimiento la vocación por la justicia y el servicio público a las personas que necesitan de la protección de sus derechos humanos. Debe ser amable, respetuosa, cercana, ética, altamente profesional, eficiente y eficaz, imparcial, transparente y debe rendir cuentas. Estar comprometida con los sectores más rezagados y las personas más vulnerables. Enfocada en soluciones que propicien el mayor beneficio para reparar a las víctimas de la arbitrariedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe transformarse, centrarse en la dignidad de las personas y visibilizar a los sectores históricamente discriminados. Debe ser accesible, inclusiva, humanista, transparente, integradora de la perspectiva de género, reconocer la diversidad cultural. Evolucionar hacia modelos de justicia alternativa, abordar los conflictos desde su origen para obtener soluciones más equitativas, pacíficas y restaurativas, hacia una justicia de paz; lo que agilizará la resolución de los asuntos.
+
+
+## Propuestas
+
+- La información es poder. Los derechos humanos deben enseñarse y difundirse. Combatiré la corrupción empoderando a todas las personas a través de la explicación fácil y sencilla de los derechos humanos y los medios legales para exigir su protección en medios masivos de comunicación. Fomentaré con instituciones públicas la asesoría jurídica gratuita, ética, profesional, especializada y comprometida. Si las personas conocen sus derechos y cómo exigir un trato justo reduciremos el abuso de poder.
+- Fortaleceré la formación multidisciplinaria de los funcionarios judiciales para que todas las sentencias respondan eficaz y eficientemente a los desafíos de una sociedad en constante transformación. Asumiré un rol activo ante los casos específicos que puedan generar cambios en las leyes a favor de los grupos vulnerables logrando transformaciones sociales. Promoveré los mecanismos alternativos de solución de controversias para lograr soluciones más restaurativas, hacia una justicia de paz.
+- Implementaré mecanismos claros de transparencia, rendición de cuentas y procesos de atención ciudadana ágiles y efectivos. La impartición de justicia debe comenzar desde el primer contacto, por ello impulsaré una cultura de buen trato a las personas que acudan al Tribunal, eliminando la discriminación e indiferencia ante sus necesidades y las barreras burocráticas. Impulsaré relaciones laborales basadas en el respeto y la colaboración; priorizando el equilibrio entre la vida personal y laboral.
+

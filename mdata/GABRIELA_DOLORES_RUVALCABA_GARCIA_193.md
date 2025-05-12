@@ -1,0 +1,78 @@
+Nombre Candidato: GABRIELA DOLORES RUVALCABA GARCIA
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 3338226479
+Correo Electronico: gabrielaruvalcaba07@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Amparo, Argumentación Jurídica, Democracia, Derecho Constitucional, Derecho Electoral, Doctora., George Washington University, Género, Justicia Constitucional, Lenguaje Incluyente, Maestra, Multiculturalidad, Perspectiva Internacional, TEPJF, Transparencia, UCLM, Universidad del País Vasco
+Tags Propósito: buenas prácticas., confianza ciudadana, democracia, derechos humanos, diálogo jurisdiccional, enfoque de derechos, estado de derecho, igualdad, interculturalidad, justicia social, paz social, perspectiva de género, resolución de conflictos, sensibilidad social, simplificación procesal, transparencia
+
+
+## Descripción del Candidato 
+
+GABRIELA DOLORES RUVALCABA GARCIA es candidata a la Magistratura de las Salas Regionales del TE del PJF. Cuenta con un doctorado en Derecho Electoral, además de maestrías en Derecho Constitucional y Amparo, y en Derecho Electoral. Su formación incluye especializaciones en Justicia Constitucional y Derechos Humanos, cursadas en instituciones de España y Estados Unidos. 
+
+Su motivación para buscar el cargo se basa en su convicción por un sistema democrático sólido y justo. Su visión de la función jurisdiccional es la de un instrumento para la paz social y el fortalecimiento del estado de derecho. Sus propuestas incluyen el fortalecimiento de la perspectiva de derechos humanos y género, la simplificación procesal con lenguaje claro, y la apertura al diálogo jurisdiccional y buenas prácticas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Gaby Ruvalcaba
+- https://www.x.com/@gabyruvalcaba
+- https://www.instagram.com/gaby_ruvalcabag
+- https://www.youtube.com/@gabyruvalcabag
+- https://www.tiktok.com/@gaby.ruvalcaba07
+- https://www.linkedin.com/gaby-ruvalcaba
+
+
+## Cursos
+
+- Especialidad en Justicia Constitucional  y Práctica Actual por la UCLM España,Perspectiva Internacional y Multicultural, The Graduate School  Political Management, The George Washington University,Democracia y Transparencia, por la Escuela Judicial Electoral del TEPJF,Género, Masculinidades y Lenguaje Incluyente y No Sexista, por la Comisión Nacional de los Derechos Humanos,Interpretación y Argumentación Jurídicas, por el TEPJF y la Universidad del País Vasco, España
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17924/9
+
+
+## Trayectoria Academica
+
+- Abogada, Maestra en Derecho Constitucional y Amparo, Maestra en Derecho Electoral y Doctora en Derecho Electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo firmemente en la importancia de construir y proteger un sistema democrático sólido, transparente y justo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La concibo como un instrumento para la construcción de la paz social, la resolución de conflictos de manera efectiva y el fortalecimiento de la confianza ciudadana en el estado de derecho, así como una responsabilidad pública, que debe ser ejercida con independencia, imparcialidad, profesionalismo y compromiso con los derechos humanos y la justicia social, garantizando el acceso efectivo a la misma y a la tutela de los derechos fundamentales
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión se basa en la convicción de que la aplicación de la norma debe ir acompañada de sensibilidad social, enfoque de derechos y perspectiva de género e interculturalidad, reconociendo las desigualdades históricas que enfrentan diversos sectores de la población. Creo en una justicia que no solo resuelva conflictos, sino que contribuya a la paz, a la igualdad y a la confianza ciudadana, mediante resoluciones claras, razonadas y efectivas
+
+
+## Propuestas
+
+- Fortalecer la perspectiva de derechos humanos y género
+- Simplificación procesal y lenguaje claro y ciudadano
+- Apertura al diálogo jurisdiccional y buenas prácticas
+

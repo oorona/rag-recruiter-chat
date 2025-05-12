@@ -1,0 +1,78 @@
+Nombre Candidato: JAQUELINE ANGEL JUAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9619671533
+Correo Electronico: jaquelineangeljuan2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Civil, Derecho Penal, Derecho Procesal Civil, Derechos Humanos, Formación Judicial, Igualdad de Género, Interculturalidad, Justicia Juvenil, Justicia para Adolescentes, Litigio Estratégico, Redacción de Sentencias, Sistema Interamericano.
+Tags Propósito: bienestar social, derechos, dignidad humana, equidad, grupos vulnerables., humanismo, igualdad, justicia, legalidad, orden social, participación ciudadana, paz social, seguridad jurídica, tribunales, voz del pueblo
+
+
+## Descripción del Candidato 
+
+JAQUELINE ANGEL JUAN es candidata a Magistratura de Tribunales Colegiados de Circuito en Chiapas, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con estudios de doctorado y cédula profesional, complementados por diversos diplomados y cursos en áreas como interculturalidad, igualdad de género, derechos humanos y justicia para adolescentes.
+
+Su trayectoria de 24 años se centra en la impartición de justicia, motivada por su compromiso con el pueblo y la justicia. Su visión de la función jurisdiccional implica la construcción de una sociedad con seguridad jurídica, paz social y respeto a la dignidad humana. Sus propuestas se enfocan en la justicia y paz social, la equidad en las decisiones judiciales, y la promoción de la participación ciudadana y la cultura de la legalidad a través de la vinculación con ONGs y escuelas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/?locale=es_LA
+- https://x.com/i/flow/login?redirect_after_login=2FJaquelineAJ2025
+- https://www.instagram.com/jaqueline_angel_juan/?igsh=MXQ1bW1hcDNkNGo2NQ3D3D&utm_source=ig_contact_invite#
+- https://www.youtube.com/channel/UCblUu8e2V2zSca0Ipw7FBEg
+- https://www.tiktok.com/@jaqueline.angel.j?_t=ZM-8uieul1aaIx&_r=1
+
+
+## Cursos
+
+- Diplomado Interculturalidad; Diplomado Igualdad de Género en políticas públicas; Diplomado Niñas, Niños y adolescentes,Certificación Litigio Estrategico en Derechos Humanos; clínica de litigio estratégico internacional sobre pruebas,Curso Destreza en la conducción y manejo de audiencia; curso reparación integral del daño; Adopción y restitución
+- ,Curso Formación a Sistema Interamericano; Formación para categoría de jueces; Elaboración y redacción de sentencias
+- ,Especialidad en Sistema de Justicia para Adolescentes Especialidad en Justicia Penal para Adolescentes; Justicia Juvenil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52338/10
+
+
+## Trayectoria Academica
+
+- Abogada, maestría en derecho civil y; derecho procesal civil; doctorado en penal y; doctorado en derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Por amor al pueblo y a la justicia, quiero seguir sirviendo como desde hace 24 años en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no implica sólo aplicar leyes sino construir una sociedad donde el estado garantice seguridad jurídica, paz social y respete la dignidad humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia con una visión humanista que garantice la seguridad, la paz y el bienestar social.
+
+
+## Propuestas
+
+- Justicia y Paz Social. Tomar decisiones con equidad y justicia social, que restituya los derechos, garantice la paz y el orden social.
+- Justicia con equidad. Tomar decisiones en la que los grupos menos favorecidos cuenten con más garantías para lograr la igualdad.
+- Tu voz vale. Promover espacios de participación para que las personas expresen sus opiniones sobre el funcionamiento de los tribunales y, vincular a las ONGs y escuelas para impulsar una cultura de legalidad desde las niñeces.
+

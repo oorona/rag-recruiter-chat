@@ -1,0 +1,72 @@
+Nombre Candidato: LOURDES AVILA VALENZUELA
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: 6624304549
+Correo Electronico: lic1182@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Computación, Derecho Mercantil, Educación Preparatoria, Educación Primaria, Educación Secundaria, Educación Universitaria, Especialización Judicial, Responsabilidad Laboral, Responsabilidad Penal, Servidores Públicos, Sonora.
+Tags Propósito: Ambiente Laboral, Amparo, Capacitación, Ciudadanos, Derechos, Jueza de Distrito, Justicia, Organización, Pruebas, Responsabilidad, Restitución., Servidores Públicos, Trato Excelente, Órganos Jurisdiccionales
+
+
+## Descripción del Candidato 
+
+LOURDES AVILA VALENZUELA es candidata a Jueza/es de Distrito en Sonora, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, habiendo completado su educación académica en Sonora. Su formación incluye cursos en temas de responsabilidad penal, computación, derecho mercantil y especialización judicial.
+
+La candidata manifiesta su motivación para el cargo por su preparación y sensibilidad. Su visión sobre la función jurisdiccional y la impartición de justicia se centra en un trato excelente y sensible hacia los ciudadanos que acuden a los órganos jurisdiccionales, protegiendo sus derechos si son infringidos. Sus propuestas principales incluyen mejorar el trato a los usuarios de la justicia (incluyendo personal subalterno), fomentar un ambiente laboral responsable y organizado, y promover la capacitación continua de los servidores públicos para elevar el nivel de la justicia impartida.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/avilavalenzuelalourdes
+- https://www.tiktok.com/@avilavalenzuelalourdes
+
+
+## Cursos
+
+- CURSO DEL REGIMEN DE RESPONSABILIDAD PENAL Y LABORAL DE LOS SERVIDORES PUBLICOS,CURSO DE COMPUTACION,CURSO DE ESPECIALIZACION JUDICIAL DEL ENTONCES INSTITUTO DE LA JUDICATURA FEDERAL,CURSO DE DERECHO MERCANTIL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52379/11
+
+
+## Trayectoria Academica
+
+- PRIMARIA, SECUNDARIA, PREPARATORIA Y UNIVERSIDAD EN SONORA
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la preparación y sensibilidad para desempeñarme como JUEZA DE DISTRITO MIXTA.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desde mi punto de vista hay que tener sensibilidad con los ciudadanos que comparecen ante los órganos jurisdiccionales, desde un excelente trato, y si demuestran que sus derechos han sido infringidos protegerlos y concederles el amparo solicitado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Primeramente, reitero, un excelente trato a los ciudadanos, que implican tanto quejosos, litigantes, todo aquel que comparezca ante los órganos jurisdiccionales y posteriormente, si existen pruebas fehacientes que han sido infringidos los derechos del quejoso, restituirlo en el goce del derecho.
+
+
+## Propuestas
+
+- UN TRATO EXCELENTE A TODO AQUEL QUE COMPAREZCA ANTE LOS ORGANOS JURISDICCIONALES, ADEMAS, DE LOS PROPIOS SUBALTERNOS.
+- UN EXCELENTE AMBIENTE LABORAL, QUE INCLUYA LA RESPONSABILIDAD, ORGANIZACION Y AMOR AL TRABAJO.
+- INCULCAR A TODO SERVIDOR PUBLICO EL ESTUDIO PARA QUE SE ELEVE EL NIVEL EN TODO ORGANO JURISDICCIONAL Y QUE SE IMPARTA JUSTICIA A TODO AQUEL QUE COMPAREZCA Y DEMUESTRE FEHACIENTEMENTE QUE HAN SIDO INFRINGIDOS SUS DERECHOS.
+

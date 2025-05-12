@@ -1,0 +1,77 @@
+Nombre Candidato: SIMON SOTO CORREA
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4431377892
+Correo Electronico: sisoco@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Delincuencia organizada, Derecho procesal penal, Derechos humanos, Juicio de amparo, Juicios orales, Licenciatura en Derecho, Litigación oral penal, Maestría en Derecho., Medidas cautelares
+Tags Propósito: Acceso a la Justicia, Actualización Jurisprudencial, Confianza Ciudadana, Derechos Humanos, Desventaja Social, Determinaciones Jurisdiccionales., Eficiencia, Eliminación Abuso de Poder, Honestidad, Justicia Pronta y Expedita, Justicia Social, Michoacán, Profesionalización, Recursos Económicos, Recursos Humanos, Reforma Poder Judicial, Resolución de Conflictos, Transparencia
+
+
+## Descripción del Candidato 
+
+SIMON SOTO CORREA es candidato a Juez/a de Distrito en Michoacán, postulándose a través del Poder Ejecutivo Federal. Cuenta con una Maestría en Derecho Procesal Penal y especialización en Juicios Orales, además de diversos diplomados en áreas como Juicio de Amparo, Derechos Humanos y Litigación Oral Penal. Su motivación para buscar el cargo se centra en ofrecer una justicia con sentido humano, profesional y honesta.
+
+Su visión para la función jurisdiccional se basa en un cambio histórico, acercando la justicia a los más desprotegidos y reforzando la transparencia. Sus propuestas principales incluyen una justicia social con enfoque en derechos humanos y profesionalización, una justicia pronta y expedita a través de la gestión de recursos, y una actualización permanente de los criterios jurisdiccionales para adaptarse a la realidad social y a los avances internacionales en resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Simon Soto Correa
+- https://www.tiktok.com/Simon Soto Correa
+
+
+## Cursos
+
+- Curso: ¿Estructuras Financieras de la Delincuencia Organizada¿ Impartido Procuraduria General de la República,3 Diplmado en Juicio de Amparo
+- Impartido por la Suprema Corte de Justicia de la Nación,Diplomado en Derechos Humanos Aproximaciones para su Defensa Impartido por la Suprema Corte de Justicia de la Nación,4
+- Curso Litigación Oral Penal
+- Imparido por la Procuraduria General de Justicia del Estado de Michoacán,5
+- Taller de Medidas Cautelares y Salidas Alternas
+- Impartido por la Academia Regional de Seguridad Pública de Occidente
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54943/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Maestria en Derecho Procesal Penal especialidado Juicios Orales y Diplomado en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque estoy convencido de poder ofrecer al ciudadano una justicia con sentido humano, profesional y sobre todo honesto.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Formando parte del cambio historico y acercar la justicia a los mas desprotegidos en condiciones de situacion en desventaja social, ofreciendo aquellos que se quejen con justicia y razón un Juez cercano a la gente, que los ampare y proteja del autoritario, reforzando lo que se ha hecho bien y eliminando el abuso del poder político, económico y social, trasparentando mi función de juzgador atendiendo al reclamo social de justicia para todos, con firmeza y determinación plenamente convencido.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir Justicia para el pueblo de México, atendiendo la deuda social de impartición de justicia pronta y expedita con visión en Derechos Humanos para lograr una satisfacción al reclamo de los ciudadanos, eliminando el rezago jurisdiccional, vigilando el cumplimiento integro de las determinaciones jurisdiccionales que hagan alcanzar al ciudadano la justicia que tanto aclaman, bajo principios de honestidan, eficacia y eficiencia, renovando el criterio jurídico del personal Institucional.
+
+
+## Propuestas
+
+- JUSTICIA SOCIAL: Cercana a la gente y con visión irrestricta a los derechos humanos propoNiendo cada dia una profesionalización propia y de los colaboradores para garantizar al ciudadano una verdadera justicia actualizada a los tiempos del cambio derivado de la reforma al Poder Judicial para obtener una adecuación a la realizad social en aras de lograr el acceso a la justicia de todos los que acudan en clara desventaja social, proporcinando su satisfacción y respeto a sus derechos violentados.
+- JUSTICIA PRONTA Y EXPEDITA: Conlleva la necesidad de mayores recursos Humanos y Económicos, por lo que se gestionara ante las instancias correspondientes el otorgamiento de los requerimientos jurisdiccionales para hacer de la justicia una verdadera realidad social perceptible en cada determinación, evitando el uso indiscriminado de los recursos jurisdiccionales medinate resoluciones claras, sencillas y entendibles para los justiciables con una modernidad real a los tiempos.
+- ACTUALIZACION PERMANENTE: Co el fin de poder ofrecer al ciudadano una verdadera Justicia actualizando los criterios jurisdiccionales conforme a los avances internacionales en la resolución de conflictos y sobre todo en aquellos que Michoacán se encuentra en rezago, brindando a los justiciables la satisfacción de contribución con el cambio requerido en el Poder Judicial, refrendando cada dia la confianza depositada para ser Juez y seguro de haber contribuido en el cambio al terminar el cargo.
+

@@ -1,0 +1,80 @@
+Nombre Candidato: RAFAEL LINARES RIVERA
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 3511092832
+Correo Electronico: linares087@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Anticorrupción, Defensor de Derechos Humanos, Derechos Humanos, Doctorado Constitucional., Género, Juicios Orales, Pueblos Originarios, Recurso Judicial, Seguridad Pública, UNAM, Víctimas
+Tags Propósito: Amparo, Burocracia, CasosSinResolver, Corrupción, Delincuencia, Extorsión, Impunidad, Inocencia, Juez, Justicia, Michoacán, OficinasDeEnlace, PlanDeTrabajo., ProtecciónVíctimas, Pueblo, ReformasJudiciales, RendiciónDeCuentas, Seguridad, Transparencia, Voto
+
+
+## Descripción del Candidato 
+
+RAFAEL LINARES RIVERA es candidato a Juez de Distrito en Michoacán, postulándose a través del Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con un doctorado y una trayectoria académica enfocada en el ámbito de los Derechos Humanos, con especialización en pueblos originarios y víctimas, así como en justicia oral y constitucional. Su motivación para buscar el cargo público se centra en combatir la corrupción, la impunidad y la delincuencia, ofreciendo protección a la ciudadanía contra abusos de poder.
+
+Su visión para la función jurisdiccional y la impartición de justicia se basa en la transparencia, la rendición de cuentas y la protección de las víctimas, proponiendo medidas como la agilización de trámites de amparo, la creación de oficinas de enlace con la ciudadanía y un informe público sobre el estado de los casos. Sus propuestas buscan fortalecer la confianza en el sistema judicial y garantizar el acceso a la justicia para todos los mexicanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/RafaelLinaresRivera
+- https://x.com/LinaresRR?t=y69uCz3e_RiItOUITkOBsw&s=09
+- https://www.instagram.com/rafael.linares.rivera?igsh=MXBxdnEyYTBtbDk0eQ==
+- https://www.tiktok.com/@rafael.linares?_t=ZM-8uyDQfTA6FT&_r=1
+
+
+## Cursos
+
+- Diplomado Perspectiva de Género y defensa de la mujer
+- ,Diplomado en Derechos Humanos de Pueblos Originarios
+- ,Seminario sistemas anticorrupción, nuevos retos para México
+- ,Diplomado en Seguridad Pública y Derechos Humanos de la Victima
+- ,Curso   Taller Instrumentos Internacionales sobre recurso judicial efectivo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54227/11
+
+
+## Trayectoria Academica
+
+- Defensor de Derechos Humanos del Pueblo
+- Abogado por la UNAM con maestría en Juicios Orales y Doctorado Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+No tengo miedo de ser un juez que te ampare y proteja contra las autoridades abusivas, la corrupción y la delincuencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+CANDIDATO A JUEZ DE DISTRITO MIXTO DE MICHOACÁN. En las elecciones para nuevos Jueces te da la oportunidad con tu voto para que cambien las cosas malas a buenas. Estoy decidido a representarte, no tengo miedo a pesar de todo. Somos más la gente buena que queremos ver a nuestros hijos e hijas seguros cuando salen a su escuela, a jugar, a la calle o a un parque. Piénsalo, si eres de los que prefieren no salir a votar, eres parte del problema de impunidad. Basta de extorsión, moches y corrupción.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Veo un México más tranquilo, jueces nuevos que no sean vendidos o corruptos a interés de gente con poder. El juez que sea electo por el voto del mexicano le debe el puesto al pueblo y debe actuar por el pueblo. Siempre pensando en proteger a la víctima. Castigar realmente al culpable y que el inocente tenga justicia. ¿Cuánta delincuencia está en la calle, mientras muchos inocentes con pruebas falsas en la cárcel? Impartir Justicia debe ser un alto honor para servirte a ti con transparencia.
+
+
+## Propuestas
+
+- 1. No tener miedo. Si queremos ser jueces, magistrados o ministros electos por la gente, tenemos que responderle castigando a los verdaderos culpables, protegiendo al inocente, pero sobre todo cuidando a las víctimas. No se vale la impunidad, no se vale la corrupción, no se vale el influyentismo; tenemos que tener valor para protegerte a ti, mexicana o mexicano, que eres pueblo contra el abusador del gobierno o la delincuencia.
+- 2. Transparencia y Rendición de Cuentas. Desde la llegada al juzgado, se debe rendir un informe al Pueblo que nos elige para que sepan cuantos casos hay sin resolverse, cuáles eran las causas para que no se resuelvan, cuáles casos son los más importantes a resolver y que se haga un plan de trabajo, para darle buenas cuentas del trabajo a la gente que es pueblo.
+- 3. Amparo inmediato al quejoso y establecer oficinas de enlace con el juez electo por el pueblo. Propondremos a la Cámara de Diputados Federales unas reformas para fortalecer los trámites de amparo, pero sobre todo para que se resuelvan con prontitud. Ya no se vale la burocracia. Tenemos que agilizar los trámites para que con actas mínimas, fundadas y motivadas, se resuelvan rápidamente los asuntos que protegen al pueblo, a quien se queja con razón. Colocaré una oficina de enlace para ayudar.
+

@@ -1,0 +1,83 @@
+Nombre Candidato: BERENICE GARCIA HUANTE
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: beremex21@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación jurídica, Control de convencionalidad, Derecho electoral, Derechos políticos, Juicio de amparo, Justicia constitucional, Máster., Perspectiva de género, Reforma constitucional, Sistema Interamericano de Derechos Humanos, Tutela judicial
+Tags Propósito: Acceso a la justicia., Antinepotismo, Cercanía ciudadana, Cero corrupción, Certeza jurídica, Comunicación, Experiencia electoral, Honestidad, Igualdad, Imparcialidad, Independencia, Justicia accesible, Justicia electoral, Modernización tecnológica, Participación ciudadana, Profesionalismo, Rendición de cuentas, Transparencia
+
+
+## Descripción del Candidato 
+
+Berenice Garcia Huante es candidata a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulada por el Poder Legislativo Federal. Cuenta con más de 20 años de experiencia en materia electoral y formación académica que incluye una licenciatura en Derecho, especialidades en Derecho Electoral y Justicia Constitucional, así como una maestría en Argumentación Jurídica. Ha realizado diversos diplomados y pasantías en temas relacionados con derechos políticos, el sistema interamericano de derechos humanos y el juicio de amparo.
+
+Su motivación para buscar el cargo se basa en su experiencia y trayectoria. Propone una función jurisdiccional imparcial, independiente y cercana a la ciudadanía, con sentencias claras y apegadas a derecho. Sus principales propuestas incluyen acercar la justicia electoral a la población, garantizar independencia e imparcialidad en las decisiones y modernizar el acceso a la justicia a través de la tecnología y la rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16JNYWwZ3B/?mibextid=wwXIfr
+- https://x.com/bereniceghuante?s=11&t=BogNFhOzLpF9NaYBdsSxfw
+- https://www.instagram.com/bereniceghuante?igsh=MWszbmNtYnMzZnoyeg3D3D&utm_source=qr
+- https://www.tiktok.com/@bereghuante?_t=ZM-8uUWgftBa0l&_r=1
+
+
+## Cursos
+
+- Diplomado: Los derechos políticos y su tutela
+- Tribunal Electoral del Poder Judicial de la Federación
+- ,Taller intensivo sobre el Sistema Interamericano de Derechos Humanos
+- Tribunal Electoral del PJF
+- ,Diplomado virtual en el juicio de amparo a partir de las reformas constitucionales de 6 y 10 de junio de 2011, TEPJF
+- ,5ta
+- Pasantía: Argumentación jurídica con perspectiva de género
+- Fundación Justicia y Género
+- ,Seminario: El control de Convencionalidad en el Sistema Interamericano y Europeo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15954/9
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derech, Especialidad en Derecho Electoral, Especialidad en Justicia Constitucional, Máster en Argumentación jca
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque soy una mujer honesta, trabajadora, cuento con experiencia de más de 20 años en la materia electoral.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Imparcial, independiente, cercana a la gente, con claridad y certeza en la emisión de las sentencias, resolviendo apegada a derecho, respetando la Constitución Federal y las leyes. Utilizando lenguaje sencillo, y aprovechando los avances tecnológicos para facilitar el acceso a la justicia y para comunicarme con la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Transformar el sistema de justicia siendo cercana al pueblo de México y a la realidad política, económica y social, con cero tolerancia a la corrupción y nepotismo. Ya no más juzgadoras y juzgadores alejados de las personas y de la realidad social.
+
+
+## Propuestas
+
+- Cercanía con el Pueblo de México, para que sientan accesible y plena la justicia electoral, y confíen en la autoridad encargada de impartir justicia. Dejar de lado a las personas juzgadoras que gozan de privilegios y se ven inalcanzables para la población mexicana.
+- Independencia e imparcialidad en la toma de decisiones, siendo clara en la emisión de las sentencias y dando certeza jurídica en la aplicación de los criterios, con profesionalismo y preparación.
+- Modernizar el acceso a la justicia, tanto para seguir los juicios y procedimientos en línea de manera fácil, sencilla y sin ningún costo, así como utilizar la tecnología para estar cerca de la ciudadanía y sepan todas las personas cómo estamos trabajando para el pueblo de México. Es decir, comunicar en todo momento cómo estamos trabajando, para rendir cuentas a la ciudadanía.
+

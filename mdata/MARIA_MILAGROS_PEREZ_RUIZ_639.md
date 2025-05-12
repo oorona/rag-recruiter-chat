@@ -1,0 +1,73 @@
+Nombre Candidato: MARIA MILAGROS PEREZ RUIZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5666110349
+Correo Electronico: m.milagros.pereruiz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, CDMX, Capacitación, Curso., Derecho, Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado, Discapacidad, Género, Justicia, Política Criminal, Posgrado, Suprema Corte, UNAM, Violencia Familiar
+Tags Propósito: Calidad, Corrupción, Derechos Humanos, Empatía, Estado de Derecho, Función Jurisdiccional., Honestidad, Igualdad, Imparcialidad, Justicia, Ley, Poder Judicial, Profesionalismo, Protección, Responsabilidad Social, Transformación, Transparencia, Vulnerabilidad, Víctimas
+
+
+## Descripción del Candidato 
+
+MARIA MILAGROS PEREZ RUIZ es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulada por el Poder Ejecutivo Federal. Cuenta con un doctorado y una sólida formación académica en derecho, con especialización en áreas como política criminal, derecho procesal penal y derechos humanos, avalada por diversos diplomados de instituciones como la Comisión Nacional de Derechos Humanos, UNAM y la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo público es garantizar un servicio público de calidad, transformador y eficiente, eliminando la corrupción. Propone una función jurisdiccional enfocada en la aplicación de la ley, la protección de los derechos humanos y el estado de derecho, buscando una transformación del Poder Judicial que dé voz a las víctimas, proteja a los vulnerables, combata la impunidad y ofrezca un servicio transparente y de excelencia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Maria Milagros Pérez Ruiz
+- https://www.instagram.com/maria.milagros.perez.ruiz
+- https://www.tiktok.com/Maria Milagros Pérez Ruiz
+
+
+## Cursos
+
+- Diplomado en Impartición de Justicia con Perspectiva de Género por la Comisión Nacional de Derechos Humanos,Diplomado en Violencia Familiar y Derechos Humanos por el Instituto de Investigaciones Jurídicas de las UNAM,Diplomado La Suprema Corte y los Derechos Humanos por la Suprema Corte de Justicia de la Nación,Diplomado en Capacidad Jurídica y Acceso a la Justicia de las Personas con Discapacidad por INDISCAPACIDAD de la CDMX,Curso Amparo para la Justicia Local por el Tribunal Superior de Justicia y el Consejo de la Judicatura ambos de la CDMX
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54348/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la UNAM con posgrados en política criminal, derecho procesal penal y derecho penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar a la sociedad un servicio público de calidad, transformador y eficiente que elimine la corrupción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene un gran impacto en las vidas y sentimientos de las personas que por alguna razón se involucran en el quehacer judicial, se debe enfocar en la aplicación de la ley al caso concreto, lo que implica proteger los derechos humanos, garantizando que el gobernado no sea objeto de abusos por parte de las autoridades, privilegiando el estado de derecho y la exacta aplicación de la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+A lo largo de los años he aprendido que el verdadero sentido de la justicia implica un gran reto, ya que darle a cada quien lo que le corresponde, sin lugar a dudas, es una labor que conlleva una enorme responsabilidad social, ciertamente una impartición de justicia imparcial, profesional y responsable se convierte en el eje rector que legitima al poder judicial, por lo que se debe trasformar la manera de impartir justicia y eso comienza con la forma en que se eligen a sus personas juzgadoras.
+
+
+## Propuestas
+
+- Hacer realidad ese clamor de la sociedad, acabar con la impunidad y corrupción, sancionando a los trasgresores de la ley, privilegiando la protección de los más desvalidos, con una labor judicial deberá ser empática con la problemática social, emitiendo determinaciones razonadas y con lenguaje democrático, evidentemente con la sensibilidad necesaria y la prudencia indispensable para escuchar a las personas que acuden ante la presencia de órgano jurisdiccional buscando justicia.
+- Generar una verdadera transformación del Poder Judicial en beneficio exclusivo de la comunidad, dar voz a las víctimas, imagen a los grupos vulnerables o de categorías sospechosas, sensibilidad a la problemática relacionada con violencia contra las mujeres, firmeza frente al trasgresor de la ley, con una actuación imparcial, razonada, profesional y apegada a la norma, garantizando derechos con el mas alto estándar de calidad en el servicio público en condiciones de igualdad.
+- Mi labor para mejorar la función jurisdiccional seguirá el camino de la honestidad y a pesar de las adversidades sociales y culturales por las que atraviesa nuestra sociedad en todos los aspectos, mi compromiso será proporcionar a las personas que acuden a las instancias judiciales la diferencia entre un servicio de justicia opaco y un servicio de excelencia, trasparente y de calidad, con la firme intención de no defraudar al gobernado, quien merece servidores públicos honrados y profesionales.
+

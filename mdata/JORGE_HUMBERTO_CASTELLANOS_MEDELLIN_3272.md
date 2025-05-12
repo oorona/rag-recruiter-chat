@@ -1,0 +1,79 @@
+Nombre Candidato: JORGE HUMBERTO CASTELLANOS MEDELLIN
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8673095794
+Correo Electronico: jhcastellanos@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cedula Profesional., Especialidad en Derecho Laboral, Género, Igualdad, Instituto de la Judicatura Federal, Maestría en Amparo, Maestría en Derecho Constitucional, Tesis Pendiente, UAT, Violencia
+Tags Propósito: Amparo, Calidad de vida, Convenios, Cumplimiento de sentencias, Derechos humanos, Eficacia judicial., Fondo sobre forma, Interés público, Justicia integral, Pacificación social, Ponderación de beneficios, Priorización de asuntos, Protección de derechos, Responsabilidad social, Seguridad jurídica, Transformación social
+
+
+## Descripción del Candidato 
+
+Jorge Humberto Castellanos Medellín es candidato a Jueces/as de Distrito en Tamaulipas, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Amparo y estudios de Maestría en Derecho con énfasis en Constitucional, además de una Especialidad en Derecho del Trabajo y Justicia Laboral. Su trayectoria académica se desarrolló en la Universidad Autónoma de Tamaulipas.
+
+El candidato motiva su búsqueda del cargo por su interés en brindar una justicia integral a las personas, considerando la impartición de justicia como un medio para la pacificación social y el fortalecimiento de la seguridad jurídica. Sus propuestas centrales incluyen privilegiar el fondo sobre la forma en las sentencias, ponderar los beneficios sociales del interés público, priorizar asuntos y modular efectos de concesiones en amparos, y propiciar la celebración de convenios para asegurar el cumplimiento de las sentencias.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/licjorgehcastellanosm/
+- https://x.com/JorgeCa70743996
+- https://www.instagram.com/jorge_castellanos_medellin/
+- https://www.tiktok.com/@jorge.castellanos.m
+
+
+## Cursos
+
+- MAESTRÍA en amparo  Instituto de la Judicatura Federal
+- Cédula 13099226,MAESTRÍA en Derecho con énfasis en constitucional Universidad Autónoma de Tamaulipas (pendiente tesis),ESPECIALIDAD en Derecho del Trabajo y Justicia Laboral (2021)
+- Instituto de la Judicatura Federal
+- Cédula 13099229,CURSO Género como Herramienta para la Igualdad (2022)
+- ,CURSO para Generar Espacios Libres de Violencia (2023)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53075/11
+
+
+## Trayectoria Academica
+
+- Estudié en la UAT; cuento con Maestría en Amparo, Especialidad en Laboral, y estudios en Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Me importan las personas y eso me motiva a profundizar en cada sentencia, para así brindarles una justicia integral.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La impartición de justicia constituye un medio para la pacificación de los conflictos sociales. El impartidor de justicia debe ser un conducto para mejorar la calidad de vida de la colectividad y fortalecer los lazos y seguridad jurídica entre sus individuos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en la justicia con responsabilidad social. En amparo se resuelven casos de la población contra el Estado, el juez debe proteger los derechos humanos de las personas y que esa protección, al mismo tiempo, permita el avance social pretendido por los actos y leyes de autoridad.
+
+
+## Propuestas
+
+- PRIVILEGIAR EL FONDO SOBRE FORMA Y PONDERACIÓN DE BENEFICIOS DE LA SOCIEDAD Y EL INTERÉS PÚBLICO. Una crítica al Poder Judicial Federal radica en que las decisiones atiendan más el fondo (en lugar de formalismos) y se ponderen los beneficios perseguidos por la ley o acto reclamados al impartir justicia. El plasmarlo legitima la decisión y trasmite el por qué de la misma mejor.
+- PRIORIZAR ASUNTOS Y MODULAR EFECTOS DE CONCESIONES EN AMPAROS (Y SUS SUSPENSIONES) VS. LEYES Y PROYECTOS PRIORITARIOS DE GOBIERNO. Se cumple con el objeto del juicio de amparo que es la protección de derechos humanos y no entorpece el avance que pretende el Estado con la ley o acto reclamados.
+- PROPICIAR CELEBRACIÓN DE CONVENIOS EN CUMPLIMIENTO. Una sentencia en papel no sirve de nada, tiene que trasladarse al mundo material para trasformar la vida de las personas. Existen numerosos cumplimientos complejos en los que se dificulta conseguirlos a pesar de las medidas que tiene la Ley de Amparo para ello; en esos casos, podría impulsar a las partes a llegar conjuntamente a establecer pasos y una metodología que les brinde tiempos objetivos para cumplir, seguridad en cuándo y cómo se hará.
+

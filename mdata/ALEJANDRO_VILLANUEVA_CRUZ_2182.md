@@ -1,0 +1,71 @@
+Nombre Candidato: ALEJANDRO VILLANUEVA CRUZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5550524741
+Correo Electronico: alexvillanuevacruz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Postdoctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Diplomado., Especialización, Formación, Procedimientos Penales, Secretaría Judicial
+Tags Propósito: Acceso a la justicia, Ambiente laboral, Artículo 17 constitucional, Cero acoso laboral, Contacto directo, Expedición., Experiencia, Honestidad, Imparcialidad, Justicia, Plazos legales, Poder Judicial Federal, Prontitud, Resolución de juicios, Seguridad jurídica, Servidor público, Transparencia
+
+
+## Descripción del Candidato 
+
+Alejandro Villanueva Cruz es candidato a Jueces/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con estudios de postdoctorado, licenciatura en Derecho, diplomado en Código Nacional de Procedimientos Penales y grado de especialidad, además de estar cursando una especialidad en formación para secretarios del Poder Judicial Federal. Su trayectoria profesional se extiende por diez años como servidor público en el Poder Judicial Federal.
+
+Villanueva Cruz motiva su candidatura por su pasión por el servicio público. Su visión para la función jurisdiccional se centra en la resolución oportuna de juicios, la honestidad, imparcialidad, transparencia, el contacto directo con las partes y un ambiente de trabajo sano. Sus propuestas principales incluyen el respeto a los plazos legales, la comunicación directa con las partes involucradas y la promoción de un ambiente laboral libre de acoso.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19cT3EF9tb/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Especialidad en curso básico de formación y preparación para personas secretarias del Poder Judicial Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55069/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, diplomado en código nacional de procedimientos penales y grado de especialidad
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque cuento con diez años de experiencia como servidor público del Poder Judicial Federal, y es mi pasión servir
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resolución de juicios en los plazos legales; honestidad, imparcialidad y transparencia; contacto directo con las personas justiciables; ambiente de trabajo sano; proporcionar seguridad jurídica a las partes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta y expedita, así como al alcance de todas las personas, tal como lo prevé el artículo 17 constitucional.
+
+
+## Propuestas
+
+- Respetar los plazos legales para la emisión de resoluciones
+- Contacto directo con las partes
+- Ambiente de trabajo sano, cero acoso laboral
+

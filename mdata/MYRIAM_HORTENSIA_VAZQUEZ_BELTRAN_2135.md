@@ -1,0 +1,74 @@
+Nombre Candidato: MYRIAM HORTENSIA VAZQUEZ BELTRAN
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: myris.vb@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Defensa Penal, Derecho, Derechos Humanos, Doctorado, Ejecución Penal, Especialidad, Formación Judicial, Género, Igualdad, Judicatura Federal., Maestría, Universidad Autónoma de Tamaulipas
+Tags Propósito: abuso judicial, acceso a la justicia, imparcialidad, justicia accesible, justicia entendible., justicia humana, profesionalismo, transparencia, visión jurisdiccional
+
+
+## Descripción del Candidato 
+
+Myriam Hortensia Vázquez Beltrán es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con un alto nivel de escolaridad, incluyendo licenciatura en Derecho, dos maestrías, dos especialidades y un doctorado, respaldado por su cédula profesional. Ha realizado diversos cursos de actualización en áreas como ejecución de penas, defensa penal y derechos humanos.
+
+Su motivación para buscar el cargo público se basa en la búsqueda de una impartición de justicia más humana, accesible e imparcial, enfocándose en la prevención de abusos. Sus propuestas principales incluyen humanizar a los titulares de los órganos judiciales y mejorar la accesibilidad y comprensión de la justicia para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/myris.vazquezbeltran
+- https://www.instagram.com/myrisvazquezbeltran
+- https://www.tiktok.com/myris.vzquez
+
+
+## Cursos
+
+- Diplomado en ejecución de penas, por el Instituto de la Judicatura Federal,Curso de Actualización en Defensa Penal 2021; Impartido vía virtual por la Escuela Federal de Formación Judicial,Diplomado Argumentación Jurídica en Materia de Derechos Humanos,Curso género como herramienta para la igualdad
+- Novena Edición
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55537/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la universidad Autónoma de Tamaulipas, con dos maestrias, dos especialidades y un doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Por que creo que hce falta una imparticion de justicia mas humana, accesible para todas las personas e imparcial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi vision jurisdiccional implica que no existan abusos
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visionde la imparticion de justicia consiste en una imparticio nde justicia imparcial, transparente, profesional y sobre todo humana
+
+
+## Propuestas
+
+- Que los titulare sde lso organos sean mas humanos
+- que la justicia sea mas accesible y entendible para las persoas
+- No proporcionó
+

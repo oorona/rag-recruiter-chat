@@ -1,0 +1,74 @@
+Nombre Candidato: MARIA EUGENIA MARTINEZ TORRES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3332018720
+Correo Electronico: marumartinez32@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Colegio de Morelos., Derechos Humanos, Doctorado en Derecho, Habilidades de Mando, Juicio de Amparo, Juicios Orales, Materia Contenciosa Administrativa, Poder Judicial de la Federación, Suprema Corte de Justicia de la Nación, Universidad Autónoma Metropolitana, Universidad Virtual Tributaria, Universidad de Guadalajara
+Tags Propósito: Accesibilidad, Capacidad intelectual, Combate a la corrupción, Compromiso social, Derechos humanos, Eficiencia procesal, Grupos vulnerables, Honestidad, Igualdad, Impartición de justicia, Justicia, Plazos legales., Respeto, Responsabilidad, Transparencia, Trayectoria profesional, Ética
+
+
+## Descripción del Candidato 
+
+MARIA EUGENIA MARTINEZ TORRES es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulada por el Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho, además de diversos diplomados en áreas como Juicio de Amparo, Derechos Humanos y Habilidades de Mando. Su trayectoria académica incluye estudios en la Universidad de Guadalajara y Colegio de Morelos.
+
+La candidata motiva su búsqueda del cargo en su compromiso con la responsabilidad, honestidad y defensa de los grupos vulnerables. Su visión sobre la función jurisdiccional se centra en la capacidad intelectual y ética de los impartidores de justicia, así como en el acceso a la justicia sin estigmatización. Sus propuestas incluyen combatir la corrupción en el Poder Judicial, priorizar la defensa de los derechos de grupos vulnerables y eficientizar los procesos para agilizar la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/candidata Maria Eugenia Martinez
+- https://www.instagram.com/candidata.maria.eugenia.mtz
+- https://www.tiktok.com/mariaeugeniamar158
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo de la Suprema Corte de Justicia de la Nación,Diplomado en Derechos Humanos de la Suprema Corte de Justicia de la Nación,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Instituto Judicatura Fed
+- ,Diplomado en Habilidades de Mando, de la Universidad Autónoma Metropolitana,Diplomado en Materia Contenciosa Administrativa Federal de la Universidad Virtual Tributaria y de Comercio Exterior
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54274/10
+
+
+## Trayectoria Academica
+
+- Abogada egresada de la Universidad de Guadalajara, Maestría en Juicios Orales y Doctorado en Derecho Colegio de Morelos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para seguir trabajando con gran responsabilidad, honestidad y compromiso con la sociedad y grupos vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser desempeñada por personas que a través de su trayectoria académica y profesional cuenten con la capacidad intelectual y jurídica para llevarla a cabo, comprometidos con las causas más justas para el pueblo, sin tener privilegios que los distingan del resto de la ciudadanía, fundamentalmente con valores éticos, actuando con honestidad, justicia y respeto. Se debe trabajar con puertas abiertas a los justiciables, sin barreras para que no se sientan estigmatizados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta y expedita, sin juicios largos ni trabas procesales, debe ser accesible a todas las personas y priorizar la defensa de los derechos de los grupos más vulnerables, no debe privilegiarse a personas, tanto trabajadoras del poder judicial como a las partes de un proceso, por lazos de parentesco o amistad.
+
+
+## Propuestas
+
+- Combatir la corrupción dentro del Poder Judicial Federal, es necesario mejor la imagen en la sociedad sobre la impartición de justicia y eso se logra con transparencia, honestidad, trabajando con puertas abiertas hacia los justiciables.
+- Aplicar la justicia velando por los derechos de los grupos vulnerables y el pueblo en general, para lograr la construcción de una sociedad en igualdad de condiciones.
+- Eficientizar y simplificar los procesos a fin de que las resoluciones sean emitidas en el menor tiempo posible, a fin de cumplir con los plazos máximos establecidos en la ley,
+

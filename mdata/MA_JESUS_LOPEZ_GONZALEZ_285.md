@@ -1,0 +1,77 @@
+Nombre Candidato: MA JESUS LOPEZ GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6643068433
+Correo Electronico: maria_jesus63@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Cursos., Derecho, Derecho Penal, Derecho de Amparo, Derechos Humanos, Desaparición Forzada, Diplomados, Educación Primaria, Investigación, Justicia para adolescentes, Mérito Escolar, Proceso Penal Acusatorio, Tortura, UABC
+Tags Propósito: Escuela Judicial, acceso a la justicia, capacitación judicial, debido proceso, derechos humanos, formalidades esenciales, imparcialidad, justicia integral, justicia pronta y expedita, legalidad, operadores empáticos, principios éticos., reclamo ciudadano, sensibilidad humana, sesiones públicas, transformación judicial, transparencia judicial
+
+
+## Descripción del Candidato 
+
+MA JESUS LOPEZ GONZALEZ es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para el estado de Baja California. Cuenta con maestría y una trayectoria académica que incluye la Licenciatura en Derecho por la UABC y diversos diplomados en áreas como justicia para adolescentes, derecho penal, derechos humanos y el nuevo proceso penal acusatorio.
+
+Su motivación para buscar el cargo es participar en la transformación del sistema judicial. Propone tres ejes principales: la apertura de sesiones de los Tribunales Colegiados al público, la agilización de procesos sin sacrificar el debido proceso y la capacitación constante de operadores judiciales con enfoque en derechos humanos y sensibilidad social.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/195Gj39hor/?mibextid=wwXIfr
+- https://x.com/majesuslopezglz?s=21&t=6-82RR7h2oy2ak4Fw5aHNg
+- https://www.instagram.com/ma.jesuslopezgonzalez?igsh=Z3ltcWdmeGh3Nngx
+
+
+## Cursos
+
+- DIPLOMADO en JUSTICIA PARA ADOLESCENTES, impartido por el Instituto del Consejo de la Judicatura del PJBC,DIPLOMADO: ACTUALIZACIÓN EN DERECHO PENAL Y DERECHO DE AMPARO impartido por el Instituto de Investigaciones UNAM,DIPLOMADO: DERECHOS HUMANOS Edición 2022, Suprema Corte de Justicia de la Nación
+- ,DIPLOMADO FORTALECIMIENTO EN INVESTIGACIÓN, SANCIÓN Y REP
+- DAÑO, DELITOS DE TORTURA Y DESAPARICION FORZADA INSYDE
+- ,DIPLOMADO denominado EL NUEVO PROCESO PENAL ACUSATORIO Y ORAL impartido por CONATRIB en coordinación con el PJBC
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53768/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho UABC con reconocimiento al Mérito Escolar, Profa
+- en Educacion Primaria ENUFF, Diplomados y cursos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero formar parte del necesario proceso transformador del sistema judicial, con mi capacidad y experiencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión acerca de la función jurisdiccional, es la de que realmente la sociedad mexicana, tenga acceso a una justicia integral; en la que, cumpliendo toda exigencia legal, pero sin formulismos innecesarios ni burocráticos, sin distinción de personas y salvaguardando sus derechos fundamentales, se imparta justicia cercana y de frente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Veo la impartición de justicia, como una manifestación civilizada de la sociedad democrática, donde a través de los principios éticos; esencialmente el de imparcialidad y el conocimiento del Derecho, con sensibilidad humana, se resuelvan los conflictos entre los particulares entre sí, o en contra del orden jurídico establecido.
+
+
+## Propuestas
+
+- Mi propuesta de mejora a la función jurisdiccional es de que las sesiones de los Tribunales Colegiados, sean públicas; es decir, frente a la presencia ciudadana y de litigantes, respecto a las restricciones actuales, si bien recae en la excepcionalidad, también trastoca su transparencia.
+- Proveer de justicia accesible a la ciudadanía, agilizando los procesos, cuidando las formalidades esenciales del procedimiento; porque el debido proceso debe garantizarse también sin formulismos innecesarios, sin burocratismos dilatorios, con resoluciones legibles a las partes, a efecto de dar complimiento a los postulados del artículo 17 Constitucional de dar una justicia pronta y expedita.
+- Capacitación constante, a efecto de que los instructores de la Escuela Judicial, formen operadores en esta nueva forma de impartir justicia, bajo la nueva óptica del reclamo ciudadano; creando agentes empáticos y sensibles a las necesidades de la sociedad en general, con enfoque a la salvaguarda de los derechos humanos y los principios de legalidad.
+

@@ -1,0 +1,80 @@
+Nombre Candidato: MIRIAM LETICIA CASTRO SALAZAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUANAJUATO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: mlcs.0881@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Casa de la Cultura Jurídica, Derecho Procesal Constitucional, Diplomado, Formación Jurídica, Instituto de la Judicatura Federal, Juicio de Amparo, Retórica Jurídica., Seminario
+Tags Propósito: accesibilidad, acceso a la justicia, actualización, armonía, bienestar psicológico., bienestar social, capacitación, constitución, derechos laborales, eficiencia, equidad, estado de derecho, humanidad, humanización de la justicia, igualdad, igualdad de género, imparcialidad, independencia, justicia, legalidad, lenguaje sencillo, leyes, objetividad, paz social, perspectiva de género, poder judicial, presunción de inocencia, profesionalismo, protección de víctimas, re-victimización, reparación del daño, resolución pronta, salud mental, sentido humano, servidor público, ética
+
+
+## Descripción del Candidato 
+
+MIRIAM LETICIA CASTRO SALAZAR es candidata a Magistratura de Tribunales Colegiados de Circuito en Guanajuato, postulada por el Poder Judicial de la Federación. Cuenta con Maestría concluida y ha realizado diversos cursos de especialización en el Instituto de la Judicatura Federal y la Casa de la Cultura Jurídica en áreas como juicio de amparo, argumentación jurídica y derecho procesal constitucional. 
+
+Su motivación para buscar el cargo público es lograr un acercamiento con la ciudadanía y promover una impartición de justicia ética y humana. Su visión se centra en un Poder Judicial que garantice accesibilidad, eficiencia y respeto a la Constitución, así como en el bienestar de quienes integran la función jurisdiccional. Sus propuestas incluyen el impulso de resoluciones con perspectiva de género y sentido humano, el uso de un lenguaje claro en las sentencias, y la capacitación constante de juzgadoras y juzgadores con énfasis en temas de igualdad, equidad y bienestar psicológico.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://miriamcastro.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1K8BSLMMgz/?mibextid=wwXIfr
+- https://www.instagram.com/mcs0881?igsh=MWNyNGRodjduaG56dA==
+
+
+## Cursos
+
+- Instituto de la Judicatura Federal
+- Diplomado en Nociones Generales del Juicio de Amparo
+- ,Instituto de la Judicatura Federal Diplomado en Argumentación y Retórica Jurídica
+- ,Instituto de la Judicatura Federal Diplomado del Nuevo Juicio de Amparo
+- ,Casa de la Cultura Jurídica
+- Extensión Guanajuato
+- Diplomado en Derecho Procesal Constitucional
+- ,Casa de la Cultura Jurídica, extensión Guanajuato
+- Seminario de Argumentación Jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52515/10
+
+
+## Trayectoria Academica
+
+- Maravillosa, donde el aprendizaje y la experiencia de combinar el estudio y el trabajo me permitió amar mi profesión
+
+
+## Motivo para buscar el Cargo Publico
+
+Me permitirá lograr un acercamiento con las personas así como un cambio en la impartición de justicia ética y humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tener un poder judicial que garantice la justicia, accesibilidad y eficiencia bajo el respeto de la Constitución y las leyes, que incluya la facultad del juzgador a examinar detalladamente los asuntos sometidos a su potestad, llevando a cabo su labor con independencia, imparcialidad, objetividad, profesionalismo y principalmente como ser humano. Asimismo impulsar el respeto a los derechos laborales de los individuos que colaboren en el desempeño de la citada función.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se centra en garantizar el estado de derecho, la equidad, paz social y acceso a la justicia. Así como lograr la protección de las víctimas, respeto a la presunción de inocencia, lograr la reparación del daño, la emisión de una resolución de manera pronta, completa e imparcial, para obtener el bienestar social, fortaleciendo la igualdad entre los miembros de la sociedad y quienes se vean afectados por un procedimiento jurisdiccional.
+
+
+## Propuestas
+
+- Impulsar el respaldo para resolver conflictos y emisión de la resolución respectiva con base en la legalidad, armonía, profesionalismo, perspectiva de género y en especial con sentido humano, evitando en una caso determinado la revictimización.
+- Utilización para el dictado de las sentencias un lenguaje sencillo y concreto para que sea el estandarte que dirija la función jurisdiccional, para lograr el entendimiento simple pero efectivo de las resoluciones que se emitan , sin que se soslaye el estudio minucioso del asunto sometido a escrutinio para que no quede duda alguna del sentido de la misma.Asimismo adoptar medidas preventivas frente al estrés pues ante las eminentes cargas de trabajo resulta necesario mantener la salud mental.
+- Existencia de capacitación constante y actualización de juzgadoras y juzgadores para tener el mejor desempeño en su función; implementándose protocolos , acciones educativas que logren la toma de conciencia sobre lo que verdaderamente es ser servidor público. Sensibilizar sobre temas de igualdad, equidad de género y humanización en la impartición de justicia.De igual manera cobra principal importancia los cursos para el bienestar psicológico del personal que integra los órganos jurisdiccionales
+

@@ -1,0 +1,77 @@
+Nombre Candidato: BLANCA LAURA RIVERO BANDA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5539761304
+Correo Electronico: blancalaurariverob@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Postdoctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Ciencias Penales, Derecho, Derechos Humanos, Diplomado, Juicio de Amparo, Licenciatura., Maestría, Posdoctorado, Procedimientos Civiles y Familiares, Procuración de Justicia, Suprema Corte
+Tags Propósito: acceso a la justicia, capacitación judicial, confianza, derechos de las personas., derechos humanos, diversidad, evaluación judicial, igualdad, imparcialidad, inclusión, justicia, justicia pronta, legalidad, mediación, objetividad, resolución de conflictos, seguridad jurídica, trato digno, ética profesional
+
+
+## Descripción del Candidato 
+
+Blanca Laura Rivero Banda es candidata a Jueces/as de Distrito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con un extenso background académico, incluyendo un Doctorado en Derecho y Posdoctorado en Derechos Humanos, además de diversos diplomados y cursos especializados en áreas como el juicio de amparo y derechos humanos.
+
+Su motivación para buscar el cargo es servir a la sociedad promoviendo la justicia e igualdad. Su visión de la función jurisdiccional y la impartición de justicia se centra en garantizar el acceso a la justicia, la resolución justa y equitativa de conflictos, y el pleno respeto a los derechos humanos. Sus propuestas incluyen un trato digno e igualitario a los justiciables privilegiando la mediación, la capacitación continua en derechos humanos para el personal judicial, y la evaluación constante del desempeño de los jueces a través de indicadores estadísticos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BJWDwkqPu/
+- https://www.instagram.com/blancariverojueza?igsh=bjRxYXYwaWo1aWhu
+- https://www.tiktok.com/@blanca.rivero.jue?_t=ZM-8v6J4peTZaA&_r=1
+
+
+## Cursos
+
+- Posdoctorado en Derechos Humanos,Diplomado Sobre Juicio de Amparo, edición 2024,Curso: Código Nacional de Procedimientos Civiles y Familiares,Diplomado La Suprema Corte y los Derechos Humanos,Diplomado Enfoque de Derechos Humanos en la Procuración de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52397/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Mtra
+- en Amparo, Mtra
+- en Ciencias Penales, Dra
+- en Derecho y Posdoctorado en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Me permite servir a la sociedad, promoviendo la justicia e igualdad mediante la solución de los problemas cotidianos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es una función de alta responsabilidad, porque garantiza la igualdad de acceso a la justicia de las personas, resolviendo sus conflictos y disputas de manera justa y equitativa, bajo los principios de igualdad, imparcialidad, objetividad, pleno respeto a los derechos humanos y a la legalidad, con seguridad jurídica en la aplicación de la ley, protegiendo los derechos de las personas, su patrimonio e incluso su honra con justicia y ética profesional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Esta función garantiza que toda persona que acude ante un tribunal a solicitar la declaración de un derecho a su favor, sea escuchada por el juzgador para que, con las evidencias presentadas se emita de manera pronta y cumplida una sentencia imparcial, objetiva y con pleno respeto a derechos humanos, promoviendo la diversidad, la inclusión y resolviendo sus conflictos con justicia y equidad, logrando que la sentencia en la que se reconozca el derecho del justiciable se cumpla a cabalidad.
+
+
+## Propuestas
+
+- Trato digno e igualitario a los justiciables, fomentando la escucha a las partes en conflicto para resolver sus disputas privilegiando en todo momento la mediación.
+- Capacitar de manera continua a las y los jueces y personal judicial en temas específicos sobre derechos humanos, lo que permitirá sensibilizar al personal judicial para desarrollar habilidades y experiencias que puedan ser valiosas en el trato con los justiciables.
+- Evaluación constante y permanente de la función del juzgador mediante la estadística relativa al número de resoluciones impugnadas que le sean revocadas anualmente, con la finalidad de verificar el trabajo profesional y ético del juzgador, generando así la confianza de los justiciables en la impartición de justicia.
+

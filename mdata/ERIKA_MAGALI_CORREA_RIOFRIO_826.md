@@ -1,0 +1,79 @@
+Nombre Candidato: ERIKA MAGALI CORREA RIOFRIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5547987884
+Correo Electronico: erikamagali.cr@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CONATRIB, Capacidad Jurídica, Derechos Humanos, Educación Superior, FES Aragón UNAM, INDISCAPACIDAD, Juicios Orales, Justicia Transicional, Licenciatura en Derecho, Maestría, Protección de la Niñez., Sistema Interamericano, TSJCDMX, Universidad Tepantlato
+Tags Propósito: Acceso a la justicia, Calidad, Compromiso social, Corrupción, Función jurisdiccional, Honestidad, Humanismo, Imparcialidad, Integridad, Justicia, Necesidades sociales, Poder Judicial, Profesionalismo, Pueblo de México, Reconstrucción, Sencillez., Sociedad, Transparencia
+
+
+## Descripción del Candidato 
+
+Erika Magali Correa Riofrio es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con una Maestría en Juicios Orales y es Licenciada en Derecho, egresada con mención honorífica de la FES Aragón UNAM.
+
+Su motivación para el cargo público se centra en el servicio a México con profesionalismo, integridad y honestidad.  En cuanto a su visión, propone reconstruir el Poder Judicial con conocimientos, experiencia, honestidad e integridad, materializar una impartición de justicia accesible para todos y reconectar la función jurisdiccional con las necesidades de la sociedad, priorizando una labor práctica, cercana y humana. Ha realizado diversos cursos en temas de derechos humanos, justicia transicional y protección de la niñez.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1KCugbokaL/?mibextid=wwXIfr
+- https://www.instagram.com/erika_magali_rc?igsh=Z3U3azFmZXdycjRk&utm_source=qr
+- https://www.tiktok.com/@erika.magali.corr?_t=ZM-8v3CmZK6vQc&_r=1
+
+
+## Cursos
+
+- 14 Reunión de la Red Mexicana de Cooperación Judicial para la Protección de la Niñez, impartido por la CONATRIB 2023
+- ,Por el Derecho a Decidir: El Reconocimiento Pleno de la Capacidad Jurídica, impartido por el INDISCAPACIDAD CDMX 2023
+- ,Justicia Transicional, por la Comisión Interamericana de Derechos Humanos y la Organización de Estados Americanos 2021
+- ,Sistema Interamericano de Derechos Humanos, impartido por la Comisión Interamericana de Derechos Humanos y la OEA 2021
+- ,8 Ciclo de Conferencias y Mesas Redondas sobre temas de actualidad en Derechos Humanos, impartido por el TSJCDMX 2017
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52848/10
+
+
+## Trayectoria Academica
+
+- Maestra en Juicios Orales, Universidad Tepantlato,; Licenciada en Derecho FES Aragón UNAM con mención honorífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque no hay labor más noble que servir al pueblo de México con profesionalismo, integridad y honestidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional en todo momento debe ser cercana a la gente, pues en la medida en que lo sea, podremos vivir en una sociedad más justa, debe conservar siempre la calidez y humanismo. No puede quedar reservada a un séquito de poder o a un puñado de personas con apellidos que por años se han turnado la estafeta de la impartición de justicia. Es momento de abrir espacio a quienes queremos ejercer la función jurisdiccional sin influencias, apellidos, ni compromisos políticos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un camino que debe recorrerse siempre pensando en el pueblo de México, en el bienestar de la sociedad y en la justicia social. Impartir justicia es un compromiso con la humanidad misma, pues juzgar un asunto siempre tendrá un impacto en la vida de las personas y en la sociedad. Es momento de que el pueblo de México tenga una impartición de justicia de calidad, con conocimientos y profesionalismo, pero sobre todo, cercana, humana, honesta y sin privilegios.
+
+
+## Propuestas
+
+- Reconstruir al Poder Judicial de la Federación con conocimientos, experiencia, honestidad e integridad. La reconstrucción del Poder Judicial de la Federación, no solo requiere gente experta y capaz. Es verdad que es fundamental contar con los conocimientos jurídicos para impartir justicia; pero también resulta esencial que las nuevas personas juzgadoras que integren el Poder Judicial de la Federación sean íntegras y honestas.
+- Materializar una verdadera impartición de justicia a la que cualquier persona tenga acceso y que no sea un privilegio para solo unos cuantos. Cuando un sistema judicial se ha corrompido con corruptelas y favores, es imposible que exista un piso parejo para todas las personas que buscan acceso a la justicia. Es tiempo de terminar con esas prácticas, de cerrar las filas a la corrupción. En mi vida profesional, siempre me he desempeñado como me enseñaron mis padres: con integridad y transparencia.
+- Reconectar la función jurisdiccional con las necesidades de la sociedad, a través de una labor más práctica, cercana y humana. Es inminente que se conciba al Poder Judicial de la Federación como una estructura de gobierno que sirva a la sociedad y no como a un ente soberbio y alejado de la realidad social. Sin dejar de lado la seriedad que implica la función jurisdiccional o tomarla como cosa de juego, es momento de reconectar al Poder Judicial con la ciudadanía, con humanismo y sencillez.
+

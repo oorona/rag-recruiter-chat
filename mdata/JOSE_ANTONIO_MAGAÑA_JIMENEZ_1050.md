@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE ANTONIO MAGAÑA JIMENEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3310035112
+Correo Electronico: jamjimenez2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: ANADE, Abogado Certificado, Abogados Corporativos, Amparo, Asociación Nacional de Abogados de Empresa, Colegio de Notarios de Jalisco, Derecho Procesal Hereditario, Derechos Humanos, Destitución Notario Público, Diplomado, Doctorado en Derecho, Especialista., Instituto Internacional del Derecho y el Estado, Investigación, Juicio de Amparo, Notarios, Suprema Corte de Justicia de la Nación
+Tags Propósito: APP AMPARAME, Accesibilidad Universal, Acceso Gratuito, Acceso a la Justicia, Amparo, Amparo de Instancia Única, Amparo Único Universal, Corrupción, Defensoría Pública, Derechos Humanos, Discriminación, Educación Jurídica., Evasión Fiscal, IA, Justicia, Justicia Humanista, Justicia Predictiva, Modernización, Oralidad, Pobreza, Prueba Digital, Simplificación, Sociedad Civil, Tecnología, Transparencia, Violaciones a Derechos Humanos
+
+
+## Descripción del Candidato 
+
+José Antonio Magaña Jiménez es candidato a Magistrado de los Tribunales Colegiados de Circuito en Jalisco, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría y se encuentra cursando el doctorado en Derecho. Su trayectoria académica y profesional se centra en el amparo y los derechos humanos, destacando como el primer abogado en México en destituir a un Notario Público.
+
+Su motivación para el cargo es modernizar la justicia, combatir la corrupción y agilizar los procesos, garantizando el acceso universal a la justicia. Sus propuestas clave incluyen la creación de un Instituto Nacional de Defensa Pública en Amparo para brindar asistencia legal gratuita, la implementación de un Amparo de Instancia Única simplificado y accesible, y la adopción de un procedimiento de demanda de amparo oral con apoyo tecnológico. Busca una justicia ágil, humanista y transparente, enfocada en los derechos humanos y el uso de la tecnología para prevenir y combatir la corrupción.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.josemaganajimenez.com.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15vm1FPLcD/
+- https://x.com/licjoseantoniom
+- https://www.instagram.com/lic.joseantonio?igsh=MW9na2x2MnJkanRrOA==
+- https://www.youtube.com/@joseantoniomaganajimenez6566
+- https://www.tiktok.com/@lic.magana?_t=ZM-8uO1zgzFxY5&_r=1
+
+
+## Cursos
+
+- DOCTORADO EN DERECHO CURSANDO EL 3 SEMESTRE EN INVESTIGACIÓN,  INSTITUTO INTERNACIONAL DEL DERECHO Y EL ESTADO
+- ,DIPLOMADO SOBRE JUICIO DE AMPARO EDICIÓN 2024 SUPREMA CORTE DE JUSTICIA DE LA NACIÓN (SCJN)
+- ,DIPLOMADOS 2019 2022 PARA NOTARIOS Y ABOGADOS CORPORATIVOS POR EL COLEGIO DE NOTARIOS DE JALISCO Y LA ANADE
+- ,ABOGADO CERTIFICADO 2020, 2021, 2022, 2023 Y 2024 POR LA ASOCIACIÓN NACIONAL DE ABOGADOS DE EMPRESA (ANADE JALISCO),ACTUALIZACIÓN EN DERECHO PROCESAL HEREDITARIO FEBRERO 2020, COLEGIO DE ABOGADOS LIC
+- DIONISIO NIÑEZ VERDÍN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54138/10
+
+
+## Trayectoria Academica
+
+- Primer Abogado en México en destituir un Notario Publico al 64 de Guadalajara, especialista en Amparo y Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para modernizar la Justicia, eliminar la corrupción, agilizar los procesos, garantizar el acceso igualitario y universal
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Crear una justicia, ágil, humanista y trasparente, poniendo a la gente en el centro, mediante el acceso al Amparo Único Universal sin barreras geográficas y culturales, eliminando los tecnicismos, mediante modelos de autogestión, justicia predictiva y preventiva, con el uso de la  DATA, para identificar patrones de conductas de corrupción y violaciones a los derechos humanos, alianzas con la Sociedad Civil, y academia, para atender las causas como la pobreza, discriminación etcétera.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe centrarse en los derechos humanos, sobre formalismos, con perspectiva intercultural, aplicando la tecnología con el uso de la IA, plazos máximos de 30 días para resolver, publicidad a las sentencias, en lenguaje sencillo, transmitir audiencias en vivo respetando la protección de las infancias y victimas, especialización progresiva de derechos, priorizando la protección de la familia, con cortes abiertas donde los jueces expliquen en redes sociales sus decisiones a la gente.
+
+
+## Propuestas
+
+- Crear el INSTITUTO NACIONAL DE DEFENSORÍA PÚBLICA EN AMPARO (INDA), asistencia Legal Gratuita Universal, con abogados especializados cursando la Maestría o Doctorado, para representar a quienes no puedan costear un litigante, autofinanciable mediante el combate a la evasión fiscal de grandes contribuyentes y multas por violaciones a la propia Ley de Amparo; implementación de acuerdos con universidades para que abogados con Maestría y Doctorado, atiendan casos de amparo con alta especialidad.
+- Crear el AMPARO DE INSTANCIA UNICA, unificar las vías directa e indirecta en un solo procedimiento accesible, rápido y sin tecnicismos, creando un solo proceso, aplicable a todo tipo de violaciones, sin distinciones procedimentales, que elimine requisitos formales excesivos, como los agravios técnicos, priorice la oralidad y la prueba digital, como sería la APP AMPARAME, para documentar y detener de inmediato, violaciones a derechos humanos, como detenciones, desalojos, desapariciones forzadas.
+- Implementación de la demanda de Amparo oral, junto con medidas para garantizar su accesibilidad universal, mediante reformas legales, tecnológicas, educativas y de infraestructura, que faciliten que cualquier ciudadano, pueda ser amparado de la forma más simple, con solo identificar la violación a sus derechos humanos, incluso si no sabe leer ni escribir; esto es acercar la justicia al pueblo y no solo para aquellos que pueden pagarla, justicia humanista sin distinción.
+

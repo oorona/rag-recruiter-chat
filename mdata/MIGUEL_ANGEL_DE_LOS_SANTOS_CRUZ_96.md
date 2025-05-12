@@ -1,0 +1,79 @@
+Nombre Candidato: MIGUEL ANGEL DE LOS SANTOS CRUZ
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: miguelangeldelossantoscruz12@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Académico, Ciencias Penales, Democratización, Derecho Internacional, Derechos Humanos, Diploma, Magister, U. Notre Dame, U. de Chile, UNED.
+Tags Propósito: Acceso a la Justicia, Capacitación Jurídica, Conducta Judicial, Control, Corrupción, Denuncias, Derechos Humanos, Disciplina Judicial., Eficacia, Honestidad, Imparcialidad, Independencia Judicial, Justicia, Profesionalización, Rendición de Cuentas, Sensibilidad, Transparencia, Vigilancia, Ética Judicial
+
+
+## Descripción del Candidato 
+
+Miguel Ángel de los Santos Cruz es candidato a la Magistratura del Tribunal de Disciplina Judicial, postulado por el Poder Ejecutivo Federal. Abogado, defensor de los derechos humanos y académico con amplia experiencia, cuenta con un doctorado y diversas maestrías y diplomados en áreas como Derecho Internacional de los Derechos Humanos y Ciencias Penales.
+
+Su motivación para buscar el cargo se basa en la construcción de un sistema de justicia sensible, eficaz, libre de corrupción y garante de los derechos humanos. Sus propuestas se centran en renovar la mística del trabajo jurisdiccional, generar un nuevo modelo de justicia basado en independencia, capacidad jurídica, honestidad y sensibilidad, y en establecer mecanismos de prevención y vigilancia del personal judicial para combatir la corrupción e ineficacia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://miguelangel-delossantos.milanding-page.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/delossantoscruzmiguel/?rdid=Cstp3dcYIDPL1lcm
+- https://www.instagram.com/delos_santoscruzmiguel?igsh=MWFsd2locHFlcXQ5cw3D3D
+- https://www.tiktok.com/@delos_santoscruzmiguel
+
+
+## Cursos
+
+- Maestría en Derecho Internacional de los Derechos Humanos (Magna cum laude)
+- Universidad de Notre Dame
+- ,Maestría en Ciencias Penales
+- Instituto  José de,Diplomado en Derechos Humanos y Procesos de Democratización
+- Universidad de Chile
+- ,Diploma en Estudios Avanzados en Derechos Humanos (Sobresaliente)
+- UNED
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15375/7
+
+
+## Trayectoria Academica
+
+- Abogado, defensor de los derechos humanos y académico con amplia experiencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero construir un sistema de justicia sensible, que garantice los derechos humanos, eficaz y libre de corrupción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La ciudadanía confía en que la función jurisdiccional que ejerce el Estado representa un medio idóneo para tramitar sus problemas judiciales, asumiendo que tal función se desarrolla con independencia, aplicando las normas con objetividad y observando los derechos humanos de las partes, de tal manera que las resoluciones así obtenidas reducen los márgenes de inconformidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con un Poder Judicial renovado, la ciudadanía confiará en que las resoluciones de sus controversias judiciales se resolverán con absoluta honestidad, imparcialidad y respeto a los derechos humanos, por personas juzgadoras sensibles ante las injusticias y con capacidad jurídica para resolver en los plazos establecidos.
+
+
+## Propuestas
+
+- Construir una nueva mística de trabajo jurisdiccional, con verdadero compromiso con los derechos humanos y disposición para escuchar con sensibilidad a las partes. El personal de la judicatura debe dejar de percibirse como una élite inaccesible y arrogante que se escuda en el conocimiento y aplicación de las normas jurídicas.
+- Generar un nuevo modelo de justicia, regido por principios inseparables como la independencia judicial, capacidad jurídica, honestidad y sensibilidad en la solución de controversias judiciales. Para lograrlo se requiere capacitación jurídica constante, efectivos controles de vigilancia sobre su conducta y patrimonio, y sanciones acordes con las faltas que se cometan.
+- Prevención y vigilancia permanente del personal a cargo de la función jurisdiccional para evitar las conductas que la demeritan, como la corrupción, la insensibilidad y la ineficacia para resolver con prontitud. En cada circuito se debe contar con un organo que vigile la conducta y disciplina del personal de la judicatura, y atienda de manera accesible y pronta las denuncias que se presenten.
+

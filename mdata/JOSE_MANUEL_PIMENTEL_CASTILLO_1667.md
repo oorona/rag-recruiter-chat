@@ -1,0 +1,72 @@
+Nombre Candidato: JOSE MANUEL PIMENTEL CASTILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9931040727
+Correo Electronico: jmpimentelcastillo67@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación, Derecho Constitucional, Formación Continua., Igualdad de Género, Inclusión, Juicio de Amparo, Justicia Laboral, Máster, PEMEX, Proceso Laboral, SUPREMA CORTE DE JUSTICIA DE LA NACION, Tribunal Superior de Justicia, UNIVERISDAD IBEROAMERICANA
+Tags Propósito: Justicia laboral, acceso a la justicia, confianza pública, democratización de la justicia, derechos humanos, eficiencia judicial, estado de derecho, humanismo mexicano, igualdad, imparcialidad, justicia accesible, justicia eficaz., justicia pronta, justicia transparente, legalidad, no discriminación, objetividad, rezago judicial, servicio público, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jose Manuel Pimentel Castillo es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo por la Universidad Iberoamericana y ha realizado diversos cursos de especialización en materia laboral y de justicia, incluyendo diplomados ofrecidos por la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo público se centra en garantizar la justicia en conflictos laborales, promoviendo un sistema judicial efectivo, accesible, imparcial y que contribuya al equilibrio social. Sus propuestas principales incluyen abatir el rezago judicial mediante la clasificación de asuntos y el análisis de fondo, promover la transparencia y accesibilidad del sistema judicial, y democratizar el acceso a la justicia para todos los ciudadanos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ACGbZMrjB/?mibextid=wwXIfr
+- https://www.instagram.com/josemanuelpimentelcastillo/?igsh=bXptMWtjYmQ1cGlp#
+
+
+## Cursos
+
+- TALLER ¨DE PROCESO LABORAL¨ IMPARTIDO POR EL CENTRO DE ESPECIALIZACION JUDICIAL DEL TRIBUNAL SUPERIOR DE JUSTICIA DE,CURSO ¨IGUALDAD ENTRE MUJERES Y HOMBRES EN EL AMBITO LABORAL¨ IMPARTIDO POR PETROLEOS MEXICANOS DICIEMBRE 2016,CURSO ¨PASO A PASO CONSTRUIMOS LA INCLUSION EN PEMEX¨ IMPARTIDO POR PEMEX DICIEMBRE 2016,CURSO ¨ACTUALIZACION EN MATERIA DE JUSTICIA LABORAL¨ IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACION NOV 2020,DIPLOMADO ¨JUICIO DE AMPARO¨ IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN JULIO 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54050/10
+
+
+## Trayectoria Academica
+
+- MAESTRIA EN DERECHO CONSTITUCIONAL Y AMPARO POR LA UNIVERSIDAD IBEROAMERICA
+
+
+## Motivo para buscar el Cargo Publico
+
+PARA GARANTIZAR JUSTICIA EN LOS CONFLICTOS LABORALES, INTERPRETANDO Y APLICANDO LA LEY CON RECTITUD Y TRANSPARIENCIA.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+PROMOVERÉ QUE LA JUSTICIA SEA EFECTIVA, ACCESIBLE, IMPARCIAL Y GARANTISTA. CONTRIBUYENDO AL EQUILIBRIO SOCIAL Y AL FORTALECIMIENTO DEL ESTADO DE DERECHO EN BENEFICIO DE TODAS Y TODOS LOS CIUDADANOS. ESTOY CONVENCIDO DE QUE EL HUMANISMO MEXICANO NOS PERMITE ASPIRAR A UN MÉXICO MAS JUSTO, LIBRE E IGUALITARIO Y LA JUSTICIA TRANSPARENTE Y ACCESIBLE FORTALECE LA CONFIANZA DE LA SOCIEDAD EN LAS INSTITUCIONES PROMOVIENDO LA PAZ SOCIAL Y EL RESPETO A LA LEGALIDAD, CONSTRUYENDO MEJORAS PARA NUESTRO PAÍS.
+
+
+## Vision sobre la Imparticion de Justicia
+
+LA JUSTICIA DEBE DE ESTAR AL ALCANCE DE TODAS LAS PERSONAS, SIN DISTINCIÓN DE CONDICIÓN SOCIAL, ECONÓMICA Y CULTURAL. LAS AUTORIDADES IMPARTIDORAS DE JUSTICIA DEBEN DE ACTUAR SIN INFLUENCIAS EXTERNAS APLICANDO EL DERECHO DE MANERA OBJETIVA Y JUSTA SIN FAVORITISMO NI DISCRIMINACIONES. LA IMPARTICIÓN DE JUSTICIA DEBE SER PRONTA, ACCESIBLE, EFICIENTE Y TRANSPARENTE, QUE GARANTICE LA PROTECCIÓN DE DERECHOS HUMANOS CON ESPECIAL ATENCIÓN A GRUPOS EN SITUACIÓN DE VULNERABILIDAD. EN BENEFICIO DEL PUEBLO
+
+
+## Propuestas
+
+- ABATIR EL REZAGO JUDICIAL: ¿Existe rezago Judicial. En la práctica los Tribunales Colegiados de Circuito del Poder Judicial, sesionan o discuten los asuntos de diversos temas, lo que origina retrasos y provoca que los juicios se alarguen. Buscaremos clasificarlos por temas relevantes; asimismo, se promoverá que los asuntos se estudien por fondo y sólo en caso muy excepcionales conceder el amparo por violaciones procesales, para abatir el rezago histórico del sistema judicial obsoleto del país.
+- JUSTICIA DE PUERTAS ABIERTAS. El sistema de justicia, no es totalmente transparente, accesible y participativo para la ciudadanía. Será una prioridad atender y escuchar a todas las personas sin distinción y que la justicia se convierta en un servicio público, confiable, eficaz y cercano a la gente. Se buscará fortalecer la confianza pública en el sistema judicial y garantizar que la justicia sea efectiva cercana y comprensible para todas las personas, en beneficio de los ciudadanos de este país.
+- DEMOCRATIZAR LA JUSTICIA Democratizar la justicia significa garantizar que el acceso a la justicia sea equitativo, eficiente y transparente, para todas las personas, sin importar su origen social, económico y político. En la actualidad, el acceso a la justicia no es equitativo, transparente y accesible, para todas las personas. Buscaremos que la justicia funcione realmente como un derecho fundamental y no como un privilegio.
+

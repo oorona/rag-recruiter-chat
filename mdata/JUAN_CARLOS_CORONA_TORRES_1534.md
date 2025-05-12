@@ -1,0 +1,77 @@
+Nombre Candidato: JUAN CARLOS CORONA TORRES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: juancarloscoronaoficial@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Antropología Jurídica, Democracia, Derecho, Economía, Especialidad en Secretaría de Juzgado, Formación Judicial., Género, Idioma Griego, Igualdad, Instituto de la Judicatura Federal, Máster en Derecho, SCJN, UAEMex, Universidad de Génova
+Tags Propósito: acceso a la justicia, capacitación, eficiencia, función jurisdiccional, jurisprudencia, justicia, justicia efectiva., justicia real, orden jurídico, paz social, procesos judiciales, rendición de cuentas, rezago judicial, servicio a la población, tesis, transparencia, tribunales
+
+
+## Descripción del Candidato 
+
+JUAN CARLOS CORONA TORRES es candidato a Magistratura de Tribunales Colegiados de Circuito del Poder Judicial de la Federación, representando a Quintana Roo. Cuenta con estudios de Licenciatura y Maestría en Derecho por la UAEMex, además de una Maestría en Derecho y Democracia por la Universidad de Génova, Italia. Su motivación para buscar el cargo se basa en su aspiración a un sistema de justicia accesible y justo, contribuyendo a este fin.
+
+Su visión de la función jurisdiccional la define como un servicio a la sociedad para generar paz social, enfatizando la necesidad de una justicia pronta, accesible, transparente y que rinda cuentas. Sus propuestas incluyen combatir el rezago judicial a través de la eficiencia y capacitación, contribuir al orden jurídico mediante la emisión de tesis y jurisprudencia, e implementar políticas de servicio a la población para acercar la justicia a las personas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/juancarloscoronaoficial
+- https://www.instagram.com/juancarloscorona__
+- https://www.youtube.com/@JuanCarlosCoronaT
+- https://www.tiktok.com/@juancarloscorona__
+
+
+## Cursos
+
+- Estudios en la Licenciatura en Economía (8 semestres de 10), en la Facultad de Economía de la UAEMex
+- ,Diplomado en Antropología Jurídica, por el Centro de Documentación, Análisis, Archivos y Compilación de Leyes SCJN,Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, por el Instituto de la Judicatura Federal,Curso Género como herramienta para la igualdad
+- Tercera edición, por la Escuela Federal de Formación Judicial (2023)
+- ,Curso Básico en el Idioma Griego (clásico), impartido en 3 semestres por el CELE de la UAEMex
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53349/10
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en Derecho por la UAEMex, y Master en Derecho   y Democracia por Universidad de Génova, Italia
+
+
+## Motivo para buscar el Cargo Publico
+
+Como ciudadano aspiro a que nuestro sistema de impartición de justicia sea accesible y justo. Yo puedo contribuir a ello
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es una actividad del Estado tendente a generar paz social a través de la resolución de controversias. Los tribunales no deben perder de vista que son instrumentos creados por la sociedad, por el pueblo, para su servicio; de suerte que en su función diaria deben sujetar su actuar especializado y técnico a ese servicio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi misión en la impartición de justicia es clara: acceso a la justicia para todos y todas, y justicia real y efectiva. La impartición de justicia debe ser una herramienta eficiente y cercana a las personas; debe ser transparente y rendir cuentas. Además, la impartición de justicia debe ser pronta.
+
+
+## Propuestas
+
+- Combatir el rezago; las personas no pueden esperar años para que se resuelvan sus juicios. Para ello hay que hacer más eficientes los procesos y capacitar más al personal del órgano jurisdiccional.
+- A través de la función de un Tribunal Colegiado de Circuito, contribuir a mejorar y a aclarar el orden jurídico a través de la emisión de tesis y jurisprudencias que guíen y vinculen a las autoridades correspondientes a actuar conforme a derecho y debidamente.
+- Instrumentar en mi área de responsabilidad políticas de servicio a la población, a las personas justiciables, con el objeto de hacer más clara y cercana la impartición de justicia.
+

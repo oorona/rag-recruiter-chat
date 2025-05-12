@@ -1,0 +1,75 @@
+Nombre Candidato: SANJUANA JARAMILLO JANTE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: sanjaramillojante@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho Electoral, Derecho Privado, Derecho Procesal Electoral, Doctorado, Escuela Judicial, Especialista en Derecho Privado, Especialista en Justicia, Estudios Jurídicos, Justicia Electoral, Máster en Derecho, Suprema Corte de Justicia, Universidad Autónoma de San Luis Potosí.
+Tags Propósito: Acceso a la Justicia, Burocracia, Contexto Social, Derechos Humanos, Equidad, Igualdad, Imparcialidad, Justicia, Legalidad, Protección, Rendición de Cuentas, Reparación., Transparencia, Violencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+SANJUANA JARAMILLO JANTE es candidata a Magistratura de Tribunales Colegiados de Circuito por San Luis Potosí, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho y actualmente cursa el Doctorado, complementada con especialidades y diplomados en áreas como Justicia Electoral, Derecho Procesal y Constitucional.
+
+Su motivación para el cargo es impartir justicia con equidad e imparcialidad, buscando sentencias claras y precisas. Sus propuestas se centran en garantizar la protección y reparación a las personas, eliminar barreras de acceso a la justicia por motivos socioeconómicos o de vulnerabilidad, promover la transparencia y simplificación de procedimientos, y fomentar la educación en derechos humanos y la cultura de la legalidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61555723882270
+- https://www.instagram.com/sanjuanajaramillojante/
+- https://www.tiktok.com/@sanyjante?_r=1&_d=e184c59jimjjml&sec_uid=MS4wLjABAAAAzZ0wrjudimxv318-QhiehrOO-V_yCxCoRvF5gnrXyGwU9340bb7CdacWLoqaCLAa&share_author_id=6845772549680563206&sharer_language=es&sou
+
+
+## Cursos
+
+- ESPECIALIDAD EN JUSTICIA ELECTORAL en el Centro de Capacitación de la Escuela Judicial, Diploma,DIPLOMADO EN DERECHO PROCESAL ELECTORAL, en la Escuela Judicial Electoral del Poder Judicial de la Federación
+- ,DIPLOMADO EN DERECHO CONSTITUCIONAL, en la Casa de la Cultura Jurídica San Luis Potosí, de la Suprema Corte de Justicia,DIPLOMADO EN ESTUDIOS JURÍDICOS, en la Casa de la Cultura Jurídica San Luis Potosí, de la Suprema Corte de Justicia,ESPECIALIDAD EN DERECHO PRIVADO en la Universidad Autónoma de San Luis Potosí
+- Diploma y cédula
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53735/10
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho, en Derecho Electoral, Especialista en Derecho Privado y en Justica, actualmente estudio el Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con equidad e imparcialidad y emitir sentencias claras, precisas que ayuden a la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Administrar la justicia de manera justa y equitativa; aplicar las normas de acuerdo al contexto y realidad social, en un sentido de la protección más alta de los Derechos Humanos de la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Aplicar de manera estricta las leyes que respeten y protejan de manera amplia los derechos humanos de los que acuden a solicitar justicia y garantizar los derechos humanos de los grupos vulnerables, cumplir los principios de imparcialidad, igualdad y proporcionalidad.
+
+
+## Propuestas
+
+- Permitir que las personas obtengan protección y reparación. Eliminar las barreras que enfrentan las personas por motivos económicos, de género, etnia o discapacidad.
+- Transparencia en la toma de decisiones, acceso a la información y mecanismos de rendición de cuentas; simplificar los procedimientos y reducir la burocracia para agilizar el desarrollo de los juicios de amparo. Evitar que las personas sufran abusos de las autoridades.
+- Fomentar la educación sobre derechos humanos, impulsar la cultura de legalidad, tratar a las personas de manera justa e igualitaria y contribuir a la erradicación de violencia.
+

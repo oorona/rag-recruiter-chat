@@ -1,0 +1,80 @@
+Nombre Candidato: RAYMUNDO ESPINOZA HERNANDEZ
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: raymundo.espinoza@derecho.unam.mx
+Numero de lista en boleta: 42
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Acceso a la Justicia, DESC, Derecho Constitucional, Derecho Digital, Derecho Informático, Derecho de Amparo, Derechos Humanos, Derechos Socioeconómicos, Juicio de Amparo, Maestro., Pensamiento Jurídico, Politólogo, Suprema Corte, UNAM
+Tags Propósito: Constitucionalismo social, Cultura jurídica., DESCA, Defensoría pública, Democratización, Derechos colectivos, Enfoque crítico, Estado social de Derecho, Formación judicial, Igualdad social, Impacto ambiental, Impacto humano, Interés público, Justicia accesible, Justicia social, Reforma judicial, Soberanía nacional, Suprema Corte, Transparencia
+
+
+## Descripción del Candidato 
+
+Raymundo Espinoza Hernández es candidato al Poder Legislativo Federal, postulándose para Ministra/o de la Suprema Corte de Justicia de la Nación (SCJN) con el número 42 en la boleta. Es abogado, politólogo, maestro en Derecho Constitucional y especialista en Derecho de Amparo, con trayectoria académica como profesor de la UNAM.
+
+Su motivación para buscar el cargo se centra en democratizar el Poder Judicial y transformar la cultura jurídica, promoviendo la justicia social. Propone una SCJN que emita resoluciones con sentido social, más allá del legalismo, y un Poder Judicial accesible, transparente y que responda al interés público. También plantea la revisión de los planes de estudio de las facultades de Derecho para fomentar un enfoque crítico y social del Derecho.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/RaymundoEspinozaH
+- https://x.com/Raymundo_EH
+- https://www.instagram.com/r.espinoza.hrndz/
+- https://www.youtube.com/@RaymundoEspinozaHernC3A1ndez
+- https://www.tiktok.com/@raymundo.espinoza.hrndz
+
+
+## Cursos
+
+- Abogado Digital Certificado por la Academia Mexicana de Derecho Informático, A
+- C
+- ,,Diplomado Pensamiento jurídico mexicano, crítica y teoría contemporánea del Derecho, CNDH,Diplomado Acceso a la Justicia en materia de Derechos Humanos, Suprema Corte de Justicia de la Nación
+- ,Diplomado Juicio de Amparo, Suprema Corte de Justicia de la Nación
+- ,Curso Intensivo DESC: América Latina en Contexto Global, Universidad de los Andes y la School Socioeconomics Rights
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/50/6
+
+
+## Trayectoria Academica
+
+- Abogado y politólogo, maestro en Derecho constitucional y especialista en Derecho de amparo
+- Profesor de la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a democratizar el PJ y transformar la cultura jurídica neoliberal en favor de la justicia social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La Suprema Corte debe emitir resoluciones con sentido social y no meramente legal, conforme al Estado social de Derecho que establece nuestra Constitución. Es esencial humanizar la impartición de justicia. La Suprema Corte, como tribunal constitucional, protege el Estado de Derecho, pero también debe promover la igualdad social, ya que el nuestro es un Estado social de Derecho donde la justicia legal sólo tiene sentido si es al mismo tiempo justicia social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe trascender la aplicación mecánica del Derecho para asumir un enfoque social. Se trata de impulsar un nuevo modelo de impartición de justicia para que la SCJN evolucione y se convierta en una auténtica Corte de Justicia Social. La justicia es precisamente un servicio y quizás el principal servicio público que presten las instituciones del Estado. Se deben reivindicar criterios que eviten fallos unilaterales, ajenos a la Constitución y la soberanía nacional.
+
+
+## Propuestas
+
+- La SCJN debe emitir resoluciones con sentido social y no sólo jurídico, conforme al modelo de Estado social de Derecho que establece la Constitución. La impartición de justicia no puede reducirse a la aplicación de la ley, sino que debe considerar el impacto humano y ambiental de sus decisiones. La justicia legal sólo tiene sentido si es también justicia social. Por ello, es necesario impulsar resoluciones que observen los más altos estándares en derechos colectivos y de protección de los DESCA.
+- El Poder Judicial debe ser accesible y responder al interés público. Para ello, es indispensable fortalecer la defensoría pública, impedir que la impartición de justicia ceda ante intereses políticos y corporativos ilegítimos y reformar su funcionamiento con mayor transparencia. En ese sentido, se deben hacer públicas las audiencias y reuniones del personal judicial con las partes, reducir los plazos de presentación de informes y promover visitas de reconocimiento en casos que lo requieran.
+- Es necesario revisar los planes y programas de estudio en las facultades de Derecho y en los espacios de formación judicial, promoviendo un enfoque crítico y social del Derecho. Se deben transformar las metodologías de enseñanza e investigación, así como erradicar la concepción instrumental del Derecho que prevalece en la práctica jurídica. Esto permitirá formar operadores judiciales comprometidos con la democratización de las instituciones y con el constitucionalismo social mexicano.
+

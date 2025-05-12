@@ -1,0 +1,80 @@
+Nombre Candidato: FRANCISCO RUBIO YAÑEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7775983451
+Correo Electronico: franciscorubio95@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho de Daños, Elaboración de Tesis, Formación Judicial, Juicio Oral, Licenciatura en Derecho, Secretaría de Juzgado, Sistema Penal Acusatorio, Tribunal de Circuito, UNAM, Universidad Tepantlato.
+Tags Propósito: acceso a la justicia, buen trato, capacitación, contexto social, eficiencia judicial, estado de derecho, evaluación continua, imparcialidad, independencia judicial, justicia, justicia cercana., justicia social, rendición de cuentas, simplificación, transparencia, vocación de servicio, ética
+
+
+## Descripción del Candidato 
+
+Francisco Rubio Yáñez es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación en Morelos. Cuenta con una trayectoria académica que incluye la Licenciatura en Derecho por la Universidad Nacional Autónoma de México y una Maestría en Juicio Orales por la Universidad Tepantlatlo. Su formación continua se evidencia a través de diversos cursos y especializaciones en áreas como la secretaría de juzgado, el sistema penal acusatorio, género e introducción al derecho de daños, todos impartidos por el Instituto de la Judicatura Federal y la Escuela Federal de Formación Judicial.
+
+Su motivación para buscar el cargo se basa en una vocación de servicio y un compromiso con la justicia y el pueblo de México. Su visión se centra en recuperar la confianza ciudadana en las instituciones judiciales a través de la transparencia y la rendición de cuentas, buscando una impartición de justicia accesible, cercana a la gente y sensible al contexto social. Sus propuestas incluyen la vigilancia y evaluación continua de la actividad jurisdiccional, la simplificación de los procedimientos y la capacitación continua del personal judicial, poniendo especial énfasis en la ética y el buen trato a los justiciables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574147821074
+- https://x.com/PacoRubioYa?t=x6NnZRu4CtyjGzBg-2bQag&s=09
+- https://www.instagram.com/francisco_rubio_ya?igsh=MXBpMDFoOGV4NWZ4Yg==
+- https://www.tiktok.com/@franciscorubioya?_t=ZM-8v4WnV2TBws&_r=1
+
+
+## Cursos
+
+- ESPECIALIDAD EN SECRETARÍA DE JUZGADO DE DISTRITO Y TRIBUNAL DE CIRCUITO, INSTITUTO DE LA JUDICATURA FEDERAL
+- ,DIPLOMADO EN SISTEMA PENAL ACUSATORIO; ESCUELA FEDERAL DE FORMACIÓN JUDICIAL
+- ,CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD, ESCUELA FEDERAL DE FORMACIÓN JUDICIAL
+- ,CURSO INTRODUCCIÓN AL DERECHO DE DAÑOS
+- ELEMENTOS ESTRUCTURALES Y FUNCIONAMIENTO, ESCUELA FEDERAL DE FORMACIÓN JUDICIAL
+- ,CURSO PARA LA ELABORACIÓN DE TESIS, ESCUELA FEDERAL DE FORMACIÓN JUDICIAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55381/10
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO, UNIVERSIDAD NACIONAL AUTÓNOMA DE MÉXICO
+- MAESTRO EN JUICIO ORALES, UNIVERSIDAD TEPANTLATO
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de servicio (resolver conflictos) y un profundo compromiso con la justicia y el pueblo de México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la columna vertebral del Estado de derecho. Nuestra visión es lograr que la ciudadanía recupere la confianza en las instituciones judiciales, esto a través de mecanismos de rendición de cuentas y transparencia en el desarrollo de la función judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia para todos: La justicia debe ser accesible y aplicable a todos los miembros de la sociedad, sin distinciones. Justicia cercana a la gente: El impartidor de justicia electo a través del voto popular, debe ser una persona que, sin dejar a un lado su independencia e imparcialidad para juzgar, también tenga presente el contexto social, una persona que sea sensible al principio de justicia social, y que ponga en primer lugar los intereses del pueblo.
+
+
+## Propuestas
+
+- Vigilancia y evaluación continuas. La actividad jurisdiccional debe ser evaluada constantemente para asegurar la independencia e imparcialidad de las personas juzgadoras.
+- Simplificación. Las personas juzgadoras deben evitar desarrollar procedimientos lentos; por el contrario, es necesario que los justiciables reciban justicia de forma eficiente y pronta. El lenguaje que se utilice para comunicarse, en las sentencias, debe ser sencillo y las resoluciones breves.
+- Capacitación continua. Es indispensable que todo el personal que integre un órgano jurisdiccional tenga cursos de actualización sobre la función que desempeñan. Creo que son de capital importancia cursos constantes de ética y buen trato a los justiciables.
+

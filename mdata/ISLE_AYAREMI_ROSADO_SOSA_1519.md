@@ -1,0 +1,76 @@
+Nombre Candidato: ISLE AYAREMI ROSADO SOSA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: 9987670237
+Correo Electronico: islerosado88@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario Judicial, Ciencias Penales, Colegio de Bachilleres, Derecho Electoral, Judicatura Federal., Licenciatura en Derecho, Poder Judicial, Redacción Actuarial, Universidad Maya
+Tags Propósito: Acceso a la justicia, Asesoría jurídica, Brigadas jurídicas, Comunidad Maya, Confianza, Defensa de oficio, Defensa deficiente, Derechos, Dignidad, Esperanza, Impunidad, Juicio de amparo, Justicia, Pláticas jurídicas., Población vulnerable, Poder Judicial Federal, Renovación judicial, Respeto a los derechos, Suplencia, Verdad
+
+
+## Descripción del Candidato 
+
+ISLE AYAREMI ROSADO SOSA es candidata a Magistratura de Tribunales Colegiados de Circuito en Quintana Roo, postulada por el Poder Ejecutivo Federal. Es licenciada en Derecho, con cédula profesional, y cuenta con formación adicional en áreas como derecho electoral, ciencias penales y actuación judicial.
+
+Su motivación para buscar el cargo radica en la renovación del Poder Judicial y la garantía del acceso a la justicia para todos. Su visión se centra en un Poder Judicial más cercano a la ciudadanía, con énfasis en la defensa de los derechos, la erradicación de la impunidad y la atención a grupos vulnerables como la comunidad Maya.  Sus propuestas incluyen el aprovechamiento del conocimiento del personal jurídico, la ampliación de los servicios de defensa de oficio y el uso de la suplencia de la queja para garantizar la correcta administración de justicia, especialmente en casos de defensa deficiente.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574473254396
+- https://www.instagram.com/islerosado?igsh=MTFjb3pkd296bm85MQ==
+- https://youtube.com/@islerosado?si=ZosEVQcvpJcWDs3q
+- https://www.tiktok.com/@islerosado1?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la,Curso de derecho electoral expuesto por magistrados y miembros del Tribunal Electoral del PJF,Diplomado en ciencias penales, impartido en la Universidad Maya de las Américas,Acreditación del examen de aptitud ordinario a la categoría de actuario judicial del Instituto de la Judicatura Federal,Taller de redacción de razones y constancias actuariales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55060/10
+
+
+## Trayectoria Academica
+
+- Preparatoria: Colegio de Bachilleres uno, Cancun
+- Universidad: Universidad Maya de las Américas
+- Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para renovar y contribuir a un cambio significativo, todos merecen acceso a la justicia y la protección de sus derechos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es la renovación del Poder Judicial Federal, buscando un Poder Judicial cercano a la gente. Quiero abrir las puertas y espacios para que todos conozcan sus derechos y puedan encontrar un lugar donde se les ofrezca una solución justa. Aspiro a aprovechar el conocimiento jurídico de los elementos que lo conforman. Deseo ser un símbolo de confianza y esperanza para quienes han sido afectados por la injusticia, asegurando que sus casos se resuelvan acorde a la realidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como magistrada federal, mi compromiso será trabajar incansablemente para que la justicia no sea un privilegio, sino un derecho accesible para todos. Trabajaré para lograr que ningún delincuente salga libre y para que no existan casos de impunidad. Quiero ser parte de un sistema judicial que realmente se esfuerce por erradicar las injusticias y que brinde un verdadero apoyo a la ciudadanía, para que todos puedan vivir con dignidad y en un entorno de respeto a sus derechos.
+
+
+## Propuestas
+
+- Aprovechar el conocimiento y la especialización del personal jurídico del Poder Judicial Federal. Acercar el derecho a la gente. Impulsar la realización de pláticas jurídicas en las zonas más lejanas y vulnerables del estado, a fin de que conozcan sus derechos y la manera en que pueden hacerlos valer. También quiero destacar cómo el juicio de amparo sería útil para la población de la zona Maya y las más vulnerables. Trabajar en conjunto con el poder legislativo, apoyando en el aspecto jurídico.
+- Promover que existan defensores de oficio en todas las materias, generar una mayor difusión de su existencia y difundir los medios de contacto. Impulsar y programar brigadas para el asesoramiento de la gente. Además, impulsar, mediante elementos jurídicos, donaciones o ayuda con descuentos en asesoría jurídica a través de despachos o abogados independientes para quienes lo necesiten.
+- Implementar la total suplencia de la queja deficiente, es decir, que el juzgador federal pueda allegarse de cualquier elemento a fin de que sectores como la comunidad maya y la gente vulnerable realmente puedan obtener justicia, a través del conocimiento de la verdad. Esto tiene como objetivo promover la eliminación de la impunidad derivada de una defensa deficiente.
+

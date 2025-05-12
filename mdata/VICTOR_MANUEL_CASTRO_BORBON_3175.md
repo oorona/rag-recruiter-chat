@@ -1,0 +1,71 @@
+Nombre Candidato: VICTOR MANUEL CASTRO BORBON
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: victormanuelcastroborbon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Administración Pública, Criminología, Derecho, Derecho Penal, Diplomados, Especialidad., Licenciatura, Posgrado, Relaciones Internacionales, Universidad de Sonora
+Tags Propósito: Acceso a la Justicia, Ciudadanía, Conciencia Social, Eficacia, Eficiencia, Impartición de Justicia, Jueces, Preparación Jurídica., Sistemas de Justicia, Transparencia
+
+
+## Descripción del Candidato 
+
+VICTOR MANUEL CASTRO BORBON es candidato a Juez/a de Distrito en Sonora, postulándose al Poder Legislativo Federal. Cuenta con título de Licenciado en Derecho y una Especialidad en Derecho Penal y Crimenología por la Universidad de Sonora, complementada con más de 30 diplomados y cursos de posgrado en Derecho, Relaciones Internacionales y Administración Pública.
+
+Su motivación para buscar el cargo se centra en la estructuración de juzgados que garanticen el acceso a la justicia. Sus propuestas incluyen el desarrollo de sistemas de acceso a la justicia con evaluación de servicios, la búsqueda de eficacia y eficiencia en los procesos legales, y la formación de jueces con preparación jurídica y conciencia social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Mas de 30 Diplomados y Cursos de Posgardo en Derecho, Relaciones Internacionales y Administración Pública
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52591/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Especialidad de Derecho Penal y Criminología por la Universidad de Sonora
+
+
+## Motivo para buscar el Cargo Publico
+
+Toda mi vida profesional me he preparado para estructurar Juzgados que atiendan el Acceso a la Justicia para la gente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Impartición de la Justicia basada en Acceso a la Justicia, Transparencia, Eficacia y Eficiencia para quienes acuden a ella
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartición de la Justicia basada en Acceso a la Justicia, Transparencia, Eficacia y Eficiencia para quienes acuden a ella
+
+
+## Propuestas
+
+- Sistemas de Acceso a la Justicia que incluyan y evalúen el servicio ofrecido a quienes acuden a ella
+- Eficacia y eficiencia apegada a derecho y a los tiempos que requiere la ciudadania
+- Jueces altamente preparados y experimentados jurídicamente pero con una base firme de conciencia social pata quienes requieren de justicia
+

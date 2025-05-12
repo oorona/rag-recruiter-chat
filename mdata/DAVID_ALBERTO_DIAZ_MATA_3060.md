@@ -1,0 +1,80 @@
+Nombre Candidato: DAVID ALBERTO DIAZ MATA
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: daviddiazcandidatojuez213@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado., Derecho Ambiental, Desarrollo Urbano, Energía, FLACSO, Gestión Ambiental, Mercados de Carbono, Normatividad, ONGs, Política Energética, Sector Público, UNAM
+Tags Propósito: Acceso a la Justicia, Cambio Climático, Crisis Ambiental, Derechos Humanos, Equidad, Escrutinio Ciudadano, Estado de Derecho, Función Jurisdiccional, Justicia Ambiental, Juzgado Especializado, México., Normativa Ambiental, Observatorio Ciudadano, Quintana Roo, Sustentabilidad, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+David Alberto Diaz Mata es candidato a Juez/a de Distrito en Quintana Roo, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría y cédula profesional, además de una especialización en Derecho Ambiental y diversos posgrados y diplomados en temas de política y gestión energética, ambiental, y estudios del suelo urbano. Su trayectoria profesional se centra en el ámbito legal ambiental, con experiencia en el sector público y organizaciones no gubernamentales.
+
+El candidato motiva su postulación por el deseo de garantizar el acceso a la justicia en materia ambiental. Su visión de la función jurisdiccional la concibe como una herramienta para el avance de los derechos humanos y la construcción de una sociedad democrática y sustentable. Sus principales propuestas incluyen la creación de un Juzgado de Distrito especializado en materia ambiental y cambio climático en Quintana Roo, la promoción de un Observatorio Ciudadano de la Función Jurisdiccional para garantizar la transparencia, y la aplicación de criterios judiciales que faciliten la respuesta a la crisis ambiental y climática.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://candidatojuez213.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574495023513
+- https://x.com/davidjuez213
+- https://www.instagram.com/daviddiazmata_213/
+- https://www.youtube.com/@David_CandidatoJuez_213
+- https://www.tiktok.com/@daviddiazmata_213
+
+
+## Cursos
+
+- Especialidad en Derecho Ambiental
+- Posgrado de la Facultad de Derecho de la UNAM,Maestría en Política y Gestión Energética y Medioambiental
+- Facultad Latinoamericana de Ciencias Sociales, FLACSO México,Diplomado en estudios del Suelo Urbano
+- (Análisis de la normatividad en materia de Desarrollo Urbano) IIS UNAM
+- ,Diplomado en materia de energía, Instituto de Investigaciones Jurídicas, UNAM
+- ,Diplomado en mercados de Carbono, Asociación Nacional de la Industria Química y Plataforma Mexicana de Carbono
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53205/11
+
+
+## Trayectoria Academica
+
+- Abogado especialista en Derecho Ambiental con experiencia en el sector público y organizaciones no gubernamentales
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar el cargo de juez de distrito para garantizar a las personas el acceso a la justicia en materia ambiental.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Veo a la función jurisdiccional como una herramienta clave del pueblo de México para garantizar el avance progresivo en el ejercicio y disfrute de los derechos humanos. El ejercicio libre, independiente, responsable y honesta de esta función nos debe permitir transitar hacia una sociedad más democrática, inclusiva, igualitaria, pacífica y sustentable, que aporte certeza respecto del alcance de los derechos y obligaciones de cada persona, de las empresas y las instituciones del Estado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar el acceso a la justicia para todas las personas, especialmente para las personas o colectivos en situación de vulnerabilidad, con especial énfasis en la justicia ambiental y los derechos humanos que están en juego en la crisis climática y ambiental que atravesamos, mediante un ejercicio transparente y proactivo de la función jurisdiccional, sometiendo las labores de impartición de justicia al escrutinio ciudadano, divulgando los avances y retrocesos en la impartición de justicia.
+
+
+## Propuestas
+
+- Promover que al menos un Juzgado de Distrito de Competencia Mixta en el Estado de Quintana Roo, asuma el rol de Juzgado de Distrito Especializado en Materia Ambiental y Cambio Climático para que conozca de todas las controversias que se susciten por la aplicación de la normatividad en materia ambiental, de cambio climático, desarrollo urbano y ordenamiento territorial, para posteriormente, promover su existencia en cada Entidad Federativa de la República Mexicana.
+- Promover la creación de un Observatorio Ciudadano de la Función Jurisdiccional que no solamente permita garantizar la transparencia en la impartición de justicia, sino que de certeza respecto de que la solución de las controversias se ajusta al Estado de Derecho vigente. Este organismo debe permitir la instauración de un diálogo constante entre los que imparten justicia con aquellos sectores de la sociedad que sufren un menoscabo en sus derechos con el fin de restituirlos y garantizarlos.
+- Aplicar, conformar y difundir los criterios y precedentes judiciales necesarios que nos faciliten, como individuos y colectividades, afrontar y transitar de manera pacífica, inclusiva, igualitaria y sustentable, el cúmulo de retos que implica la crisis ambiental y climática actual, con el fin primordial de dotar de herramientas legales suficientes para construir un Quintana Roo y un México con salud, justicia y equidad.
+

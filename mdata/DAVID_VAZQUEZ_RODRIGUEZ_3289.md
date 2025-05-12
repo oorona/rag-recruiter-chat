@@ -1,0 +1,74 @@
+Nombre Candidato: DAVID VAZQUEZ RODRIGUEZ
+Cargo: Juezas/es de Distrito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: 2411389050
+Correo Electronico: deyvi_v@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Capacitación, Derecho Fiscal, Derechos Humanos, Desarrollo Profesional., Diplomado, Juicio de Amparo, Justicia, Maestría, NNA, Protección de Derechos
+Tags Propósito: Atención Inmediata, Audiencias, Bienestar, Confianza, Contexto Social, Derechos Humanos, Dilación, Educación Continua, Empatía, Equidad, Especialización, Género, Igualdad, Imparcialidad, Impartición de Justicia, Infancia, Integral., Justicia, Justicia Cercana, Juzgados, Procesos Judiciales, Protección, Servidores Públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+DAVID VAZQUEZ RODRIGUEZ es candidato a Jueza/es de Distrito en Tlaxcala, postulado por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y cédula profesional, complementada con una Maestría en Derecho Fiscal y diversos diplomados y cursos en áreas como juicio de amparo, derechos humanos, crianza positiva y justicia para niños y adolescentes. 
+
+Su motivación para el cargo público es contribuir a mejorar el sistema de justicia, especialmente para la población vulnerable. Propone una justicia cercana, con audiencias sin dilación y atención empática a los justiciables; atención inmediata e igualitaria a los casos; y especialización y educación continua para los servidores públicos del sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18VYizC9LC/
+- https://www.instagram.com/davidrodriguez8924?igsh=NndmdmtrMmxrMHVv
+- https://www.tiktok.com/@davidvazquezrdgz?_t=ZM-8uxKCFtPCXF&_r=1
+
+
+## Cursos
+
+- Maestría en Derecho Fiscal Concluida 2019 2021 CIJUREP UATX,Diplomado en Juicio de Amparo   Centro de Estudios Jurídicos Carbonell 2019,Curso Taller de Impartición de Justicia de Niñas, Niños y Adolescentes   Instituto de Justicia Procesal Penal 2018,Diplomado en Crianza Positiva   World Visión México A
+- C con Tecnológico de Monterrey 2024   2025,Curso de Introducción a los Derechos Humanos   Comisión Estatal de Derechos Humanos de Tlaxcala 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55392/11
+
+
+## Trayectoria Academica
+
+- Soy un abogado comprometido con la justicia y honestidad, especialista en protección y restitución de derechos de NNA
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir para que nuestro Sistema de Justicia sea mejor para nuestra población y grupos de atención prioritaria
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es vital para que la impartición de justicia sea una realidad, sin embargo, el resolver conflictos no es fácil, ya que la complejidad de cada asunto amerita especialización en diversos rubros, la preparación académica y profesional son esenciales para ello; las Juezas y Jueces tienen una tarea muy importante al deliberar cada problema, se requieren valores, conocimientos, empatía y utilizar diversas perspectivas como de derechos humanos, género, infancia, etc.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia es valor preponderante en nuestra sociedad, hoy las personas quieren que sus problemas sean resueltos en tiempo y forma, sin dilaciones, con perspectiva de derechos humanos; dar a cada quien lo que le corresponde, juzgar con equidad e imparcialidad es la tarea principal de las Juezas y Jueces. Por último, es necesario que las personas juzgadoras sean cercanas a la población para comprender su contexto social y se pueda generar bienestar en sus familias, anteponiendo la igualdad.
+
+
+## Propuestas
+
+- Justicia cercana: es necesario generar confianza en la población, razón por la cual se requiere que las audiencias que soliciten las partes dentro de un procedimiento se otorguen sin ninguna dilación, sean otorgadas con amabilidad, transparencia, respeto a derechos humanos. Aunado a lo anterior, las y los Jueces deberán tener empatía con cada una de las personas, el ser servidor público no es una limitante para escuchar su sentir y peticiones.
+- Atención inmediata e igualitaria: Las Juezas y Jueces tienen la obligación de resolver de forma prioritaria cada uno de los asuntos que sean puestos a su vista, sin contratiempos, sin pretextos, sino todo lo contrario garantizando soluciones cuando así el problema lo permita, lo anterior juzgando con objetividad e igualdad. Para concretar esta acción es necesario crear mecanismos de facilitación internos para mejorar los procesos de cada espacio laboral.
+- Especialización y educación continua: Las y los servidores públicos que imparten justicia o bien coadyuvan en ella, deberán especializarse en diversas ramas en concreto, lo anterior para poder atender la demanda que exigen los Juzgados de Distrito en materia mixta; debemos garantizar que la educación sea continua para que el valor de la justicia sea reconfortado en todas sus vertientes y sobre todo ofrezca atención integral a a los justiciables.
+

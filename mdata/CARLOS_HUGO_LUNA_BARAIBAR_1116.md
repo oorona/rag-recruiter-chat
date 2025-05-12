@@ -1,0 +1,71 @@
+Nombre Candidato: CARLOS HUGO LUNA BARAIBAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó texto.
+Tags Propósito: ausencia, falta, inexistencia, inexistente, nulo, silencio, vacío
+
+
+## Descripción del Candidato 
+
+Carlos Hugo Luna Baraibar es candidato a Magistrado de Tribunales Colegiados de Circuito en México, postulándose en la función jurisdiccional. Se registra como hombre, sin información proporcionada sobre su formación académica, trayectoria profesional, motivos para buscar el cargo, visión sobre la función jurisdiccional o propuestas concretas.
+
+El registro del candidato se encuentra en estatus "Sin captura", lo que indica que no se ha completado la información requerida.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

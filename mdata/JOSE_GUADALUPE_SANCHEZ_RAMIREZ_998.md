@@ -1,0 +1,71 @@
+Nombre Candidato: JOSE GUADALUPE SANCHEZ RAMIREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó texto.
+Tags Propósito: ausencia, inexistente, ninguno, nulo, vacío
+
+
+## Descripción del Candidato 
+
+José Guadalupe Sanchez Ramirez es candidato a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulado por el Poder Ejecutivo Federal. Su perfil en este momento cuenta con información limitada, no proporcionando detalles sobre su formación académica, trayectoria profesional, motivaciones para el cargo ni propuestas específicas. 
+
+Actualmente, su estatus en el sistema es de "Sin captura", lo que indica una falta de información registrada en la plataforma. No se cuenta con datos de contacto como teléfono, correo electrónico o presencia en redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

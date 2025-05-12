@@ -1,0 +1,76 @@
+Nombre Candidato: HECTOR JAVIER RAMIREZ AVENDAÑO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5527716459
+Correo Electronico: hejaraav@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Diplomado., Formación Académica, Función Jurisdiccional, Juicios Orales, Justicia Penal, Proceso Penal, Servidor Público, Sistema Penal Acusatorio, Taller
+Tags Propósito: Accesibilidad, Constitución, Derechos Humanos, Eficiencia Procesal, Honradez, Imparcialidad, Integridad, Justicia, Lealtad, Ley, Objetividad, Proceso Judicial., Rendición de Cuentas, Servir, Sociedad, Transparencia, Valores
+
+
+## Descripción del Candidato 
+
+Héctor Javier Ramírez Avendaño es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría concluida y 23 años de formación académica y experiencia laboral, complementados por diversos diplomados en áreas relacionadas con la función jurisdiccional y el nuevo sistema de justicia penal.
+
+Su motivación para buscar el cargo es servir a la sociedad con valores y conocimiento. Su visión se centra en una función jurisdiccional honesta y transparente, y en una impartición de justicia pronta, expedita, objetiva y respetuosa de los derechos humanos. Sus propuestas principales son la honradez, la imparcialidad y la eficiencia procesal, con énfasis en el apego a la legalidad y la transparencia en la toma de decisiones.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574504820679
+- https://x.com/HJRamirezAV
+- https://www.instagram.com/hejaraav
+- https://www.tiktok.com/@tdahectorboss?_t=zm-8usyeckmmuo&_r=1
+
+
+## Cursos
+
+- Diplomado en Introducción a la Función Jurisdiccional, Modalidad Virtual
+- ,Diplomado Formación en Torno del Nuevo Sistema de Justicia Penal,Diplomado en el Sistema Penal Acusatorio,Diplomado Los retos del Proceso Penal Acusatorio en la era de la globalización en México,Diplomado Teórico Práctico en Juicios Orales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54437/11
+
+
+## Trayectoria Academica
+
+- 23 años de formación académica y 23 más de logros laborales
+- Actividades, talleres, Servidor Público por convicción
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la sociedad con valores, lealtad y dando lo mejor de mi persona y mis conocimientos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actuando con honradez y transparencia en todos los procesos, actos jurídicos y administrativos que impliquen el cargo, y ello se verá reflejado en la rendición de cuentas y acceso a la impartición de justicia que todo ciudadano tiene derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la impartición de la justicia, es priorizando que esta sea pronta, expedita y objetiva; además de que, siempre se respeten los derechos humanos de todos los integrantes de la sociedad, ya que nadie puede ser excluido por su religión, ideología, género y condiciones de marginación.
+
+
+## Propuestas
+
+- Honradez: Tener claro en todo momento como Juez de Distrito, que el haber accedido a dicho cargó, jamás deberá ser para obtener algún provecho o ventaja personal o a favor de terceros.
+- Imparcialidad: No conceder preferencias o privilegios indebidos a organización o persona alguna.
+- Eficiencia procesal: Que todos los asuntos se resuelvan dentro de los términos establecidos en la ley; fundar y motivar todos los actos jurisdiccionales con apego a la Constitución, tratados internacionales o alguna otra disposición; así como transparencia en las decisiones adoptadas sin restringir información, a menos de que las circunstancias del caso, una norma o el interés público claramente así lo exijan.
+

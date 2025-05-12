@@ -1,0 +1,72 @@
+Nombre Candidato: JAVIER SOTO REYES
+Cargo: Juezas/es de Distrito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: 4494662011
+Correo Electronico: javierpoderjudicial@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Aguascalientes, Cancún, Derecho, Derecho Electoral, Diplomado, Dirección de Empresas, Economía, Habilidades Laborales, Herramientas de Búsqueda Jurídica, IpadE, Licenciatura, Maestría, Monterrey, Política, Políticas Públicas, Resiliencia, Sociedad, Universidad Anahuac, Workshop.
+Tags Propósito: acceso a la justicia., capacitación, ciudadanía, conocimiento local, derechos humanos, imparcialidad, integridad, justicia, justicia social, poder judicial, resolución de problemas, trabajo en equipo
+
+
+## Descripción del Candidato 
+
+JAVIER SOTO REYES es candidato a Jueces/es de Distrito en Aguascalientes, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho con especialidad en Sociedad, Economía y Política, y cuenta con cédula profesional. Su formación complementaria incluye diplomados en áreas como políticas públicas, dirección de empresas y derecho electoral, así como cursos en herramientas de investigación jurídica y habilidades laborales.
+
+Su motivación para buscar el cargo es acercar la justicia a la ciudadanía, proponiendo un Poder Judicial más cercano y resolutivo en los problemas legales locales. Sus propuestas centrales incluyen una mayor interacción con la comunidad ("Juez en tu colonia"), el fomento de la capacitación y la colaboración con el gremio legal, y un enfoque en la imparcialidad, integridad e inmediatez en la impartición de justicia, con un profundo conocimiento de la realidad de Aguascalientes.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JavSoto27
+- https://www.instagram.com/javi_sotor27/
+
+
+## Cursos
+
+- Workshop en Derecho Electoral Marco Jurídico y Defensa del Voto en la Universidad Anahuac Cancún,Diplomado en Introducción a la Dirección de Empresas por el IPADE en Monterrey,Diplomado en Políticas Públicas con perspectiva de familia por la Universidad Anahuac,Curso Uso de Herramientas de Búsqueda de Información Jurídica por la Casa de la Cultura Juridica Aguascalientes,Curso de Habilidades laborales enfocado en la resilicencia personal, social y laboral por el reacción en cadena
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55335/11
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en Derecho con Especialidad en Sociedad Economía y Política
+
+
+## Motivo para buscar el Cargo Publico
+
+México tiene sed de justicia cercana a la ciudadanía, no de escritorio. es hora de hacer las cosas de manera diferente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Por un poder judicial de la federación cercano a la ciudadanía y al gremio jurídico, donde el auxilio a las causas sociales y el apego al respeto a los derechos intrínsecos a la persona sean la norma y no la excepcion.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia con imparcialidad, integridad, inmediación, y con profundo conocimiento de Aguascalientes que permita emitir resoluciones con congruencia externa e interna, como el parámetro para hacer justicia social.
+
+
+## Propuestas
+
+- Cercanía con la ciudadanía. Basta de jueces que solo trabajen desde su escritorio.
+- Juez en tu colonia. Resolvamos uno a uno los problemas legales que te aquejan en tu entorno.
+- Capacitación y trabajo en equipo con el gremio legal, todos queremos hacer justicia, hagámoslo en equipo.
+

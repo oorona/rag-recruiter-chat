@@ -1,0 +1,79 @@
+Nombre Candidato: MARCO ANTONIO RUEDA VERGARA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5559308293
+Correo Electronico: marco.ruedave@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Autor de libros, Conferencista, Convencionalidad, Departamento Justicia USA, Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Doctorado, España, Excelencia Académica, INACIPE, INDEPAC, Maestría, Profesor Universitario, Promedio Alto., Sistemas Protección Derechos Humanos, Tratados Internacionales, Universidad Pompeu Fabra
+Tags Propósito: Acceso a la Justicia, Bienestar Común, Cercanía con la Sociedad, Combate a la Corrupción., Derechos Fundamentales, Desgaste Psicológico, Eficiencia, Estado de Derecho, Honestidad, Imparcialidad, Justicia, Justicia Humana, Pronta Resolución, Servidores Públicos, Simplificación de Trámites, Transparencia, Trato Digno
+
+
+## Descripción del Candidato 
+
+Marco Antonio Rueda Vergara es candidato a Magistraturas de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal en Ciudad de México. Cuenta con un alto nivel de escolaridad, incluyendo un Doctorado en Derecho y dos Maestrías, además de una trayectoria académica como profesor, conferencista y autor en materia penal. Su motivación para buscar el cargo público se basa en su interés por evitar las injusticias y promover la honestidad en el servicio público.
+
+Rueda Vergara concibe la función jurisdiccional como fundamental para garantizar los derechos fundamentales y la cercanía de la justicia con la sociedad. Sus propuestas centrales incluyen un acercamiento entre los servidores públicos del Poder Judicial y la sociedad, la sensibilización de los funcionarios en el trato hacia las partes, y la búsqueda de una impartición de justicia pronta y eficiente para evitar el desgaste y las posibles injusticias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@Juezmarcorueda
+- https://www.instagram.com/eljuezrueda
+- https://www.youtube.com/@eljuezrueda
+- https://www.tiktok.com/juezmarcorueda
+- https://www.linkedin.com/marcorueda
+
+
+## Cursos
+
+- Maestría en Derecho Penal por el INACIPE, promedio de 9
+- 37 y obtención de grado por excelencia académica,Maestría en Derecho Procesal Penal por el INDEPAC, promedio 9
+- 81 y obtención del grado por promedio,Doctorado en Derecho por el INDEPAC, promedio de 9
+- 80
+- ,Convencionalidad, Derechos Humanos y Tratados Internacionales, Universidad Pompeu Fabra Barcelona, España,Diplomado Sistemas Internacionales de Protección de Derechos Humanos, Departamento Justicia de Estados Unidos de América
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55036/10
+
+
+## Trayectoria Academica
+
+- Dos maestrías, un Doctorado, profesor en múltiples Universidades, conferencista y soy autor de libros en materia Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Desde niño tuve interés por evitar las injusticias, solo mediante funcionarios honestos la sociedad puede acceder a ello
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es el eslabón final que justifica la existencia de un Estado, las personas cedemos parte de nuestras libertades con la finalidad de que se nos garantice el respeto a derechos fundamentales; así, cuando se afecte alguno de ellos, la estructura judicial debe proteger y sobre todo garantizar a la sociedad que será escuchada no solo desde la sala de audiencia o con términos jurídicos complejos sino de forma personal y directa, sin ventajas y sin importar de quien se trate.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los estados modernos, justifican su existencia solamente mediante la búsqueda del bienestar común de los miembros de la sociedad, de nada sirve que existan disposiciones legales que establezcan cientos de derechos si no se garantiza que todos tengamos acceso a ellos, los servidores públicos y más aún los judiciales deben velar porque cualquier persona sin importar sus condiciones cuente con tribunales justos e imparciales que tengan cercanía con la sociedad y escuchen las razones de las partes.
+
+
+## Propuestas
+
+- En principio los servidores públicos especialmente los que conformen el Poder Judicial deben acercarse a la sociedad y de igual forma a las partes en los asuntos que intervienen, la justicia de papel y engorrosa debe cambiar por un sistema público y transparente en el que los interesados sean escuchados de forma directa por quien va a resolver su conflicto, las épocas en donde los funcionarios judiciales eran inalcanzables debe terminarse y convertirse en una justicia humana y social.
+- Los miembros del Poder Judicial desde el servidor público de menor jerarquía hasta los Ministros de la Corte deben ser sensibilizados en el trato hacia las personas que acuden ante ellos, las partes en conflicto ya deben por sí mismas cargar con las consecuencias de sus problemáticas como para todavía acudir a una oficina pública en el caso judicial y recibir malos tratos, incluso pedir favor de que se les atienda o peor aún, que se les pidan dádivas para simplemente hacer su trabajo
+- La impartición de justicia debe ser pronta, la labor de los funcionarios judiciales debe buscar siempre la solución de los conflictos lo más rápido posible, los juicios que duran mucho tiempo solo generan un desgaste psicológico, emocional e incluso económico en las partes, eso hace que muchas veces pierdan el interés y por ende se cometan injusticias violando derechos de manera flagrante, así los trámites a partir de ahora deben realizarse en le menor tiempo posible y no así buscando pretextos.
+

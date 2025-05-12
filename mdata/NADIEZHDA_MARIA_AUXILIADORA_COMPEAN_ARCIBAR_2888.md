@@ -1,0 +1,77 @@
+Nombre Candidato: NADIEZHDA MARIA AUXILIADORA COMPEAN ARCIBAR
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8110403034
+Correo Electronico: nadi2418@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: CEDDAL, Compromiso Profesional., Derecho, Especialización Jurídica, Juicio de Amparo, Nuevo León, Protección a la Niñez, Registro Civil, Sistema de Justicia Penal Acusatorio, Suprema Corte de Justicia, UANL
+Tags Propósito: Acceso a la justicia, Capacitación, Derechos humanos, Eficiencia, Equidad, Gestión de casos, Independencia judicial, Indicadores de desempeño, Jurisprudencia, Justicia laboral, Legalidad, Observatorio de Justicia Laboral, Perspectiva de género., Protección al trabajador, Reforma laboral, Rendición de cuentas, Resolución expedita, Sensibilidad social, Tecnologías, Transparencia
+
+
+## Descripción del Candidato 
+
+Nadiezhda Maria Auxiliadora Compean Arcibar es candidata a Juez/a de Distrito en Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con maestría concluida y una trayectoria académica sólida, con especialización en temas de justicia, particularmente en el ámbito laboral.
+
+Su motivación para el cargo público se centra en la protección de los derechos humanos y la resolución de controversias con independencia e imparcialidad. Sus propuestas principales incluyen la creación de un observatorio de Justicia Laboral para monitorear y mejorar el desempeño de los juzgados, la implementación de medidas para aumentar la eficiencia en la resolución de casos y el fortalecimiento de la capacitación continua en materia laboral para jueces y personal jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BTrZWMT6P/?mibextid=wwXlfr
+- https://www.instagram.com/lic.nadiezhdacompean?igsh=aGhsNWRIOG1n-czZ1&utm_source=qr
+- https://www.tiktok.com/@nadiezhdacompeana?t=ZM-8v18JrxsblX&_r=1
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo 2022 Casa de la Cultura Jurídica de la Suprema Corte de Justicia de la Nación,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la perspectiva Constitucional Marzo2011,Aprobación del examen como Oficial del Registro Civil para el Estado de Nuevo León Convocatoria Junio del 2022,Convención Latinoamericana de Derecho (CEDDAL) Facultad de Derecho y Criminología U A
+- N
+- L
+- 17 al 21 octubre 2005,Construir un Marco Jurídico de Protección a la Niñez¿ 14 de octubre de 2005 H
+- Congreso del Estado de Nuevo León
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52792/11
+
+
+## Trayectoria Academica
+
+- solida, especializada, integra, leal , enfocada en la justicia, dedicada, apasionada y comprometida con mis clientes
+
+
+## Motivo para buscar el Cargo Publico
+
+Protección de derechos humanos resolviendo con independencia, imparcialidad, compromiso con la justicia laboral y social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Basada en principios constitucionales, tutela y enfoque en los estándares de derechos fundamentales y tratados internacionales de los trabajadores y empleadores, el acceso a una justicia pronta y expedita, garantizando un juicio justo e imparcial, reiterando mi compromiso con la independencia judicial, implementación de nuevas tecnologías, gestión eficiente de los expedientes y resoluciones de controversias con perspectiva de derechos humanos, equidad impartiendo justicia con sensibilidad social
+
+
+## Vision sobre la Imparticion de Justicia
+
+Implica una responsabilidad trascendental en la tutela de derechos fundamentales del trabajo, sustentándose con enfoque constitucionalista y garantista, exige que su interpretación y aplicación se realice garantizando la independencia judicial aplicar la ley objetivamente, garantizando la confianza en el sistema de justicia laboral, con apego a la legalidad, con sensibilidad social, criterios claros, fundamentados, inclusivos con accesibilidad, trato digno, entendibles para los ciudadanos
+
+
+## Propuestas
+
+- Creación de un observatorio de Justicia Laboral, con el objetivo de monitorear el desempeño de los juzgados laborales, identificar áreas de mejora y generar propuestas, implementando un sistema de indicadores de desempeño para medir la duración de los procesos, tazas de conciliaciones y percepción de las partes sobre la impartición de justicia, generar mayor eficacia y rendición de cuentas en la impartición de justicia, fortaleciendo la confianza en el sistema judicial. Apoyándonos de tecnología
+- Eficiencia en la impartición de justicia, resoluciones claras y comprensibles para los trabajadores y empleadores, Reducción de tiempos, implementando un sistema de gestión de casos que permitan la resolución expedita de asuntos urgentes, evitando rezagos y dilaciones procesales, Implementación de mecanismos de gestión para evitar retrasos, uso eficiente de audiencias, capacitación de proyectistas para aplicar un razonamiento claro y estructurado y uso de tecnologías.
+- Fortalecimiento de la Capacitación en Materia Laboral, objetivo: Elevar la calidad de las resoluciones judiciales y la aplicación de criterios homogéneos en los juicios laborales. Propuesta: Diseñar un programa continuo de capacitación para jueces, secretarios y personal jurisdiccional en temas como reformas laborales, derechos humanos y perspectiva de género. Crear un foro de análisis jurisprudencial para unificar criterios y evitar resoluciones contradictorias en casos similares.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: CESAR HUMBERTO VALLES ISSA
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: cesar.valles.issa@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ambiente Laboral, Derecho Colectivo, Derecho del Trabajo, Juicio de Amparo, Licenciatura en Derecho, Maestría en Amparo, Perspectiva de Género, Seguridad Social, Universidad Autónoma de Chihuahua, Universidad de Durango.
+Tags Propósito: Justicia, acceso a la justicia, conflictos, derechos humanos, dignidad, eficacia, eficiencia, función judicial, justicia sensible, oralidad, población mexicana, presencia de jueces, procedimientos sencillos, realidad social, reparación del daño, respeto, sentencias justas., transparencia, verdad
+
+
+## Descripción del Candidato 
+
+CESAR HUMBERTO VALLES ISSA es candidato a Juez/a de Distrito en Puebla, postulando en la vía En Funciones. Cuenta con estudios de Maestría y Cédula Profesional, además de especializaciones en derecho laboral, juicio de amparo, perspectiva de género y derecho colectivo. Su trayectoria académica incluye la Licenciatura en Derecho por la Universidad Autónoma de Chihuahua y la Maestría en Amparo por la Universidad de Durango. 
+
+Su motivación para buscar el cargo es la creencia en la posibilidad de hacer justicia a través de la función judicial. Propone una función jurisdiccional cercana a la realidad del pueblo de México, enfocada en la sensibilidad, la simplificación de los procedimientos y la presencia activa de los jueces en las audiencias, buscando una impartición de justicia accesible, transparente y eficiente.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BqoGGHzcN/?mibextid=wwXIfr
+- https://x.com/TuJuezImparcial
+- https://www.instagram.com/tujuezimparcial/
+- https://www.tiktok.com/@tu.juez.imparcial?_t=ZM-8v5wU4HAoti&_r=1
+- https://linktr.ee/cesarvalles
+
+
+## Cursos
+
+- Especialidad en derecho del Trabajo y Seguridad Social
+- ,Diplomado del nuevo Juicio de Amparo,Diplomado Juzgar con Perspectiva de Género,Seminario: Derecho Colectivo,Taller: Ambiente laboral incluyente
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55095/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Chihuahua
+- Maestro en Amparo, por la Universidad de Durango
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la firme creencia que a través de la función judicial, puedo hacer justicia en favor de la población Mexicana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar para la sociedad, pues los tribunales tienen la obligación de resolver el conflicto que existe entre las personas, de manera que no debe ser ajena a la realidad en que vive el pueblo de México, pues con base en el conocimiento de sus necesidades, es posible que se ejerza una función mas humana, logrando el respeto de los derechos de las personas que han sido violentadas, ello, a través de sentencias que ordenen la reparación de los daños sufridos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser cercana, accesible, transparente y eficiente para la sociedad. México es un país en el que la población batalla para salir adelante y en ocasiones, su última esperanza se deposita ante un juez, de manera que siempre debe tenerse presente que las personas acuden a un tribunal por necesidad; por ello, debe tratarse a las personas con respeto y dignidad, así com tener el compromiso firme de dictar sentencias justas, apegadas a la realidad y así evitar injusticias
+
+
+## Propuestas
+
+- Justicia sensible. Es necesario que las personas juzgadoras no sean ajenos a la realidad en que vive la gente del país, pues de lo contrario, se corre el riesgo de dictar sentencias fuera de toda realidad, lo que genera que la gente no obtenga justicia en los tribunales. Por ello, es importante que la justicia sea de puertas abiertas, de manera que cuando una persona solicite hablar con el juez, siempre debe escucharse, pues es parte de dar la debida atención a las personas que demandan justicia
+- Procedimientos sencillos. En ocasiones las cuestiones técnicas de los procesos genera que las personas prefieran no acudir a un tribunal a solucionar su conflicto, por lo cual, debe buscarse que los procedimientos se simplifiquen para que la población mexicana pueda acudir con mayor facilidad y confianza ante un juez o jueza y con ello, se logre la impartición de justicia de forma sencilla y eficaz.
+- Presencia de los jueces en las audiencias. Cada vez son mas los procesos que se llevan de forma oral, de manera que debemos buscar que en un futuro, todos se lleven de esta manera, pues la presencia de los jueces en las audiencias permite que las personas conozcan a quien va solucionar su conflicto, pero además, con ello se garantiza que sea el propio juez quien reciba toda la información necesaria de manera directa, para con ello poder dictar una sentencia apegada a la verdad de los hechos.
+

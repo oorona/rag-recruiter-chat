@@ -1,0 +1,74 @@
+Nombre Candidato: LLUVIA JASMIN AVILA VILLEGAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5572049308
+Correo Electronico: lluvia080975@yahoo.com..mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acatlán., Derecho, Derechos Fundamentales, Formación, Igualdad de Género, Licenciatura, Poder Judicial, UNAM, Violencia
+Tags Propósito: acceso a la justicia, defensa justa, derechos humanos, equidad, formatos accesibles, grupos vulnerables, juicios ágiles, justicia, justicia alternativa, lenguaje claro, mediación, modernización, no discriminación, procesos judiciales, sistema judicial, transparencia, trato digno.
+
+
+## Descripción del Candidato 
+
+LLUVIA JASMIN AVILA VILLEGAS es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal en Ciudad de México. Cuenta con licenciatura en Derecho de la Universidad Nacional Autónoma de México (sede Acatlán) y cédula profesional. Ha cursado formación en temas de igualdad de género, derechos fundamentales, formación para el Poder Judicial de la Federación y prevención de la violencia.
+
+Su motivación para el cargo se basa en su compromiso con la justicia y su experiencia. Propone un sistema jurisdiccional accesible, eficiente y humano, con énfasis en grupos vulnerables y derechos humanos. Sus propuestas incluyen modernizar procesos judiciales, fortalecer la mediación, garantizar un trato digno y lenguaje claro en los procesos legales, y aplicar protocolos para un acceso equitativo a la justicia con enfoque de derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16JSJwmDkf/?mibextid=wwXIfr
+- https://x.com/lluviaavila_?s=21
+- https://www.instagram.com/lluvia.avila.19?igsh=dGh1bmhnbGxmNDVr&utm_source=qr
+- https://www.tiktok.com/@lluvia.avila.19?_t=ZM-8v5gvhSWYvF&_r=1
+
+
+## Cursos
+
+- GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD,DERECHOS FUNDAMENTALES,CURSO BÁSICO DE FORMACIÓN Y PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN,CURSO PARA GENERAR ESPACIOS LIBRE DE VIOLENCIA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52833/10
+
+
+## Trayectoria Academica
+
+- Estudié la licenciatura en Derecho en la Universidad Nacional Autónoma de México, en sede Acatlán
+
+
+## Motivo para buscar el Cargo Publico
+
+SOY UNA MUJER DE PRINCIPIOS, CON EXPERIENCIA Y COMPROMISO INQUEBRANTABLE CON LA JUSTICIA, PUEDO HACER EL CAMBIO
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+TENGO LA FIRME CONVICCIÓN DE QUE LA FUNCIÓN JURISDICCIONAL ES PERFECTIBLE Y QUE PUEDO HACER EL CAMBIO PARA BIEN, TENEMOS QUE TENER UN SISTEMA JURISDICCIONAL QUE PERMITA QUE TODOS, TODAS Y TODES PODAMOS ACCEDER A LA JUSTICIA DE UNA MANERA PRONTA. TENGO LA SEGURIDAD QUE LAS BASES YA ESTPÁN DADAS SÓLO HAY QUE PERFECCIONARLAS, LLEGAR A TODA POBLACIÓN Y MOSTRARLES QUE LA FUNCIÓN JURISDICCIONAL ES MUY NOBLE, ENALTECE Y DIGNIFICA A QUIEN LA IMPARTE.
+
+
+## Vision sobre la Imparticion de Justicia
+
+TENGO UN COMPROMISO INQUEBRANTABLE CON LA JUSTICIA, CREO EN UN SISTEMA JUDICIAL ACCESIBLE, EFICIENTE Y HUMANO, DONDE CADA PERSONA, SIN IMPORTAR SU CONDICIÓN, TENGA EL DERECHO A UNA DEFENSA JUSTA Y UN JUICIO ÁGIL, CON ESPECIAL ATENCIÓN A LOS GRUPOS VULNERABLES Y EL RESPETO IRRESTRICTO DE LOS DERECHOS HUMANOS.
+
+
+## Propuestas
+
+- JUSTICIA CERCANA Y PARA TODOS, MODERNIZAR LOS PROCESOS JUDICIALES PARA REDUCIR TIEMPOS Y COSTOS, FORTALECER LA MEDIACIÓN Y JUSTICIA ALTERNATIVA PARA RESOLVER CONFLICTOS SIN NECESIDAD DE LARGOS JUICIOS.
+- GARANTIZAR UN TRATO DIGNO Y LENGUAJE CLARO EN LOS PROCESOS JUDICIALES PARA QUE NADIE SE QUEDE SIN ENTENDER SU SITUACIÓN LEGAL, ASÍ COMO PUBLICACIÓN DE SENTENCIAS EN FORMATOS ACCESIBLES.
+- APLICAR PROTOCOLOS PARA GARANTIZAR EL ACCESO EQUITATIVO A LA JUSTICIA SIN DISCRIMINACIÓN Y GARANTIZAR SENTENCIAS CON ENFOQUE DE DERECHOS HUMANOS Y EQUIDAD.
+

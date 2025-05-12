@@ -1,0 +1,75 @@
+Nombre Candidato: FELIPE DE JESUS DELGADILLO PADIERNA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5652357391
+Correo Electronico: fjdelgadillop@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derechos Humanos, Género, Impartición de Justicia, Justicia, Maestría
+Tags Propósito: Ciudadanización, Debido Proceso, Democracia, Denuncia, Diálogo, Educación Jurídica, Evaluación Ciudadana., Imparcialidad, Justicia, Legalidad, Participación Ciudadana, Poder Judicial, Rendición de Cuentas, Sanciones, Servidores Públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+FELIPE DE JESUS DELGADILLO PADIERNA es candidato al Poder Legislativo Federal, con una trayectoria en las Magistraturas de Tribunales Colegiados de Circuito. Cuenta con una maestría en derechos humanos, impartición de justicia y género, y motiva su búsqueda del cargo público con el objetivo de “ciudadanizar” el Poder Judicial de la Federación.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en la imparcialidad, el apego a la ley, la escucha ciudadana y el diálogo interpoderes, buscando democratizar el acceso a la justicia y que la ciudadanía tenga un rol activo en la evaluación del trabajo de las personas juzgadoras. Sus propuestas incluyen la apertura de oficinas para la recepción de comentarios ciudadanos, la denuncia de servidores públicos que obstaculicen el debido proceso y la presentación de informes quinzenales para la evaluación pública de su desempeño.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://felipedejesus.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574010545931
+- https://x.com/fjdelgadillop?s=21
+- https://www.instagram.com/fjdelgadillop?igsh=cW5xNDE4dG14ZGln&utm_source=qr
+- https://youtube.com/@felipedejesus-dp?si=fINQMGUSfQ6frHRV
+- https://www.tiktok.com/@felipe.j..delgadi?_t=ZM-8v4mh19Psf9&_r=1
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52739/10
+
+
+## Trayectoria Academica
+
+- Maestro en derechos humanos, impartición de justicia y género
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero ciudadanizar al Poder Judicial de la Federación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El trabajo de una persona juzgadora debe mostrar imparcialidad, a la vez, escuchar a la ciudadanía para introducir la cultura de la legalidad más sólida y democratizar la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe basarse en un estricto apego a la leyes y en beneficio de la ciudadanía, con un diálogo permanente con todos los poderes de la Unión; dirigirse a la ciudadanía, que sea el pueblo quien decida cómo debe ser el poder judicial.
+
+
+## Propuestas
+
+- Oficinas abiertas al público para escuchar directamente a la ciudadanía, con un trabajo educativo para que la gente aprenda cómo funciona el poder judicial.
+- Impedir que quien cometa un delito no sea sancionado ¿cómo? Mediante la denuncia de servidores públicos que impidan el debido proceso y entorpezcan la impartición de justicia.
+- Presentar informes quincenales a la ciudadanía para que evalúen mi trabajo como persona juzgadora.
+

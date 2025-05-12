@@ -1,0 +1,75 @@
+Nombre Candidato: JAVIER ARTURO HERREJON CEDEÑO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 5543453798
+Correo Electronico: javierarturoherrejon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización, Amparo, CIDH, Formación Judicial, Igualdad de Género, Instituciones Públicas, Jurisprudencia, Suprema Corte de Justicia de la Nación, Trayectoria Académica., Violencia
+Tags Propósito: Acceso a la justicia, Derechos humanos, Digitalización, Eficiencia, Igualdad de oportunidades, Imparcialidad., Independencia judicial, Justicia, Medios alternativos, Modernización, Nepotismo, Resolución de conflictos, Resolución pacífica, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+JAVIER ARTURO HERRERJON CEDEÑO es candidato a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulado por el Poder Ejecutivo Federal. Cuenta con licenciatura y cédula profesional, además de diversos cursos de especialización en temas de amparo, derechos humanos, igualdad de género y resolución de conflictos, incluyendo formación impartida por la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo es servir a los justiciables de manera eficiente y proteger sus derechos humanos. Propone modernizar el sistema judicial mediante la digitalización de expedientes y el uso de tecnologías, fortalecer la independencia judicial ante influencias externas y privilegiar la resolución pacífica de conflictos a través de medios alternativos, buscando reducir el desgaste económico y emocional asociado a los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JavierArturoHerrejonC
+- https://www.x.com/@JavierHerrejonC
+- https://www.instagram.com/javier_arturo_herrejon
+- https://www.youtube.com/@javierarturoherrejon
+- https://www.tiktok.com/@javier_arturo_herrejon
+
+
+## Cursos
+
+- Diversos diplomados respecto del  de Amparo  impartido por la Suprema Corte de Justicia de la Nación,Curso para Generar Espacios Libres de Violencia, impartido por la Escuela de Formación Judicial del CJF,Curso de Género como Herramienta para la Igualdad; impartido por la Escuela de Formación Judicial del CJF,Foro una Jueza y un Juez Federal en tu Vida, impartido por Miguel Carbonell de la SCJN,Diplomado en el Programa de Actualización sobre la Jurisprudencia de la CIDH, impartido por la Escuela de Formación Judi
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53482/10
+
+
+## Trayectoria Academica
+
+- Mi trayectoria académica la he hecho en instituciones públicas las que me han proporcionado los conocimientos que tengo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a todos los justiciables de manera ágil, pronta y expedita en cabal protección de los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Proteger a todos los seres con la aplicación de los derechos humanos, para resolver los conflictos que se susciten entre los entes públicos y privados. Otorgar a todas las personas que buscan justicia mediante la aplicación correcta de las leyes internacionales y del país. Interpretar y garantizar su aplicación de esas leyes de manera empática con todos los quejosos. En resumen, aplicar e interpretar las leyes, como pilar de que las personas puedan vivir en sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Erradicar el nepotismo, entendido al contratar a familiares aprovechándose del encargo público y con ello acabar con el principio de igualdad de oportunidad para todos, dejando fuera a los tienen mayor mérito o capacidad y se encuentran desprotegidos.
+
+
+## Propuestas
+
+- Medios tecnológicos. Adecuar los sistemas tradicionales a la modernidad. Continuar y fortalecer con la digitalización de los expedientes y el Sistema de Seguimiento de Expedientes para acercar a la justicia a la distancia. Aprovechar los avances tecnológicos para impartir la justicia a distancia; es decir, alejados del papel y los expedientes físicos, eliminando la complejidad de los procedimientos judiciales. Desarrollar más medios electrónicos y digitales para acercar la justicia.
+- Independencia judicial. La justicia debe ser independiente, alejada de los partidos políticos, instituciones gubernamentales, asociaciones civiles y cualquier grupo en la sociedad que resten la independencia judicial. La aplicación de la justicia tampoco debe estar expuesta a presiones sociales. Sino que su aplicación debe estar ausente a nombres o presiones que nublen el sentido de las resoluciones. La justicia debe cumplir con el objetivo de la justicia es ciega.
+- Resolución pacífica de los conflictos. Antes de acudir a un proceso judicial de cualquier tipo, se debe de privilegiar la solución de los asuntos mediante los medios alternativos de solución de conflictos, bajo la máxima de que más vale un mal arreglo que un excelente juicios, en el que se traduce a un desgaste económico, físico, emocional, psicológico en el que aunque se resulte vencedor, arrastra un desgaste en la vida de la misma sociedad. Por lo que en todo momento debe de existir esto.
+

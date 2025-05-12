@@ -1,0 +1,85 @@
+Nombre Candidato: DOLORES GUADALUPE GONZALEZ LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9831242959
+Correo Electronico: dg.g.l1409@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Ciencias Penales, Decisiones Judiciales, Derecho Procesal Penal, Derechos Humanos, Formación de Jueces, Licenciatura en Derecho., Posgrado, Sistema Acusatorio Adversarial, Sistema Interamericano, Teoría del Caso, Teoría del Delito, Técnicas de Interpretación, UABJO
+Tags Propósito: Acceso a la justicia, Administración de justicia, Capacitación, Confianza institucional, Debido proceso, Derechos fundamentales, Derechos humanos, Desempeño judicial., Discapacidad, Eficacia, Estabilidad social, Género, Imparcialidad, Infancia, Integridad, Interculturalidad, Justicia, Poder judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+DOLORES GUADALUPE GONZALEZ LOPEZ es candidata a Jueza/es de Distrito en Oaxaca, postulando al Poder Judicial de la Federación. Cuenta con maestría concluida y se describe como comprometida con realizar la función jurisdiccional de manera íntegra y honesta, aportando su experiencia y conocimiento.
+
+Su visión para la función jurisdiccional se centra en la equidad y la eficiencia del sistema judicial, asegurando procesos justos y la protección de los derechos de los ciudadanos. Sus propuestas incluyen agilizar la administración de justicia, fortalecer la capacitación de los jueces en derechos humanos y temas sociales relevantes, y mantener informada a la sociedad sobre la actividad jurisdiccional a través de diversos medios de comunicación. Posee una trayectoria académica en derecho, siendo egresada de la UABJO y habiendo concluido un posgrado en Derecho Procesal Penal.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/doloresgonzalezoax/
+- https://www.instagram.com/doloresgonzalezoax/
+- https://www.youtube.com/@DoloresGonzálezOax
+- https://www.tiktok.com/@doloresgonzalezoax
+
+
+## Cursos
+
+- CURSO TEORÍA DEL DELITO Y TEORÍA DEL CASO
+- INSTITUTO NACIONAL DE CIENCIAS PENALES
+- CAMPUS VIRTUAL
+- ,CURSO EN TÉCNICAS DE INTERPRETACION Y MOTIVACION DE LAS DECISIONES JUDICIALES
+- UNIV
+- GÉNOVA Y FUNDACION DE UNIV
+- GIRONA,DIPLOMADO EN HABILITACIÓN DE JUECES EN EL SISTEMA ACUSATORIO ADVERSARIAL
+- CONATRIB
+- SEDE CANCÚN, QUINTANA ROO
+- ,CURSO SOBRE EL SISTEMA INTERAMERICANO DE ENTRENAMIENTO Y PROTECCIÓN DE DERECHOS HUMANOS
+- COMISION INTERAMERICANA DE DDHH,PROGRAMA DE FORMACIÓN PARA JUECES Y JUEZAS DEL SISTEMA ACUSATORIO PENAL
+- ESCUELA JUDICIAL DEL PODER JUDICIAL OAXACA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53307/11
+
+
+## Trayectoria Academica
+
+- EGRESADA DE LICENCIATURA EN DERECHO POR LA UABJO; POSGRADO EN DERECHO PROCESAL PENAL CONCLUIDO
+
+
+## Motivo para buscar el Cargo Publico
+
+MI COMPROMISO ES REALIZAR LA FUNCIÓN JURISDICCIONAL DE MANERA ÍNTEGRA Y HONESTA, APORTANDO MI EXPERIENCIA Y CONOCIMIENTO
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+LA IMPARTICIÓN DE JUSTICIA SE DEBE REALIZAR DE FORMA EQUITATIVA PARA GARANTIZAR QUE LOS PROCESOS JUSTOS SEAN LA BASE DE UN SISTEMA JUDICIAL EFICAZ E IMPARCIAL EN NUESTRO PAÍS, Y QUE SE PROTEJA A LAS Y LOS CIUDADANOS DE ARBITRARIEDADES DE TODA ÍNDOLE.
+
+
+## Vision sobre la Imparticion de Justicia
+
+UN PODER JUDICIAL CAPACITADO E IMPARCIAL ASEGURA QUE LAS LEYES SE APLIQUEN DE MANERA JUSTA, SIN FAVORITISMOS NI PRESIONES EXTERNAS, LO CUAL FORTALECE LA CONFIANZA EN LAS INSTITUCIONES, PROTEGE LOS DERECHOS FUNDAMENTALES DE LAS Y LOS CIUDADANOS Y FOMENTA LA ESTABILIDAD SOCIAL Y ECONÓMICA.
+
+
+## Propuestas
+
+- AGILIZAR LA ADMINISTRACIÓN E IMPARTICIÓN DE JUSTICIA, PARA GARANTIZAR LOS DERECHOS DEL DEBIDO PROCESO Y EL ACCESO A LA JUSTICIA. LO CUAL ES POSIBLE SI LOS JUECES ÚNICAMENTE SE CONCENTRAN EN ESTUDIAR LOS CASOS Y EMITIR SUS RESOLUCIONES. SIN OTRA DISTRACCIÓN, COMO REALIZAR TRÁMITES ADMINISTRATIVOS Y/O BUROCRÁTICOS.
+- CAPACITACIÓN CONSTANTE Y PERMANENTE DE LAS PERSONAS JUZGADORAS EN TEMAS DE DERECHOS HUMANOS, ASÍ COMO EN LOS DIFERENTES ENFOQUES SOCIALES, COMO SON GÉNERO, INFANCIA, DISCAPACIDAD, INTERCULTURALIDAD; LO CUAL SE REFLEJARÁ EN UN DESEMPEÑO EFICAZ Y CON SENTIDO SOCIAL POR PARTE DE LAS PERSONAS JUZGADORAS.
+- MANTENER INFORMADA A LA SOCIEDAD A TRAVÉS DE LOS MEDIOS DE COMUNICACIÓN Y TECNOLOGÍAS ACTUALES, DIFUNDIENDO LA ACTIVIDAD JURISDICCIONAL, CON EL OBJETIVO QUE LAS Y LOS CIUDADANOS CONOZCAN LA LABOR DEL PODER JUDICIAL Y LA MANERA EN QUE PUEDEN EJERCER SUS DERECHOS.
+

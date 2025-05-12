@@ -1,0 +1,75 @@
+Nombre Candidato: JOANA PEREZ BRAVO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 7848482476
+Correo Electronico: joanaperezb@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: 13 años, abogada, catedrática, derecho., educación superior, litigante, universidad
+Tags Propósito: Ambiente laboral, Amparo, Capacitación, Celeridad, Debido proceso, Derechos humanos, Dignidad, Equidad, Estabilidad laboral, Garantías constitucionales, Herramientas tecnológicas, Honestidad, Igualdad, Igualdad de género, Imparcialidad, No discriminación., Perspectiva de género, Protección del menor, Respeto, Revisión judicial, Servidores públicos, Trabajo en equipo, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+JOANA PEREZ BRAVO es candidata a Juezas/es de Distrito en Veracruz, postulándose a través del Poder Ejecutivo Federal. Abogada litigante con más de 13 años de experiencia e impartidora en universidades, motiva su candidatura en la protección de los derechos humanos y garantías constitucionales.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en el estricto apego a la norma jurídica, la protección de derechos humanos, la transparencia, la celeridad y la equidad. Sus propuestas incluyen mejorar la atención y el trato a los justiciables, analizar rigurosamente las demandas de amparo para evitar su desestimación injustificada, y garantizar un ambiente laboral sano y estable para los trabajadores del Poder Judicial, promoviendo la capacitación y la igualdad de género.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://joanaperezbravo.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=615745384904
+- https://x.com/JoanaPerezBravo
+- https://www.instagram.com/joanaperezbravo/
+- https://www.youtube.com/channel/UCO2zEr0TFeDZIQLSIy56y0w
+- https://www.tiktok.com/@joanaperezbravo?lang=es
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54066/11
+
+
+## Trayectoria Academica
+
+- He sido abogada litigante por mas de 13 años e impartido catedrá en dos universidades
+
+
+## Motivo para buscar el Cargo Publico
+
+Para proteger por los derechos humanos y garantías constitucionales que otorga la Carta Magna a todos los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desempeñar funciones que se encuentren estrictamente apegadas a la norma jurídica siempre velando por la protección de los derechos humanos y garantías constitucionales de pueblo, aplicando los principios de equidad, transparencia, veracidad, confiabilidad y celeridad a fin de no retrasar los proceso judiciales y que estos sean dirimidos de forma pronta y expedita. Trabajar de forma confiable, honesta e incorrompible con vocación de servicio, garantizando la correcta aplicación de la norma.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Emitir resoluciones imparciales que estén basadas en principio de igualdad y equidad procesal con el objetivo de procurar que a los ciudadanos les sean respetados todos y cada uno de los derechos constitucionales establecidos en la Carta Magna. Velar primordialmente por el interés superior del menor y todas aquellas personas vulnerables, juzgar con perspectiva de genero, analizar a fondo los conceptos de violación de las demandas de amparo a fin de no desecharlas sin justa causa.
+
+
+## Propuestas
+
+- Trabajar en la vocación de servicio tanto de los titulares de los juzgados como del personal que labora en ellos, a fin de crear conciencia y que lleguen a empatizar con los problemas a los cuales se enfrentan los justificables y que reciban un trato digno sin ningún tipo de discriminación o malos tratos en el momento que se tengan que presentar en los recintos judiciales, enfatizar la humildad y calidad humana en los servidores públicos, basar el desempeño de sus funciones en el respeto.
+- Analizar a fondo las demandas de amparo en relación a los conceptos de violación y de esta forma evitar que sean desechadas sin justa causa en virtud que estas situaciones afectan la esfera jurídica de los justiciables, implementar mecanismos de revisión de acuerdos y actuaciones judiciales siempre en pro del debido proceso y de la celeridad procesal con el objetivo de dirimir las controversias judiciales en el menor tiempo posible, utilizar herramientas tecnológicas para optimizar procesos.
+- La protección de todos los trabajadores del poder judicial a fin de crear un ambiente de trabajo sano y estable ya que es de suma importancia que los servidores de esta institución se desenvuelvan en un ámbito laboral sano, implementar capacitaciones y velar por que los derechos de los trabajadores sean respetados, defender la igualdad de genero y promover el trabajo en equipo. De esta forma se garantiza la estabilidad laboral de los empleados y por consiguiente una mejora en sus funciones.
+

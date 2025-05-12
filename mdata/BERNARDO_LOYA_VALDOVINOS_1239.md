@@ -1,0 +1,78 @@
+Nombre Candidato: BERNARDO LOYA VALDOVINOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4438613254
+Correo Electronico: berloval@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Derecho, Derecho Constitucional, Derecho Electoral, Derechos Humanos, Doctorado en Derecho, Excelencia Académica, Género, Igualdad, Mediación Escolar, Poder Judicial de la Federación, Profesor Universitario., Suprema Corte, Teoría del Derecho, Tutela Jurisdiccional
+Tags Propósito: acceso a la justicia, apoyo social, asesoría legal, capacitación, compromiso social, comunicación, derechos humanos, escucha activa, formación jurídica, justicia, justicia accesible., justicia cercana, justicia integral, población, rapidez, resolución de conflictos, sensibilidad, vocación de servicio, vulnerabilidad, ética profesional
+
+
+## Descripción del Candidato 
+
+Bernardo Loya Valdovinos es candidato a Magistrado de Tribunales Colegiados de Circuito en Michoacán, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con estudios concluidos de doctorado en Derecho, además de experiencia como profesor universitario y en diversas áreas del Derecho, incluyendo Amparo, Derechos Humanos y Electoral. 
+
+Su motivación para el cargo público se centra en impartir una justicia cercana a la gente, con sentido social y vocación de servicio. Sus propuestas principales incluyen un mayor contacto y escucha activa con la población, una fuerte vocación de servicio por parte de quien ejerza la función jurisdiccional, y un apoyo a la sociedad, especialmente a los sectores más vulnerables, trascendiendo la labor estrictamente judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572730003128
+- https://www.x.com/bernaloya
+- https://www.instagram.com/bernardoloyav
+- https://www.tiktok.com/bernardoloyav
+- https://www.facebook.com/bernardo.loyavaldovinos/
+
+
+## Cursos
+
+- Juicio de amparo; Derechos Humanos; Derecho Electoral; la Suprema Corte y los Derechos Humanos; Género e Igualdad
+- ,Especialidad: Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Profesor: Teoría del Derecho; Sensibilización al cambio; técnicas de redacción; Derecho Constitucional y Amparo
+- ,Artículos: Tutela reparatoria de los derechos; La tutela jurisdiccional de los derechos; Mediación escolar interés niñez,Premio Padre de la Patria, obtenido por excelencia académica, del Rector de la Universidad Michoacana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53921/10
+
+
+## Trayectoria Academica
+
+- Licenciado y maestro en Derecho, y con estudios concluidos de doctorado en Derecho; Profesor en diversas universidades
+
+
+## Motivo para buscar el Cargo Publico
+
+Impartir una justicia cercana a la gente, con sentido social y vocación de servicio a las necesidades de la población
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser integral, una combinación de preparación y sensibilidad para atender de manera justa los problemas entre las personas. Cercana a la población, la función jurisdiccional debe ser desempeñada y transmitida de manera confiable a las personas. Basada en la vocación de servicio. Rápida, porque la población necesita que los conflictos que surjan se resuelvan de manera diligente. Respetuosa de los derechos humanos de la población, con atención especial a grupos vulnerables y más necesitados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia a nivel nacional necesita el más alto grado de compromiso social y al mismo tiempo una completa formación jurídica, regida con principios éticos y profesionales, de respeto a los derechos de las personas; el sistema de justicia puede y debe servir a la población con atención más cercana. La renovación siempre representa áreas de oportunidad para la mejora de las instituciones, particularmente si se trata de una labor justa para apoyar a las personas a resolver los problemas.
+
+
+## Propuestas
+
+- Contacto con la gente. Se propone un mayor contacto con las personas, de tacto y escucha activa. La comunicación no sólo escrita sino verbal o directamente entre el personal del juzgado, incluida la persona juzgadora, y las personas que asisten por una solución a sus problemas, es fundamental para que el conflicto se resuelva de una manera más justa, rápida y completa para todos. Las personas siempre deben tener la posibilidad de que se les permita ser escuchadas y se les den soluciones.
+- Vocación de servicio. Es indispensable que quien desempeñe la labor de justicia, cuente con una vocación y convicción de servicio hacia las personas. La justicia siempre debe estar al alcance de todas y todos, y será importante que la persona juzgadora sea sensible al sentir de la población, y para ello es importante que siempre esté al servicio de los demás, pues es a la población a quien se debe, y con base en ello, debe realizar su función de compromiso social.
+- Apoyo a la sociedad. Hay muchas formas de auxiliar a la población, particularmente a ciertos sectores más vulnerables, porque la función jurisdiccional debe trascender e ir más a allá del juzgado, por ejemplo, fortaleciendo defensorías o áreas de asesoría y capacitación para que las personas conozcan sus derechos y las formas de protegerlos y defenderlos, o a dónde acudir en caso de que necesiten ayuda; el conocimiento que se adquiere en el juzgado también debe estar al servicio de la sociedad.
+

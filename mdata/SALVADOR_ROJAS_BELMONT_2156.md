@@ -1,0 +1,74 @@
+Nombre Candidato: SALVADOR ROJAS BELMONT
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Concurso, Constancias., Derecho, Derecho del Trabajo, Diplomado, Especialidad, Jueces, Justicia Laboral, Justicia Penal Acusatorio, Licenciatura en Derecho, Registros, UNAM
+Tags Propósito: Apego a la Ley, Capacitación, Confianza, Corrupción, Democracia, Derechos Humanos, Estado de Derecho, Función Jurisdiccional, Imparcialidad, Justicia Social, Protección de Derechos., Sensibilidad Social, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Salvador Rojas Belmont es candidato a Jueces de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo y Legislativo Federal. Licenciado en Derecho egresado de la UNAM y especialista en Derecho del Trabajo, cuenta con diversos cursos y diplomados en el ámbito de la justicia penal acusatoria y laboral, incluyendo formación específica para concursos de jueces.
+
+Su motivación para buscar el cargo es proteger y garantizar los derechos de las personas, especialmente las más vulnerables. Su visión de la función jurisdiccional y la impartición de justicia se centra en garantizar una justicia social, pronta, expedita, imparcial y sensible a las necesidades de la población. Sus propuestas principales incluyen la implementación de mecanismos para combatir la corrupción, fomentar la sensibilidad de los juzgadores hacia las causas de la gente y garantizar la capacitación constante del personal involucrado en la función jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@SalvadorRojasB
+- https://www.instagram.com/salvador.rojas.belmont
+- https://www.tiktok.com/@salvador.rojas.belmont
+
+
+## Cursos
+
+- Curso de Inducción para Asistentes de Constancias y Registros del Nuevo Sistema de Justicia Penal Acusatorio,Diplomado El Nuevo Sistema de Justicia Penal Acusatorio de frente a la Sociedad,Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Derecho del Trabajo y Justicia Laboral,Curso de Preparación a Concurso para Jueces de Distrito y/o Locales Especializados en Materia de Trabajo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55279/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho egresado de la Facultad de Derecho de la UNAM; Especialista en Derecho del Trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para proteger y garantizar los derechos de todas las personas, principalmente de aquellas más desprotegidas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que garantice una verdadera justicia social salvaguardando los derechos de aquellos que se encuentran en una situación de mayor vulnerabilidad frente a la sociedad; que sea un pilar de la democracia que garantice un verdadero Estado de Derecho; que responda a las demandas del pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que garantice confianza en las personas que acudan a los tribunales; que sea pronta, expedita e imparcial; que se actúe con apego a la ley y no por intereses personales; que sea sensible a las causas de la gente; que garantice una verdadera justicia social.
+
+
+## Propuestas
+
+- Que se implementen verdaderos mecanismos que garanticen cero corrupción dentro de los órganos encargados de la función jurisdiccional.
+- Que se implementen verdaderos mecanismos que garanticen juzgadores más sensibles a las causas de la gente.
+- Constante capacitación de todo el personal involucrado en la función jurisdiccional.
+

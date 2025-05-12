@@ -1,0 +1,73 @@
+Nombre Candidato: CAROLINA PEÑA ZEPEDA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7352116184
+Correo Electronico: penazepedacarolina@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración, Derechos Humanos, Electoral, Estadística, Excelencia., Formación Académica, Gestión, Gobierno, Información Pública, Políticas Públicas, Suprema Corte de Justicia
+Tags Propósito: Acceso a la Información, Celeridad Procesal, Coordinación Interpoderes, Derechos Humanos, Impartición de Justicia, Justicia Humanista, Paz Social, Perspectiva Humanista, Protección a las Personas, Recursos Tecnológicos., Resolución de Conflictos, Simplificación Procesal, Simplificación de Procedimientos, Transparencia
+
+
+## Descripción del Candidato 
+
+Carolina Peña Zepeda es candidata a Jueza de Distrito en Morelos, postulándose a través del Poder Judicial de la Federación. Cuenta con una Maestría concluida y ha realizado diversos diplomados en áreas como políticas públicas, administración y derechos humanos, incluyendo cursos ofrecidos por la Suprema Corte de Justicia de la Nación y el TEPJF.
+
+Su motivación para buscar el cargo se centra en implementar una visión humana en la impartición de justicia y la protección de los derechos humanos. Sus propuestas incluyen la celeridad procesal a través de la simplificación y el uso de tecnología, la simplificación del acceso a la información para la ciudadanía y el trabajo coordinado entre los poderes para prevenir conflictos y mantener la paz social.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100001232037175
+- https://x.com/CarolinaPZ20
+- https://www.instagram.com/caroland_pz/
+
+
+## Cursos
+
+- Diplomado de Políticas Públicas y Gobierno Instituto Morelense de Información Pública y Estadística,Diplomado  de   Suprema Corte de Justicia de la Nación,Diplomado en Administración y Gestión   UAEM,Curso    Instituto Interamericano de Derechos Humanos,Curso de actualización  Electoral  TEPJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54854/11
+
+
+## Trayectoria Academica
+
+- En mi formación académica siempre busco la excelencia, pues en esta profesión ponen su vida y libertad en tus manos
+
+
+## Motivo para buscar el Cargo Publico
+
+Me gustaría ocupar este cargo para implementar una visión humana en la impartición de justicia y protección a los DDHH.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como Directora de Quejas y Orientación de la CDHM tuve la oportunidad de defender los derechos de las personas desde la vía no jurisdiccional de protección a los DDHH, otorgando a cada caso la relevancia, el cuidado, el esmero y el profesionalismo que merecían, viendo más allá de un número de expediente y enfócandome en las personas, sus circunstancias, sus necesidades y preocupaciones. Esa es la misma visión y filosofía que deseo emprender como Jueza de Distrito, ahora en la vía jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desde mi formación profesional puedo afirmar que la injusticia nunca me ha sido indiferente, por ello, he advertido que la impartición de justicia en nuestro país gradualmente se ha olvidado de mirar a la persona, más allá del papel, soslayando las circunstancias que lo han motivado a exigir sus derechos. Por ello, considero que la tarea de esta nueva generación de juzgadoras y juzgadores debe de enfocarse en reivindicar el papel de la persona y construir un país más justo una sentencia a la vez
+
+
+## Propuestas
+
+- Celeridad procesal. Uno de los grandes problemas que reconoce la sociedad mexicana en este ámbito, es la falta de cumplimiento al principio de prontitud y expeditez en la impartición de justicia, por ello, una de las principales propuestas en la mejora de la función jurisdiccional es la resolución los asuntos, desde una perspectiva humanista, en un menor tiempo a través de la simplificación de procedimientos y la implementación de recursos tecnológicos que auxilien en esta tarea.
+- Simplificación de acceso a la información para la ciudadanía. La información no debe ser un recurso exclusivo para las personas que cuentan con una formación en el área jurídica, pues si bien resulta sencillo acceder a esta cuanto conoces la terminología y las etapas procesales, para la ciudadana existe una barrera lingüística, técnica y tecnológica para conocer las funciones y tareas que tiene encomendadas el Poder Judicial, por ello se proponer la simplificación en el acceso a la información.
+- Trabajo coordinado entre los poderes. Las y los juzgadores tienen la encomienda de administrar justicia y resolver los conflictos que se presentan en la sociedad, es decir, cuenta con una tarea correctiva, ya que su función inicia cuando ha surgido una problemática. Por ello se propone que el papel del juzgador vaya más allá de dirimir las controversias y trabaje de manera coordinada con los otros poderes coadyuvando activamente para mantener la paz y la tranquilidad social
+

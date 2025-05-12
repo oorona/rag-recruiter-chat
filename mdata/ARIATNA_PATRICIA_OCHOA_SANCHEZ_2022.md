@@ -1,0 +1,73 @@
+Nombre Candidato: ARIATNA PATRICIA OCHOA SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9612372611
+Correo Electronico: ariatna.ochoa.sanchez.17@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: CJF, Derecho Constitucional, Derecho Internacional Público, Derecho Público, Doctorado, Doctrina, Función Jurisdiccional, Juicio de amparo, Licenciatura., Máster, SCJN
+Tags Propósito: acceso a la justicia, confianza, contacto directo, demandas, derechos, juez, justicia, justiciable., lenguaje claro, necesidades judiciales, recursos, reintegro, transparencia, órganos judiciales
+
+
+## Descripción del Candidato 
+
+ARIATNA PATRICIA OCHOA SANCHEZ es candidata a Jueza/es de Distrito en Chiapas, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho Público, complementados con cursos especializados en Juicio de Amparo y Derecho Internacional, así como formación del Consejo de la Judicatura Federal. 
+
+Su motivación para el cargo se centra en asegurar el acceso a la justicia y la restitución de derechos.  Propone acercar la función jurisdiccional a los ciudadanos a través de contacto directo con los jueces, facilitar la presentación de demandas, ampliar la presencia judicial en localidades y utilizar un lenguaje más accesible. Su visión sobre la impartición de justicia se basa en principios de accesibilidad, transparencia y confiabilidad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Ariatna-Patricia-Ochoa-SC3A1nchez/61574052403470/
+- https://www.instagram.com/ariatnapatricia_ochoasanchez/
+
+
+## Cursos
+
+- Juicio de amparo, edición 2023 SCJN,Diplomado Aplicación del Derecho Internacional Público en la Función Jurisdiccional 2023
+- Formación Judicial CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54654/11
+
+
+## Trayectoria Academica
+
+- Soy licenciada en Derecho, Maestra en Derecho Constitucional y Amparo y Doctora en Derecho Público
+
+
+## Motivo para buscar el Cargo Publico
+
+La idea de lograr que una persona reciba justicia y se le reintegren sus derechos, me llena de satisfacción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Con base en la experiencia y cercanía a los justiciables, se logra el entendimiento de las necesidades judiciales de la población y así una mejor impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser accesible a todas las personas que lo requieran, transparente y confiable.
+
+
+## Propuestas
+
+- Contacto directo de las partes con el Juez.
+- Acceso más fácil a la presentación de demandas y recursos; creación de más órganos judiciales en localidades.
+- Lenguaje menos técnico y de fácil entendimiento.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: HECTOR VIVEROS DIAZ DE LA VEGA MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2284937324
+Correo Electronico: abogadohectorviveros@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Comercio Exterior, Conciliación, Derecho Anticorrupción, Derecho Fiscal, Diplomados, Doctor en Derecho, Educación Superior., Fiscalización, Gobierno, Maestría, Mediación
+Tags Propósito: Accesibilidad, Apego a derecho., Bienestar social, Ciudadanía, Eficiencia, Erradicación corrupción, Fortalecimiento institucional, Humanización, Igualdad, Imparcialidad, Justicia, Nepotismo, Profesionalismo, Rapidez, Sentencias sociales, Transparencia, Transparencia judicial, Ética
+
+
+## Descripción del Candidato 
+
+Héctor Viveros Díaz de la Vega Martínez es candidato al Poder Legislativo Federal, postulándose para el cargo de Juez/a de Distrito en Veracruz. Cuenta con doctorado en Derecho y una trayectoria académica que incluye especialidades en Derecho Anticorrupción y Maestrías en Gobierno y Derecho Fiscal, así como diversos diplomados relacionados con el comercio exterior y la mediación.
+
+Su motivación para buscar el cargo público se centra en la construcción de un entorno justo y en el fortalecimiento de un Poder Judicial accesible, eficiente y humano. Sus propuestas incluyen la implementación de mecanismos para agilizar los juicios, asegurar que solo profesionistas calificados y con ética profesional trabajen en el Poder Judicial, y garantizar la transparencia en los trámites, eliminando cualquier tipo de corrupción o favoritismo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19F3CispcY/?mibextid=wwXIfr
+- https://x.com/2911Hector
+- https://www.instagram.com/hectorviveros2025?igsh=aHBuYmRwc3V4Nm1w
+- https://youtube.com/@hectorviveros2025?si=7CLNo8sdHQujJfnC
+- https://www.tiktok.com/@hvdvmdex?_t=ZM-8uxY1BgA4z0&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho Anticorrupción (2023, EJPJEV),Maestría en Gobierno (2021, ColVer),Maestría en Derecho Fiscal (2015, UX),Diplomado en Comercio Exterior y Aduanas (Mexiworld Logistics),Diplomado para formar al mediador/conciliador (2023, IIJUV)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55376/11
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho, Maestro en Fiscalización y Gobierno, especialista en Derecho Anticorrupción con diversos diplomados
+
+
+## Motivo para buscar el Cargo Publico
+
+Para construir un entorno justo contribuyendo a una justicia más accesible, eficiente y humana dentro del Poder Judicial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe priorizar un enfoque que coloque al ciudadano en el centro de la labor jurisdiccional, más allá de los procedimientos técnicos y burocráticos, procurando que el trabajo realizado aporte al fortalecimiento de un sistema que brinde respuestas claras, oportunas y confiables a quienes recurren a las instituciones de justicia, lo que implica no solo la aplicación correcta de la ley sino también el compromiso de aterrizar las normas jurídicas y las necesidades reales de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser el instrumento que garantice la igualdad, la imparcialidad y la transparencia en un país que necesita instituciones jurídicas fuertes y cercanas a su gente, es tiempo de transformar el Poder Judicial y demostrar que debe de estar al servicio de la ciudadanía para impartir justicia de manera pronta, justa y eficaz, siempre buscando el bienestar social y recordando que el poder solo tiene sentido y se convierte en virtud cuando se pone al servicio de los demás.
+
+
+## Propuestas
+
+- Justicia rápida, eficiente y social: Implementar mecanismos para agilizar juicios y reducir tiempos de resolución, asegurando procesos judiciales rápidos, eficientes, accesibles y justos para toda la ciudadanía, respetando los derechos de todas las personas a través sentencias con un enfoque social.
+- Sólo los mas calificados trabajarán en el Poder Judicial: Únicamente profesionistas con conocimientos en la materia y ética profesional intachable podrán ingresar a trabajar en el Poder Judicial, erradicando el nepotismo, los compadrazgos y los favoritismos.
+- La justicia no se vende: Nadie podrá pedir dinero, regalos o dádivas para agilizar trámites judiciales o realizar diligencias de los expedientes, garantizando total transparencia en el funcionamiento del juzgado y estableciendo mecanismos efectivos de denuncia. Las sentencias serán apegadas a derecho de forma imparcial.
+

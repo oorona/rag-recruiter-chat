@@ -1,0 +1,78 @@
+Nombre Candidato: SERGIO DIAZ RENDON
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 8441791259
+Correo Electronico: magis.sergiodiaz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: CONAHCyT, Derecho, Derechos Humanos, Doctorado, Investigación, Maestría, Profesor, Publicaciones, Sistema Nacional de Investigadores., UNAM, Universidad Carlos III
+Tags Propósito: Constitución, accesibilidad, audiencias públicas, democracia, derechos humanos, derechos políticos, elecciones limpias., igualdad, imparcialidad, justicia electoral, lenguaje ciudadano, participación política, rendición de cuentas, tecnología, transparencia, tratados internacionales, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Sergio Díaz Rendón es candidato a la Magistratura de las Salas Regionales del Poder Legislativo Federal, con una trayectoria de 24 años como profesor e investigador, doctorado en Derechos Humanos y miembro del Sistema Nacional de Investigadores (CONAHCyT, Nivel 1). Su motivación para buscar el cargo es acercar la justicia electoral a la ciudadanía, garantizar elecciones limpias y proteger los derechos políticos.
+
+Su visión de la función jurisdiccional se centra en una justicia imparcial, independiente y accesible con apego a la Constitución y los tratados internacionales, con perspectiva de derechos humanos.  Sus propuestas incluyen la emisión de sentencias claras y accesibles para el público general, la apertura del Tribunal a la ciudadanía mediante audiencias públicas y explicaciones en video, y el fortalecimiento de la protección de grupos en situación de vulnerabilidad para asegurar su participación política en igualdad de condiciones.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ADV7vJJTJ/?mibextid=wwXIfr
+- https://x.com/magsergiodiaz?s=21&t=_oLeO8IafmMhxoYxPKoZVA
+- https://www.instagram.com/magis_sergiodiaz?igsh=MTBtdjNjcWtqcDN2dw==
+- https://www.tiktok.com/@magissergiodiaz?_t=ZM-8ugXMTwjYaj&_r=1
+
+
+## Cursos
+
+- Licenciado en Derecho por la Facultad de Derecho de la Universidad Nacional Autónoma de México (UNAM),Maestro en Derecho por la Facultad de Jurisprudencia de la Universidad Autónoma de Coahuila
+- ,Máster en Estudios Avanzados en Derechos Humanos por la Universidad Carlos III de Madrid,Doctor en Estudios Avanzados en Derechos Humanos por la Universidad Carlos III de Madrid,Miembro del Sistema Nacional de Investigadores e Investigadores del CONAHCyT
+- Nivel 1
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15509/9
+
+
+## Trayectoria Academica
+
+- Doctor en Derechos Humanos
+- Profesor e investigador durante 24 años
+- Autor de más de 40 publicaciones
+
+
+## Motivo para buscar el Cargo Publico
+
+Para acercar la justicia electoral a la ciudadanía, garantizar elecciones limpias y proteger los derechos políticos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar una justicia imparcial, independiente y accesible, con apego a la Constitución y los tratados internacionales. Un tribunal debe resolver con certeza y transparencia, asegurando que cada persona pueda ejercer sus derechos sin obstáculos. La función jurisdiccional no solo debe enfocarse en aplicar la ley, sino en hacerlo con perspectiva de derechos humanos, proporcionalidad y equidad, fortaleciendo la confianza ciudadana en las instituciones y protegiendo la democracia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Hacerla accesible, transparente y cercana a la ciudadanía; debe ser ágil, clara y comprensible, garantizando que cada persona pueda ejercer sus derechos sin obstáculos. Se debe buscar que las resoluciones sean imparciales, con apego a la Constitución y tratados internacionales, asegurando elecciones justas y fortaleciendo la democracia. Se debe privilegiar una justicia abierta, la rendición de cuentas y el uso de tecnología para facilitar el acceso a la misma.
+
+
+## Propuestas
+
+- Sentencias claras y accesibles. Las resoluciones del Tribunal deben ser comprensibles para todas las personas, no solo para abogados. Usaremos un lenguaje ciudadano y formato de fácil lectura para que cualquier persona pueda entender qué resolvemos y por qué.
+- Tribunal abierto y cercano. La Sala Monterrey no debe ser un espacio lejano para la gente. Implementaremos audiencias públicas y explicaciones en video sobre los casos más relevantes para que la ciudadanía sepa qué está pasando con su democracia.
+- Mayor protección para grupos en situación de vulnerabilidad. Mujeres, comunidades indígenas, personas con discapacidad, integrantes de la comunidad LGBTIQ+ y otros grupos históricamente excluidos deben tener acceso efectivo a la justicia electoral. Reforzaremos mecanismos para garantizar su participación política en igualdad de condiciones.
+

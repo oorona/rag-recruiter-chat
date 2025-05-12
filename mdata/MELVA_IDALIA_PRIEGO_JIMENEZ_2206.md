@@ -1,0 +1,77 @@
+Nombre Candidato: MELVA IDALIA PRIEGO JIMENEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5527285201
+Correo Electronico: melvapriego@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Derecho Laboral, Derecho de la Administración, Docencia, Especialista, Formación Judicial, Instituto de la Judicatura Federal, Justicia Laboral, Licenciatura., Liderazgo Femenino, Maestría, Poder Judicial, Procuración de Justicia, Reforma Laboral, UJAT, UNAM
+Tags Propósito: Accesibilidad, Capacitación, Confianza, Deber Social., Derechos Humanos, Digitalización, Dignidad, Eficiencia, Estado de Derecho, Humanismo, Jueces, Justicia, Justicia Social, Oralidad, Poder Judicial, Resolución de Conflictos, Seguridad Jurídica, Sistema de Justicia, Transparencia, Vocación de Servicio, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Melva Idalia Priego Jimenez es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose para el Poder Legislativo Federal. Cuenta con Maestría en Derecho (especialista en Derecho de la Administración y Procuración de Justicia) y una trayectoria académica en la UNAM y la UJAT. Su motivación para buscar el cargo público se basa en su visión de un país donde se protejan los derechos humanos y la justicia sea accesible para todos.
+
+Su visión del Poder Judicial se centra en garantizar el estado de derecho, recuperar la confianza ciudadana y resolver los conflictos de manera pronta, eficiente y con respeto a la dignidad de las personas. Sus propuestas principales incluyen facilitar el acceso a la justicia a grupos vulnerables, agilizar los procesos judiciales a través de la oralidad y la tecnología, e impulsar la capacitación continua de los jueces en materia de vocación de servicio y justicia social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/melvapriegoj/
+- https://x.com/melvapriego?s=21&t=j99Du5LpMISQ5qiC-iJhEQ
+- https://www.instagram.com/melva_priego7?igsh=cjl3N2N2MG4xMWJ1&utm_source=qr
+- https://www.tiktok.com/@melvapriego?_t=ZM-8v5dziXoGXv&_r=1
+
+
+## Cursos
+
+- Curso de Actualización sobre la Reforma en materia de Justicia Laboral Focalizado, Escuela Federal de Formación Judicial,Aula Taller de Saberes y Diálogo, Criterios del Poder Judicial sobre trabajadores de embajadas y jurisdicción Edo Mex
+- ,Participación en el ciclo de conferencias: Liderazgo Femenino, Escuela Federal de Formación Judicial
+- ,Disertante en el Ciclo de Conferencias: El Amparo a la Luz de la Reforma Laboral, Casa de la Cultura Jurídica de la SCJN,Docente, Instituto de la Judicatura Federal, Nociones Generales del Derecho: Casos Contenciosos de Derecho Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54709/11
+
+
+## Trayectoria Academica
+
+- Lic
+- Derecho UJAT; Especialista en Derecho de la Administración y Procuración de Justicia y Maestra en Derecho UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Sueño con un país en el que se protejan los derechos humanos, en el que la justicia sea una realidad al alcance de todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+México necesita un Poder Judicial que garantice el estado de derecho y que cumpla con su función social. Es fundamental escuchar a la sociedad, merece recuperar la confianza en sus jueces. Debe garantizarse un sistema de justicia confiable, democrático y legitimado por el pueblo. Se necesitan juzgadores que resuelvan. La resolución de los conflictos debe ser pronta y eficiente, sin apartarse de la excelencia y de la constante preparación en un marco de respeto a la dignidad de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe estar en manos de personas preparadas, que conozcan las leyes y las apliquen para dar respuesta a los conflictos y garantizar la seguridad jurídica, todo ello a la par de conocer la realidad que muchos mexicanos enfrentan y las injusticias que derivan de un sistema judicial que por muchos años ha quedado a deber. La justicia debe estar en manos de personas con un profundo espíritu de servicio.
+
+
+## Propuestas
+
+- Justicia social: cercana al pueblo y accesible para todos. Es importante crear espacios en días y horas hábiles exclusivos para la atención de las personas que tengan un juicio y escuchar sus necesidades, el cual sea parte de todo procedimiento. Implementar protocolos dirigidos a los grupos especialmente vulnerables para que puedan acceder a la justicia y conozcan sus derechos, informar y dar mayor publicidad de los criterios que se emitan al resolver las controversias.
+- Procesos transparentes, rápidos y efectivos. Privilegiar la oralidad en los juicios y la inmediatez en la resolución de los conflictos, minimizar y agilizar los tiempos para resolverlos, otorgar la mayor transparencia posible en cada una de las etapas del proceso para que las partes tengan conocimiento del momento en que se encuentra su juicio, utilizar las plataformas digitales para que el acceso sea más eficaz.
+- Jueces preparados, con vocación de servicio y con sentido humanista. Incentivar a los juzgadores para tomar cursos en razón de su función social. Crear espacios de capacitación en razón del deber social, utilizar las herramientas tecnológicas, creación de cursos obligatorios sobre la vocación de servicio.
+

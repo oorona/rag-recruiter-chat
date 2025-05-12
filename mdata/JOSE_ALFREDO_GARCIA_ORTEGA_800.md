@@ -1,0 +1,78 @@
+Nombre Candidato: JOSE ALFREDO GARCIA ORTEGA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5551838611
+Correo Electronico: contacto@jagomagistrado.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado Penalista, Derecho Constitucional, Derecho Público, Investigación, Juicio de Amparo, Litigio., PGR, Sistema Acusatorio, Transparencia, Tribunal Constitucional, Ética Judicial
+Tags Propósito: Poder Judicial, acceso a la justicia, compromiso social, corrupción, criminalización de la pobreza, democracia judicial., derechos humanos, equidad, fiscalía, honestidad, igualdad, impunidad, independencia judicial, integridad, jueces, justicia, justicia de clase, justicia penal, justicia social, litigio, magistrado, nepotismo, realidad social, reforma del sistema penal, reforma judicial, revisión de sentencias, supervisión judicial, transparencia
+
+
+## Descripción del Candidato 
+
+José Alfredo García Ortega es candidato a Magistrado de Tribunales Colegiados de Circuito, con experiencia en las áreas de investigación (PGR), impartición de justicia (Tribunal Colegiado) y litigio penal de alto perfil. Cuenta con una Maestría en Derecho Constitucional y diversos cursos de especialización en temas como el sistema acusatorio, juicio de amparo y ética judicial.
+
+Su motivación para buscar el cargo se centra en aportar renovación y experiencia al Poder Judicial, promoviendo una justicia cercana a la gente, transparente y libre de corrupción. Sus propuestas principales incluyen acercar la función judicial a la sociedad a través de visitas a comunidades y cárceles, garantizar una justicia equitativa que combata la impunidad del crimen de cuello blanco y establecer una mayor transparencia y cercanía de los magistrados con la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://jagomagistrado.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19cLbPBY3K/?mibextid=wwXIfr
+- https://x.com/JagoMagistrado
+- https://www.instagram.com/jagomagistrado?igsh=MWc3ZjEyYWg3dGh1bQ3D3D&utm_source=qr
+- https://www.youtube.com/channel/UCanZABF5NRkHoX25SOd1MqA
+- https://www.tiktok.com/@jago.magistrado?_t=ZM-8v5pSLByuhC&_r=1
+
+
+## Cursos
+
+- Especialidad en Sistema Acusatorio por la Escuela Libre de Derecho,Maestría en Derecho Constitucional por la Escuela Libre de Derecho,Diplomado en Juicio de Amparo Suprema Corte de Justicia de la Nación, julio 2021
+- ,Casos Prácticos de Ética Judicial Instituto de la Judicatura Federal, modalidad presencial, julio 2018
+- ,Cursos de Transparencia y Derecho Público: Introducción a la Ley General de Transparencia y Acceso a la Información
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53099/10
+
+
+## Trayectoria Academica
+
+- Abogado penalista con experiencia en investigación (PGR), impartición de justicia (TC) y litigio alto perfil
+
+
+## Motivo para buscar el Cargo Publico
+
+Aporto renovación y experiencia: justicia cercana, sin corrupción y he estado en PGR, Tribunal Colegiado, litigio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Creo en una justicia sin corrupción, cercana a la gente y con jueces que vivan la realidad que juzgan. Solo así nuestras sentencias tendrán verdadero impacto. Mi visión es un Poder Judicial renovado, más humano e incluyente, libre de nepotismo y de quienes lo ven como una fuente de poder y enriquecimiento. Necesitamos jueces comprometidos con la sociedad, no con privilegios. Es momento de transformar la justicia y devolverla al pueblo con honestidad, integridad y compromiso real.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Soy abogado litigante y he estado en todas las aristas de la justicia penal: procuración (FGR, PGR, SEIDO), impartición (Tribunal Colegiado) y litigio. He visto cómo la justicia ha servido al dinero y no a la verdad. Basta de jueces que encarcelan a los pobres y liberan a los poderosos. La justicia debe castigar a los culpables y liberar a los inocentes. No más corrupción en los tribunales. Conozco el sistema y sé cómo cambiarlo para que sirva a la gente, no a los intereses de unos pocos.
+
+
+## Propuestas
+
+- 1. Justicia Penal Cercana y Realista. La justicia no puede impartirse desde una torre de marfil (Barak). Los jueces deben conocer la realidad social y los efectos de sus sentencias. Propongo acercar la función judicial a la sociedad mediante visitas a cárceles y comunidades para comprender el impacto de las decisiones. No más jueces de escritorio. Un Poder Judicial cercano garantiza sentencias con sentido social y humano, evitando la criminalización de la pobreza y cerrando brechas (Saba)
+- 2. Fin de la Justicia de Clase En México, la justicia ha sido selectiva: los pobres llenan las cárceles y los poderosos las evaden. Siguiendo a Saba, debemos cerrar esta brecha con una revisión obligatoria de sentencias por jueces independientes que supervisen resoluciones en casos de desigualdad estructural. No más impunidad para el crimen de cuello blanco ni sentencias desproporcionadas para quienes no pueden pagar una defensa digna. La justicia debe ser equitativa, no un privilegio.
+- 3: Un Magistrado Cercano Si llego al cargo, estaré al servicio de la justicia, no de las élites ni del nepotismo. Es momento de romper con el viejo esquema donde los jueces son dioses intocables: llegan al cargo, sabemos que existen, pero nadie los ha visto jamás. La justicia penal exige cercanía con las personas, no sentencias dictadas desde la comodidad de un escritorio. Es un momento histórico para democratizar el Poder Judicial y construir un nuevo sistema más justo y cercano.
+

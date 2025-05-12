@@ -1,0 +1,80 @@
+Nombre Candidato: ALFREDO YSRAEL MEJIA ANAYA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 4432409231
+Correo Electronico: ysrael2612@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, Aprobación, Colegiado, Curso, Derecho, Distrito, Especialidad, Examen, Federación., Formación, Juzgado, Licenciatura, Poder Judicial, Primaria, Promedio, Secretario Tribunal, Secundaria, Violencia, Virtual
+Tags Propósito: México, acceso a la justicia, corrupción, eficiencia, erradicación de la corrupción., imparcialidad, independencia judicial, justicia federal, satisfacción ciudadana, sistema de justicia, tiempos de espera, transparencia
+
+
+## Descripción del Candidato 
+
+Alfredo Ysrael Mejía Anaya es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y cédula profesional, complementada por diversos cursos de formación en el Poder Judicial, incluyendo temas de secretaría, acceso a categorías superiores y prevención de la violencia.
+
+Su motivación para el cargo se centra en servir al país a través de una impartición de justicia federal eficiente y transparente. Su visión incluye una justicia sin corrupción, cercana a la sociedad, y propone garantizar el acceso a la justicia para todos los ciudadanos, reducir los tiempos de espera en la resolución de casos, aumentar la transparencia y erradicar la corrupción en el sistema judicial.  Su curriculum vitae detallado está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AlfredoYsraelMejíaAnaya
+- https://www.x.com/AlfredoYsraelMejíaAnaya
+- https://www.instagram.com/AlfredoYsraelMejíaAnaya
+- https://www.tiktok.com/AlfredoYsraelMejíaAnaya
+
+
+## Cursos
+
+- CURSO BÁSICO DE FORMACIÓN Y PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA  ESTUDIOS DE ESPECIALIDAD,CONSTANCIA DE APROBACIÓN DE EXAMEN PARA ACCEDER A LA CATGORIA SECRETARIO DE TRIBUNAL COLEGIADO O JUZGADO DE DISTRITO,CONSTANCIA DE APROBACIÓN DE EXAMEN PARA ACCEDER A LA CATGORIA ACTUARIO EL PODER JUDICIAL DE LA FEDERACIÓN
+- ,CONSTANCIA DE ACREDITACIÓN DEL CURSO ACTUARIOS MODALIDAD VIRTUAL,CONSTANCIA DEL CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54582/11
+
+
+## Trayectoria Academica
+
+- Primaria promedio final 8
+- 0
+- Secundaria promedio final 98
+- Escuela Preparatoria 91
+- 5, Licenciatura en derecho 95
+- 07
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la firme intención de servir a mi país en una verdadera, eficiente y trasparente impartición de justicia federal
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una justicia sin corrupción, cercana e inmediata con la sociedad, trasparente, efectiva y
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi propuesta de visión judicial de la impartición de justicia se centra en crear un sistema de justicia más eficiente, transparente y accesible para todos los ciudadanos, así como mejorar el sistema de justicia y fortalecer la independencia judicial en México.
+
+
+## Propuestas
+
+- Acceso a la justicia: garantizar que todos los ciudadanos tengan acceso a la justicia, sin importar su situación económica o social. Imparcialidad y transparencia: asegurar que la impartición de justicia sea imparcial y transparente, sin influencias políticas o económicas.
+- Reducción de los tiempos de espera: reducir los tiempos de espera para la resolución de los casos. Aumento de la transparencia: aumentar la transparencia en la impartición de justicia, a través de la publicación de sentencias y otros documentos.
+- Mejora la satisfacción ciudadana con el sistema de justicia. Participar activamente en la eliminación de la corrupción, erradicación total de la corrupción en el sistema de justicia en México.
+

@@ -1,0 +1,78 @@
+Nombre Candidato: YOLANDA LETICIA ESCANDON CARRILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 7223967192
+Correo Electronico: yleticcia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CNDH, Derecho penal, Derechos humanos, Diplomado., Especialidad, Grupos vulnerables, Instituto de la Judicatura Federal, Juicio de amparo, Maestría, Violencia de género, Violencia obstétrica
+Tags Propósito: acceso a la justicia, compromiso ciudadano, cultura de la legalidad, derechos humanos, educación cívica, grupos vulnerables, impartición de justicia, inclusión, justicia expedita, justicia integral, legalidad, procuración de justicia, reforma judicial, respeto al derecho ajeno., transparencia, voto popular
+
+
+## Descripción del Candidato 
+
+YOLANDA LETICIA ESCANCON CARRILLO es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado y cédula profesional, además de diversas especializaciones y maestrías en derecho penal, violencia de género y derechos humanos. Su trayectoria académica incluye la participación como conferencista en seminarios de la CNDH sobre temas de violencia obstétrica, género y grupos vulnerables.
+
+La candidata declara su vocación de servicio y compromiso con la impartición de justicia integral, transparente e inclusiva. Su visión sobre la reforma judicial la describe como un parteaguas para fortalecer el compromiso con la ciudadanía, buscando una justicia pronta, completa e imparcial. Sus propuestas incluyen el fomento de una cultura de la legalidad desde la educación básica, la difusión de las diferencias entre procuración e impartición de justicia, y el impulso de la inclusión y la priorización de grupos vulnerables dentro del sistema judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/yolandaleticiaescandon
+- https://x.com/lecandidata
+- https://www.instagram.com/yolandaleticiaescandon
+- https://www.tiktok.com/yleticciacandidata
+
+
+## Cursos
+
+- 1
+- Maestría en derecho penal,2
+- Maestría en violencia de género,Especialidad en derechos humanos,4
+- Diplomado del juicio de amparo,5
+- Especialidad en amparo Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53139/10
+
+
+## Trayectoria Academica
+
+- Conferencista en diversos seminarios de la CNDH por violencia obstétrica, violencia de género y grupos vulnerables
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de servicio y el compromiso de impartir justicia integral , trasparente e, inclusiva
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La reforma judicial implica un parteaguas en la vida jurídica del país y de las personas juzgadoras, pues por primera vez serán elegidas por voto popular. De ese modo se obliga a tener un compromiso con el pueblo, pero sobre todo, una obligación de mejorar cada día de manera personal y conjunta, para sembrar el camino por el cual transitaremos éstas y las generaciones que nos pisan los talones, con la esperanza de lograr una justicia expedita, completa, imparcial y clara.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Son muchos los retos que enfrentamos como país para lograr que la impartición de justicia sea integral, pronta y expedita; la reforma judicial es un paso firme, que deberá complementarse con muchos otros aspectos para adicionar y analizar las leyes secundarias, para que con apego a la legalidad se atienda el reclamo popular aterrizado en el artículo 17 constitucional, es decir, el derecho a una justicia pronta, gratuita y expedita.
+
+
+## Propuestas
+
+- Se requiere una cultura de la legalidad que tendría que incluirse desde el preescolar, para conocer primero nuestras obligaciones y los derechos básicos y elementales, tanto frente a los actos arbitrarios de la autoridad, como de otras personas en el derecho privado. Ejecutar la máxima del benemérito de las Américas; Entre los individuos, como entre las naciones, el respeto al derecho ajeno es la paz.
+- Dentro de esa cultura de la legalidad, realizar campañas de difusión con el propósito de mostrar a la ciudadanía las diferencias básicas entre la procuración de justicia (procuradurías) y la impartición de justicia (órganos judiciales); y en las escuelas tener una materia de derechos humanos básicos
+- Impulsar la inclusión en la justicia y priorizar grupos vulnerables
+

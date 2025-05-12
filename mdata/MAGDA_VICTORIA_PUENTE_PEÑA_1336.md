@@ -1,0 +1,79 @@
+Nombre Candidato: MAGDA VICTORIA PUENTE PEÑA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8135915263
+Correo Electronico: magdavictoriapuente@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada UANL, Amparo, Defensa Pública Federal, Derecho Penal, Doctorado., Formación Poder Judicial, Formación a Distancia, Habilidades Pedagógicas, Juicio de Amparo, Perspectiva de Género, Protocolo de Estambul
+Tags Propósito: Acceso a la justicia, Ciudadanía, Corrupción, Derechos, Eficiencia, Empatía, Equidad, Humanidad, Impartición de justicia, Justicia, Proceso judicial., Profesionalismo, Resolución de casos, Rezago judicial, Sentencias, Tiempo de respuesta, Transparencia, Victimización
+
+
+## Descripción del Candidato 
+
+Magda Victoria Puente Peña es candidata a Magistratura de Tribunales Colegiados de Circuito en Nuevo León, postulándose para los poderes Ejecutivo, Judicial y Legislativo Federal. Es abogada por la UANL con Maestría en Derecho Penal, especialidad en Amparo, y actualmente estudiante de doctorado. Cuenta con formación continua en áreas como formación de Secretarios del Poder Judicial, habilidades pedagógicas a distancia, perspectiva de género, protocolo de Estambul y el Nuevo Juicio de Amparo.
+
+Su motivación para buscar el cargo es proteger los derechos de las personas a través de sentencias justas, humanas, profesionales y eficientes. Su visión se centra en reducir el rezago judicial y acortar los tiempos de resolución de los casos. Sus propuestas incluyen considerar cada caso individualmente, disminuir el tiempo de emisión de sentencias (actualmente superior a 2 años en algunos casos) y mantener una puerta abierta para recibir denuncias de corrupción por parte de los intervinientes en los procesos a su cargo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/14v4h57rSw/
+- https://x.com/MagdaVictoriaP
+- https://www.instagram.com/mvictori7?igsh=ZjIyZXR6amNrNXZn
+- https://www.tiktok.com/@magda.victoria.pu
+
+
+## Cursos
+
+- Curso básico de formación y preparación de Secretarios del Poder Judicial de la Federación, generación 2019
+- ,CURSO DESARROLLO DE HABILIDADES Y HERRAMIENTAS PEDAGÓGICAS PARA ESQUEMAS DE FORMACIÓN A DISTANCIA
+- 6TA EDICIÓN,Simposio Regional en Actualización en Perspectiva de Género para personas Operadoras Jurídicas
+- ,CURSO AUTOGESTIVO SOBRE EL PROTOCOLO DE ESTAMBUL Y LA DEFENSA PÚBLICA FEDERAL,EL NUEVO JUICIO DE AMPARO EN EL SISTEMA JURÍDICO MEXICANO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54805/10
+
+
+## Trayectoria Academica
+
+- Abogada por la UANL, Maestría en Derecho Penal , especialidad en Amparo, estudiante del ultimo semestre del doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero tener la oportunidad de proteger tus derechos a través de sentencias justas, humanas, profesionales y eficientes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Abatir el rezago judicial que tanto afecta a las personas que piden justicia y como consecuencia acotar el tiempo en el que a un justiciable (persona que acude al poder judicial federal, para que se le respeten sus derechos) obtiene su sentencia; no reponer los procedimientos en los asuntos en los que si puede haber pronunciamiento sobre el planteamiento de fondo (responsabilidad penal, en amparo directo).
+
+
+## Vision sobre la Imparticion de Justicia
+
+Cuento con los conocimientos necesarios para ocupar el cargo para el que me postulo, lo cual me permitiría cumplir con mi ideal sobre la impartición de justicia a fin de dictar sentencias equitativas y humanas, para que el sistema de justicia proteja a todas y todos por igual, teniendo como eje rector el profesionalismo y la empatía.
+
+
+## Propuestas
+
+- De ser electa como magistrada, mi compromiso con la ciudadanía es no ver el asunto que resuelvo como un número, para sacar la cuota de sentencias, como en muchas ocasiones sucede en la actualidad; por el contrario, resolvería cada caso sin perder de vista que atrás de esa demanda de amparo directo, de esa audiencia, recurso de queja o de revisión y de ese expediente, esta una persona que acude al poder judicial federal como su última oportunidad para recibir justicia.
+- Reducir el tiempo en el que se dicta sentencia, el cual, en la actualidad en algunos casos es superior a 2 años.
+- De ganar las elecciones, tendría puerta abierta para escuchar a los intervinientes en los procesos a mi cargo, para que en caso de que sean victimas de un acto de corrupción tengan la oportunidad de informarme, a fin de notificar a la autoridad pertinente para que emita la sanción correspondiente.
+

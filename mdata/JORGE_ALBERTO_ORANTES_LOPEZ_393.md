@@ -1,0 +1,77 @@
+Nombre Candidato: JORGE ALBERTO ORANTES LOPEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 5518505189
+Correo Electronico: jorgeorantes@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Ciencia Política, Derecho, Derecho Constitucional, Doctorado, Judicatura Federal, Justicia Electoral, Maestría, Procedimientos Orales, Tribunal Electoral, U. San Marcos, Universidad Autónoma de Chiapas, Universidad Leonardo Da Vinci.
+Tags Propósito: capacitación, ciudadanía, diálogo, eficiencia, honestidad, humanidad, humildad, innovación tecnológica, inteligencia artificial, justicia, justicia abierta, lenguaje inclusivo., neutralidad, objetividad, sensibilidad, transparencia, vulnerables
+
+
+## Descripción del Candidato 
+
+Jorge Alberto Orantes López es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para el estado de Chiapas. Cuenta con un alto nivel de escolaridad, incluyendo doctorados en áreas relacionadas con el Derecho y la Justicia. Su trayectoria académica se centra en Derecho, Justicia Electoral y Ciencias Políticas, con especialización en procedimientos orales y amparo.
+
+El candidato expresa su motivación para el cargo como una vocación por la impartición de justicia, basada en la honestidad, la humildad y el profesionalismo. Sus propuestas incluyen una mayor conexión con la ciudadanía a través de la transparencia y el lenguaje accesible, un enfoque sensible y humano en la administración de justicia, y la implementación de innovación tecnológica para mejorar la eficiencia y reducir el rezago administrativo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Jorge-Orantes/61573867744707/?sk=about
+- https://x.com/JorgeAOrantes
+- https://www.instagram.com/jorgeorantes_l?igsh=c2d4cjU2ejkxODdq
+- https://www.tiktok.com/@jorge.orantes229
+
+
+## Cursos
+
+- Licenciado en Derecho, por la Facultad de Derecho de la Universidad Autónoma de Chiapas (graduado mención Honorifica),Especialidad en Secretaría de Estudio y Cuenta en el Instituto de la Judicatura Federal,Especialidad en Justicia Electoral en el Centro de Capacitación del Tribunal Electoral del P
+- Judicial de la Federación,Maestrías en Derecho Constitucional y Amparo, en la Universidad Lesant de México y en Derecho Constitucional y Amparo,Doctorados en Procedimientos de Justicia Oral en Méx, Universidad Leonardo Da Vinci, Puebla y en Derecho, U
+- San Marcos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54494/10
+
+
+## Trayectoria Academica
+
+- Derecho; Espec:J Electoral y y Ciencia Pol;Maestrias:J Orales y y Amp;Doctorados: Proc: de J
+- Oral Mex y Der
+
+
+## Motivo para buscar el Cargo Publico
+
+Por vocación y pasión a la impartición de justicia con humildad y honestidad con sensibilidad y profesionalismo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Si tuviera que volver a nacer no dudaría un segundo en ser nuevamente juzgador, ya que para mí es mucho más que solemnidades y formalismos, pues es un diseño de vida que te permite poner en práctica la verdadera esencia de justicia que aprendimos de nuestros padres y las personas ciudadanas ejemplares que ante todo abanderaron los valores de la honestidad y la humildad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+No podemos perder de vista que una verdadera transformación del sistema de justicia implica conectar con la ciudadanía a través de un diálogo sencillo, eficaz y transparente acompañado de acciones firmes que protejan las clases y grupos más vulnerables.
+
+
+## Propuestas
+
+- Conectar con la ciudadanía a través de una justicia más abierta en la que el juzgador interactúe con la ciudadanía a través de medios presenciales y digitales en los que exponga de forma permanente su quehacer jurisdiccional a través de un lenguaje sencillo, inclusivo y sin tecnicismos.
+- Justicia consciente y sensible. El magistrado debe caracterizarse por un trato sensible hacia los ciudadanos, así como al personal a quien debe incentivar y promover su capacitación para que como resultado se imparta justicia objetiva, neutral y sobre todo humana.
+- Innovación tecnológica. La inteligencia artificial nunca remplazará a los jueces, sin embargo, el uso de tecnología es clave para facilitar la información y contribuir a una impartición de justicia más eficiente y que contribuya a eliminar el rezago administrativo, por lo que deben implementarse las acciones correspondientes.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: ANGEL ANTONIO LOPEZ SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7225127824
+Correo Electronico: angelantonio32@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Audiencias Laborales, CEP, Derecho Laboral, Derecho Procesal, Formación Judicial., Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, Oralidad, Perspectiva de Género, Seguridad Social, Suprema Corte, UAEMéx
+Tags Propósito: Cero Tolerancia., Combate a la Corrupción, Compromiso, Confianza Institucional, Derechos Laborales, Equilibrio Social, Estado de Derecho, Honestidad, Justicia Accesible, Justicia Laboral, Justicia Pronta, Plazos Legales, Rendición de Cuentas, Rigor Jurídico, Sensibilidad, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+ÁNGEL ANTONIO LÓPEZ SÁNCHEZ es candidato a Juez de Distrito en México, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Laboral y formación continua en áreas como seguridad social, juicio de amparo, perspectiva de género y oralidad, avalada por instituciones como la Suprema Corte de Justicia de la Nación y la Escuela Federal de Formación Judicial.
+
+Su motivación para el cargo es impartir justicia laboral con honestidad y compromiso social. Su visión se centra en garantizar una justicia pronta, imparcial y accesible, con énfasis en la transparencia, la rendición de cuentas, la reducción de tiempos de espera en los procesos judiciales y el combate a la corrupción. Se puede encontrar más información sobre su perfil y trayectoria en los enlaces proporcionados, incluyendo su currículum vitae y perfiles en redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.angelantoniolopez.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/angelantoniolopez.com.mx
+- https://www.x.com/@angelantonio_ls
+- https://www.instagram.com/angelantoniolopez.com.mx
+- https://www.tiktok.com/@angelantoniolopez.com
+
+
+## Cursos
+
+- Diplomado en Seguridad Social impartido por la Escuela Federal de Formación Judicial
+- ,Diplomado Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación
+- ,Seminario en Seguridad Social impartido por la Escuela Federal de Formación Judicial
+- ,Curso para juzgar con perspectiva de género en materia laboral impartido por la Escuela Federal de Formación Judicial
+- ,Taller de oralidad y conducción de audiencias laborales y construcción de la decisión judicial impartido por la EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53952/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho egresado de la UAEMéx y Maestro en Derecho Procesal Laboral por la CEP
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez para impartir justicia laboral con honestidad, sensibilidad y compromiso con la gente que trabaja.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar la justicia pronta, imparcial y accesible, protegiendo los derechos de todas las personas, fortaleciendo el Estado de Derecho y generando confianza en las instituciones mediante decisiones éticas, honestas y justas, fundamentadas y sensibles a la realidad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es ejercerla con honestidad, cercanía y rigor jurídico, para que cada persona, sin importan su origen, encuentre en los Tribunales una respuesta justa, humana y basada en la ley. Aspiro a que la justicia sea una herramienta de equilibrio social, no un privilegio de unos cuantos.
+
+
+## Propuestas
+
+- Transparencia y rendición de cuentas mediante la publicación de resoluciones y la justificación de las sentencias.
+- Reducción de tiempos de espera en los procesos judiciales, ajustandose a los plazos que marca la Ley.
+- Combate a la corrupción, cero tolerancia a la compra de fallos y beneficios para unos cuantos.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: IVAN HUMBERTO PANTOJA ARREDONDO
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 9515929680
+Correo Electronico: ivan.pantoja.arredondo@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Justicia, Asesoría Jurídica, Derechos Humanos, EFFJ, Juicio de Amparo, Licenciatura en Derecho, Maestría en Amparo, SCJN., Secretariado Judicial, UNAM
+Tags Propósito: Accesibilidad, Capacidad, Capacitación, Confianza, Corrupción, Declaración Patrimonial, Derechos Humanos, Eficacia, Excelencia Judicial., Expedientes Judiciales, Honestidad, Imparcialidad, Justicia, Nepotismo, Preparación, Responsabilidad, Rezago Judicial, Servir, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+IVAN HUMBERTO PANTOJA ARREDONDO es candidato a Jueces/as de Distrito en Oaxaca, postulando a través del Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con Maestría en Amparo y se formó en la Facultad de Derecho de la UNAM. Ha realizado diversas especializaciones y diplomados en áreas como Derechos Humanos, Juicio de Amparo y Acceso a la Justicia, así como cursos de formación para Secretarios del Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo público se basa en su vocación de servicio a México, destacando su honestidad y preparación. Propone una justicia cercana a la gente a través de la difusión de servicios legales y la transparencia en el actuar de los jueces, una justicia pronta mediante el control del rezago judicial y la capacitación del personal, y una lucha contra la corrupción y el nepotismo mediante la publicación de declaraciones patrimoniales y la regulación de la contratación de familiares en el ámbito judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AHtWA5NFj/
+- https://www.instagram.com/ivanpantoja.abogado?igsh=MXVyNm5raXhzbGNrNw==
+- https://www.tiktok.com/@ivan.h.pantoja?_t=ZM-8uxSls2ndig&_r=1
+
+
+## Cursos
+
+- Epecialidad en el Curso para Formación y Preparación de Secretarios del Poder Judicial de la Federación,Especialización en Asesoría Jurídica en el Instituto Federal de Defensoría Pública
+- ,Diplomado en Derechos Humanos
+- ,Diplomado en Juicio de Amparo, impartido por la SCJN en la Casa de la Cultura Jurídica en Oaxaca
+- ,Diplomado en Acceso a la Justicia en Materia de Derechos Humanos, impartido por la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54482/11
+
+
+## Trayectoria Academica
+
+- Me titulé como licenciado en derecho en la Facultad de Derecho de la UNAM y estudié una Maestría en Amparo en la EFFJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo vocación de servir a México; soy una persona honesta, incorruptible, sensible, estudioso, preparado y capaz
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La protección de los derechos humanos debe estar a cargo de personas preparadas, con vocación de servir, independientes, eficaces, honestas e incorruptibles, que aspiren siempre a la excelencia judicial. Los juzgadores deben ser profesionales y sensibles a los problemas sociales, accesibles a la gente, quienes deben administrar justifica de manera pronta, completa e imparcial. Para ser juzgador se requiere de una continua preparación en beneficio de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser impartida con responsabilidad y seriedad por personas debidamente capacitadas, quienes deben resolver de manera pronta, completa e imparcial cada caso que se les presente, porque ello es el camino para recuperar confianza en la sociedad. La impartición de justicia debe estar a cargo de personas honestas, con manos limpias, que sirvan al pueblo y no tengan intención de servirse de él. Por ello, la justicia debe ser transparente y accesible para todos.
+
+
+## Propuestas
+
+- Justicia cercana a la gente. La justicia debe ser accesible para todos, por ello, es necesario difundir los servicios de orientación, asesoría y representación jurídica que prestan las defensorías públicas local y federal, pues muchas personas desconocen de su existencia. De igual manera es necesario implementar mecanismos que permitan a los jueces dar a conocer el resultado mensual y anual de sus actividades, para que la sociedad pueda conocer y cuestionar su actuar.
+- Justicia pronta. Para que la justicia pueda impartirse de manera pronta es necesario implementar mecanismos o controles para evitar que el rezago judicial sea atribuible al personal de los órganos jurisdiccionales. Al margen de ello, deben existir cursos obligatorios de capacitación enfocados a la correcta integración de los expedientes judiciales físicos y electrónicos, así como la implementación de tecnologías enfocadas a reducir los tiempos en las actividades jurisdiccionales.
+- Lucha contra la corrupción y el nepotismo. Las personas juzgadoras deben tener las manos limpias, por tanto, es necesario que su declaración patrimonial sea pública y accesible, para que la sociedad pueda vigilar y verificar que no existan actos de corrupción. Por otra parte, se deben establecer mecanismos eficaces para evitar la contratación directa, o mediante triangulación, de familiares de jueces y magistrados en detrimento de la impartición de justicia y excelencia judicial.
+

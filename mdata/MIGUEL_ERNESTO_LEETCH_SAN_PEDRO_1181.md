@@ -1,0 +1,78 @@
+Nombre Candidato: MIGUEL ERNESTO LEETCH SAN PEDRO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7224557619
+Correo Electronico: mlsp90@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, CNDH, Defensa Penal, Derecho Penal, Derechos Humanos, EFFJ, Ejecución Penal, Elección Judicial, Formación Continua, Grupos Vulnerables, IJF, INDEPAC., Justicia Penal para Adolescentes, Licenciatura en Derecho, Maestría en Derecho
+Tags Propósito: Acceso a la justicia, Claridad, Confianza, Derechos Humanos, Digitalización, Equidad., Imparcialidad, Juicio justo, Justicia, Mecanismos Alternativos de Solución de Controversias, Paz social, Protección de derechos, Rendición de cuentas, Sentencias, Sistema Integral de Justicia Penal para Adolescentes, Sistema de Justicia Penal, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Miguel Ernesto Leetch San Pedro es candidato a Magistrado de Tribunales Colegiados de Circuito, postulando por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho, especializado en Justicia Penal para Adolescentes, y cédula profesional. Su formación incluye diversos diplomados y cursos en áreas como Derecho de Ejecución Penal, Defensa Penal, Derechos Humanos y Amparo, incluyendo la participación en el curso "El ABC de la Elección Judicial".
+
+El candidato manifiesta su motivación para buscar el cargo en el deseo de recuperar la confianza en la impartición de justicia y fortalecer los valores del Poder Judicial de la Federación. Su visión se centra en una función jurisdiccional accesible, pública, imparcial y transparente, maximizando la protección de grupos vulnerables. Sus propuestas incluyen consolidar el Nuevo Sistema de Justicia Penal, garantizar el acceso efectivo a la justicia a través de la eliminación de barreras y el uso de plataformas digitales, y promover la transparencia y rendición de cuentas en las decisiones judiciales, fortaleciendo las plataformas de consulta pública de sentencias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://miguelleetch.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/leetchm/
+- https://www.instagram.com/miguelleetch?igsh=bTYzMHR0enRvOGt2
+- https://www.tiktok.com/@miguelleetch?_t=ZM-8uy83wyvkSE&_r=1
+
+
+## Cursos
+
+- Diplomados en Derecho de Ejecución Penal impartidos por el IJF y EFFJ
+- ,Actualizaciones en Defensa Penal impartidos por el Instituto Federal de Defensoría Pública
+- ,Actualización en Justicia Penal para Adolescentes impartido por la EFFJ
+- ,Diplomados en Amparo, Derechos Humanos y Defensa de Grupos Vulnerables impartidos por la CNDH y EFFJ
+- ,Curso el ABC de la Elección Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53600/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UCC, Maestro en Derecho por el INDEPAC, especializado en Justicia Penal para Adolescentes
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo se recobre la confianza en la impartición de justicia y recuperar los valores del Poder Judicial de la Federación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe realizarse de manera accesible, pública, imparcial y transparente. Garantizando a cada persona el derecho a un juicio justo y estar debidamente informado durante todo el proceso, maximizando en todo momento la protección de los grupos más vulnerables. Se debe buscar la recuperación y fortalecimiento de la confianza de la sociedad, tomando decisiones claras, rápidas, basadas en el respeto a la ley y la protección de los Derechos Humanos en cada Proceso Judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Construir un sistema de justicia accesible, imparcial, transparente y cercano a la gente, donde cada persona sin importar su origen, sexo, identidad, orientación sexual, o, cualquier otra condición de vulnerabilidad, reciba un juicio justo acorde a sus necesidades, respetando sus Derechos Fundamentales. Priorizar el fortalecimiento de la confianza de la sociedad, asegurando que las decisiones judiciales sean claras, transparentes, rápidas y equitativas, propiciando la paz social.
+
+
+## Propuestas
+
+- Consolidar y perfeccionar el Nuevo Sistema de Justicia Penal, y las bases sobre las cuales fue diseñado. Pues, a pesar de que en la Federación dicho sistema opera desde el año 2014, aún permean criterios del Sistema Tradicional (más conocido como inquisitivo) dentro de la valoración probatoria, dado que muchos de sus operarios se formaron dentro de este último. Implementar en la Federación el Sistema Integral de Justicia Penal para Adolescentes.
+- Acceso efectivo a la justicia, garantizando que todas las personas sin importar su situación económica, entorno social, geográfico, cultural o vulnerabilidad, accedan a la justicia. Esto implica eliminar barreras económicas, burocráticas y culturales. Mejorando la proximidad del servicio judicial mediante plataformas digitales. En materia penal, propongo fortalecer las terminaciones anticipadas, salidas alternas y MASC (Mecanismos Alternativos de Solución de Controversias).
+- Transparencia y rendición de cuentas, garantizando que las decisiones judiciales sean comprensibles para la sociedad y estén fundamentadas de manera clara y precisa, con la finalidad de evitar especulaciones. Privilegiar el fortalecimiento y mejoramiento de las plataformas de consulta pública de sentencias, pues ello constituye una herramienta clave en este proceso.
+

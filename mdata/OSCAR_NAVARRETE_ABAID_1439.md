@@ -1,0 +1,77 @@
+Nombre Candidato: OSCAR NAVARRETE ABAID
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: sjdoscarnavarreteabaid@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Código de Procedimientos Penales, Derecho Fiscal, Derechos Fundamentales, Educación continua, Formación académica., Robert Alexy, Sociedad pacífica
+Tags Propósito: Análisis de Datos, Coordinación de Poderes, Cultura Jurídica, Derechos Humanos, Expedientes Electrónicos, Formación Continua, Imparcialidad, Independencia, Inteligencia Artificial, Interoperabilidad, Juicios en Línea, Justicia, Legislación Clara, Objetividad, Patrocinio Legal, Profesionalismo, Simplificación de Casos., Supervisión Ciudadana, Validez Sistemática
+
+
+## Descripción del Candidato 
+
+Oscar Navarrete Abaid es candidato a un cargo en el Poder Legislativo Federal, postulándose desde Puebla tras haber desempeñado funciones en las Magistraturas de Tribunales Colegiados de Circuito. Cuenta con un doctorado y acreditaciones en Derecho Fiscal y Nuevo Código de Procedimientos Penales, además de haber participado en conferencias sobre Derechos Fundamentales.
+
+Su motivación para buscar el cargo público se basa en aportar su experiencia y preparación profesional a la justicia mexicana. Su visión de la función jurisdiccional destaca la importancia de la objetividad, imparcialidad, y el respeto a los derechos humanos. Entre sus propuestas se encuentran la educación continua de funcionarios legislativos y judiciales en temas de derechos humanos y tecnología, la creación de organismos ciudadanos para la supervisión judicial, y la implementación de expedientes electrónicos y el uso de inteligencia artificial para agilizar los procesos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/oscarnavarrete13
+- https://www.instagram.com/naoxiv/
+- https://www.tiktok.com/@oscarnavarrete329
+
+
+## Cursos
+
+- Acreditación del curso: Diplomado en Derecho Fiscal,Acreditación del curso: Nuevo Código de Procedimientos Penales,Participación en Conferencia Magistral: Derechos Fundamentales, impartida por el Dr
+- Dr
+- h
+- c
+- mult, Robert Alexy
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54591/10
+
+
+## Trayectoria Academica
+
+- Una experiencia que me permitió comprender la naturaleza humana y el gran reto de construir una sociedad pacífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Por convicción de aportar mi criterio profesional resultado de experiencia y preparción a favor de la justicia mexicana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Comprendida como un ejercicio específico de juzgar y hacer cumplir la ley dentro de un proceso judicial, las y los juzgadores deben de observar los principios de objetividad, imparcialidad, profesionalismo e independencia. Adicionalmente considero que el juzgador en todo momento debe interpretar las leyes de la manera más favorable a los derechos humanos de la persona y toda deliberación debe de apegarse estrictamente a la validez sistemática para evitar la obstaculización de la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia concebida como una totalidad (la cual es más que la suma de sus partes) debe partir de una coordinación entre los tres poderes de la Unión, para que exista una legislación clara y precisa, que sea comprensible para el promedio de la población, deben de reducirse las contradicciones y los vacios legales, es decir, entender plenamente las reglas del juego antes del juego. Mejorar la sistematización del orden jurídico para evitar que dos asuntos similares tengan resoluciones diferentes.
+
+
+## Propuestas
+
+- Educación continua a todas y todos los funcionarios legislativos (i.e. directores jurídicos) que participan directa o indirectamente en el proceso legislativo con el objetivo de evitar la emisión de normas inconstitucionales o violatorias de los derechos humanos. Fortalecer la formación continua de jueces y funcionarios en derechos humanos, perspectiva de género y tecnología judicial.
+- Crear organismos ciudadanos que supervisen el desempeño judicial, con ello podrán participar las facultades de Derecho de todas las universidades del país, barras de abogados, etc., para ser testigos de las resoluciones judiciales. Promoción masiva de la cultura jurídica desde el bachillerato en todo el país para reducir el número de fraudes y extorsiones que sufre la población. Impulsar e incentivar a las y los abogados para incrementar el patrocinio de juicios
+- Implementar más expedientes electrónicos y juicios en línea para agilizar procesos,reducir costos y cuidar el medio ambiente. Mejorar la interoperabilidad entre sistemas judiciales y administrativos para evitar duplicidad de trámites y reducir el consumo de papel. Uso de inteligencia artificial y análisis de datos para optimizar la gestión de casos. Incrementar la publicación de manuales, formatos, guías, etc., con el objetivo de simplificar a las personas juzgadoras en el análisis de los casos.
+

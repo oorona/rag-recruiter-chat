@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN PABLO HERNANDEZ VENADERO
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3351203526
+Correo Electronico: juanpablohernandezvenadero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Amparo, Consejo de la Judicatura Jalisco, Derecho Constitucional, Derecho Electoral, Dirección de Tesis, Docencia, Doctorado, Judicatura Federal, Juicios Orales, Litigación Oral, Maestría, Publicaciones, SETEC, Sistema de Justicia Civil, Sistema de Justicia Familiar, Universidad, University of San Diego.
+Tags Propósito: acceso a la justicia, agilidad judicial, amparos, asesoría legal, atención ciudadana, comunicación judicial, corrupción, derechos, eficiencia judicial, familia, impunidad, inclusión, inteligencia artificial, jueces distritales, juicios en línea, juicios justos, justicia, justicia social, libertades, patrimonio, rendición de cuentas, resolución de conflictos, seguimiento ciudadano., transformación judicial, transparencia
+
+
+## Descripción del Candidato 
+
+Juan Pablo Hernandez Venadero es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con un Doctorado y una extensa formación en derecho, incluyendo especialidades en Derecho Constitucional y Amparo, certificación en Juicios Orales y estudios en Estados Unidos. Su trayectoria incluye experiencia como abogado, docente y director de tesis en la Universidad de Guadalajara y la Universidad Panamericana.
+
+Su motivación para buscar el cargo es acabar con la corrupción e impunidad, y garantizar el acceso a la justicia, especialmente para los más vulnerables. Propone transformar el Poder Judicial para que sea sensible a las necesidades ciudadanas, promoviendo la transparencia y la rendición de cuentas. Sus propuestas incluyen explicar las decisiones judiciales de manera accesible, regular el uso de amparos para agilizar los procesos y modernizar la plataforma de juicios de amparo con herramientas de inteligencia artificial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/HernandezJuanPablo
+- https://www.instagram.com/pablohdz_21
+
+
+## Cursos
+
+- Especialidad en Derecho Constitucional y Amparo, Universidad Panamericana campus Guadalajara,Certificación en Juicios Orales, SETEC Secretaría de Gobernación,Curso sobre el Nuevo Sistema de Justicia Civil y Familiar, Consejo de la Judicatura del Estado de Jalisco,Curso Básico de Formación y Preparación de Secretarios, Instituto de la Judicatura Federal,Curso de Litigación Oral para Jueces, Universityof San Diego School ofLaw, California, Estados Unidos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53552/11
+
+
+## Trayectoria Academica
+
+- Abogado por UdG, especialidad en amparo UP, maestría electoral, doctorado
+- Docente y publiqué artículos
+- Director tesis
+
+
+## Motivo para buscar el Cargo Publico
+
+Para acabar con los abusos, la impunidad y la corrupción, acceso a la justicia a todos privilegiando a los más humildes
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Poder Judicial que se transforma para impartir justicia con visión social, rendir cuentas, defender tus derechos y libertades, arrancando con los más necesitados. El pueblo elige a sus juzgadores para que pongan la técnica al servicio de TODOS, con inclusión. Te atenderé como mereces, escuchandote y tomando las mejores decisiones en favor de tu patrimonio y familia. La nueva cara del Poder Judicial sensible a tus necesidades con juicios más cortos y justos, nunca más corrupción e impunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia es algo muy serio, por ello los juzgadores debemos regresar a los distritos y a las comunidades, para escuchar las necesidades de las personas y darle seguimiento así como solución a sus planteamientos, porque somos representantes populares y juzgadores por lo cual nuestro deber es rendir cuentas. También habilitar números y correos electrónicos para darle seguimiento a las problemáticas y evitar traslados costosos así como canalizar con abogados y defensores los temas.
+
+
+## Propuestas
+
+- El sistema judicial ha sido un laberinto para la mayor parte de la gente que termina por decepcionarse, por ello hay que orientar al ciudadano. Propongo que los jueces expliquemos, dialoguemos, subamos videos explicando las decisiones a las personas de manera sencilla y práctica para legitimar nuestro trabajo y que las personas se sientan escuchadas, hay que acercarse más al ciudadan@ el juez además de ser una persona que decide debe ser una persona que escucha y atiende esa es la visión social.
+- Regular los amparos buscapies para que no entorpezcan la impartición de justicia, reglas para que no se abuse de esa figura que se usa para obtener información sobre embargos, lanzamientos o medidas cautelares, etc es importante dedicar ese tiempo en asuntos de la gente y con ello dedicarle mucho más tiempo a asuntos prioritarios que se pueden definir mediante acuerdos del órgano de asministración como amparos sobre temas de alimentos o temas de custodia, aseguramientos de cuentas bancarias, et
+- Ajustar la plataforma de juicios de amparo en línea para hacer a la según el tipo de conflicto, para hacerlos más ágiles, incorporar diferentes vías de solución de conflictos, a partir de inteligencia artificial (redes neuronales adversarias) desde amparos simplificados, amparos con conciliación, amparo tradicional, amparo penal, etc se trata de abatir el rezago y ofrecer soluciones justas y rápidas para todos.
+

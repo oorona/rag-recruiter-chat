@@ -1,0 +1,74 @@
+Nombre Candidato: ALFREDO LOPEZ RUEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: 2221861747
+Correo Electronico: alfredomzt@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, BUAP, Debido Proceso, Derechos Humanos, Educación Jurídica, Especialización., Función Jurisdiccional, Juicio de Amparo, Licenciatura en Derecho, Notario, Prisión Preventiva, Secretaría de Juzgado, Seguridad Social, Tribunal de Circuito
+Tags Propósito: Acceso a la Justicia, Artículo 17, Capacitación, Derecho, Eficiencia Judicial, Evaluación, Impartición de Justicia, Jurisdicción, Justicia, Pensamiento Crítico, Principios y Valores., Productividad, Profesionalización, Solución de Conflictos, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alfredo López Rueda es candidato a Magistrado de los Tribunales Colegiados de Circuito en Tlaxcala, postulándose desde el Poder Judicial de la Federación. Licenciado en Derecho por la Benemérita Universidad Autónoma de Puebla, cuenta con cédula profesional y ha realizado diversos cursos de especialización en áreas como secretaría de juzgado, derechos humanos, y función jurisdiccional.
+
+Su motivación para buscar el cargo es servir a México impartiendo justicia, con un enfoque en la protección de los más vulnerables.  Propone elegir a personas juzgadoras con experiencia práctica y principios sólidos, invertir en su capacitación continua a través de un sistema de evaluación integral, y adoptar políticas que mejoren la productividad de los órganos jurisdiccionales. Su visión para la función jurisdiccional y la impartición de justicia se centra en un sistema rápido, completo y expedito, que garantice la verdad y la confianza de los ciudadanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AlfredoHijodeTlahuicole
+- https://x.com/alfredlrueda
+- https://www.instagram.com/alfredolrueda
+- https://www.tiktok.com/@alfredohijodetlahuicole
+
+
+## Cursos
+
+- Especialidad en Secretaria de Juzgado de Distrito y Tribunal de Circuito, Decima Primera Generación,Diplomado en Seguridad Social,Diplomado en Alta Especialización en Derechos Humanos, Prisión Preventiva y Debido Proceso,Curso de Nociones Generales del Juicio de Amparo,Diplomado en Introducción a las Función Jurisdiccional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54173/10
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO, NOTARIO Y ACTUARIO  BENEMERITA UNIVERSIDAD AUTONOMA DE PUEBLA
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a mi país a través de la impartición de justicia, equilibrando la balanza a favor del más vulnerable.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+México necesita juzgadores no solo con conocimiento jurídico, sino con experiencia en la función jurisdiccional, que conozcan las herramientas necesarias para interpretar las leyes, aplicar el derecho e impartir justicia, equilibrando la balanza a favor del más vulnerable, y sobre todo entendiendo que la justicia debe ser pronta, completa y expedita, tal como lo establece el artículo 17 constitucional, para lo cual es indispensable privilegiar la solución de fondo de los asuntos planteados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en un México en el que todas y todos los Mexicanos cuenten con una verdadera impartición de justicia, que la razón se le dé a quien verdaderamente la tenga, que cuente con leyes que permitan que los procesos judiciales sean acelerados y que los gobernados confíen en su sistema de justicia.
+
+
+## Propuestas
+
+- Elegir a personas juzgadoras con práctica en la función jurisdiccional, así como con principios y valores.
+- Capacitar de manera constante a las personas juzgadoras; es decir, la profesionalización, impulsarla a través de un sistema de evaluación de resultados desde una perspectiva práctica, argumentativa y teórica para favorecer el pensamiento crítico.
+- Adoptar políticas y medidas para detectar y atender prioritariamente las necesidades de los órganos jurisdiccionales, a fin de garantizar mayor productividad al interior de estos.
+

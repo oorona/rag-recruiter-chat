@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN CARLOS PEREZ MUÑOZ
+Cargo: Juezas/es de Distrito
+Entidad: COLIMA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: juancarlos.perezmunoz25@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Experiencia Judicial, Inglés, Juicio de Amparo, Juzgados de Distrito, PJF, Suprema Corte, TOEFL, Tribunal, Tribunales Colegiados
+Tags Propósito: Accesibilidad, Agilización de Procesos, Colima, Compromiso Social, Confianza Ciudadana, Derechos Humanos, Digitalización, Dignidad, Eficacia, Equidad, Estándares Internacionales, Humanización de la Justicia, Igualdad., Imparcialidad, Impunidad, Innovación, Juez, Justicia, Justicia Social, Protección de Vulnerables, Reforma Judicial, Resolución de Conflictos, Transparencia, Violencia de Género
+
+
+## Descripción del Candidato 
+
+JUAN CARLOS PEREZ MUÑOZ es candidato a Juez de Distrito en Colima, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, además de haber realizado un Diplomado de Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación y cuenta con acreditación en inglés (TOEFL). Su trayectoria incluye haber sido Secretario de Tribunal del PJF con experiencia en Juzgados de Distrito y Tribunales Colegiados.
+
+Motivado por aplicar su experiencia en la justicia colimense, su visión se centra en la imparcialidad, innovación y justicia social, con énfasis en el respeto a los derechos humanos y la agilización de procesos a través de la reforma judicial. Sus propuestas principales son la humanización de la justicia, la agilización de procesos y el fortalecimiento de los derechos humanos, buscando una justicia accesible, transparente y que responda a las necesidades sociales de Colima.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574739776094
+- https://x.com/juancarlospm25
+- https://instagram.com/juancarlos.perezmu
+- https://www.tiktok.com/@juancarlos.perezmu
+
+
+## Cursos
+
+- Diplomado de Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación, a través de la Dirección General
+- ,Ingles (acreditación examen TOEFL)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54037/11
+
+
+## Trayectoria Academica
+
+- Secretario de Tribunal del PJF con experiencia en Juzgados de Distrito y Tribunales Colegiados en distintos circuitos
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco ser Juez en Colima para aplicar justicia con experiencia, transparencia y compromiso social ¡Una justicia cercana!
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se basa en imparcialidad, innovación y justicia social. Un juez debe interpretar la ley con sensibilidad ante las realidades de las personas. En Colima, priorizaré decisiones que respeten derechos humanos y usen herramientas de la reforma judicial para agilizar procesos. La justicia debe ser accesible. Como juez, garantizaré sentencias transparentes, equilibradas y oportunas, protegiendo a quienes más lo necesitan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es una justicia ágil, transparente y social que repare tejidos. La justicia debe ser ética, con enfoque en derechos humanos y uso estratégico de la reforma judicial. Priorizaré eficacia y equidad, garantizando acceso a mujeres víctimas de violencia y resolviendo disputas con conocimiento jurídico. La reforma 2024 es una oportunidad para devolver la confianza. Seré un juez que vea más allá del expediente, con resultados claros y que dignifiquen a nuestro estado.
+
+
+## Propuestas
+
+- Humanización de la justicia: Exige escuchar activamente a las partes, comprender las realidades locales y garantizar soluciones efectivas que respondan a las necesidades sociales. Esto implica accesibilidad, protección de grupos vulnerables y resolución expedita de casos. Fortalecer la confianza en el sistema judicial requiere sensibilidad, equidad y eficacia para consolidar una justicia cercana, empática y transformadora.
+- Agilización de procesos: Requiere la implementación de mecanismos eficientes que optimicen el tiempo en los procedimientos judiciales, minimizando la burocracia sin afectar la calidad de las resoluciones. Esto implica modernizar herramientas, digitalizar trámites y fortalecer la coordinación entre actores del sistema judicial, garantizando tiempos razonables, acceso oportuno a la justicia y mayor confianza en la eficacia institucional.
+- Fortalecimiento de derechos humanos: Garantizar que cada decisión judicial se fundamente en el respeto absoluto a los derechos humanos, combatiendo la impunidad y consolidando una justicia más justa, equitativa e incluyente. Esto exige jueces imparciales, normativas alineadas con estándares internacionales y mecanismos efectivos de protección, asegurando que la dignidad, igualdad y acceso a la justicia sean principios rectores en cada resolución.
+

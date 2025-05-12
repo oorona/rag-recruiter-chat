@@ -1,0 +1,76 @@
+Nombre Candidato: FEDERICO ANAYA GALLARDO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5519481042
+Correo Electronico: agallardof@hotmail.com
+Numero de lista en boleta: 36
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Antropología Política, Ciencias Políticas, Derechos Humanos, Diplomado, Educación Superior, Formación Abogado, Formación Politólogo, Maestría., Profesor Auxiliar, UASLP, UNACh, UNAM
+Tags Propósito: Acceso a la Justicia, Activismo Judicial, Carencias Sociales, Colaboración Interinstitucional, Corrector Judicial, Criterios de Atracto, Derechos Humanos, División de Poderes, Eficiencia Judicial., Federalismo, Guía de Interpretación Constitucional, Justicia Accesible, Litigio Constitucional, Prioridad Social, Pueblo, Salas Constitucionales Estatales, Suprema Corte, Transparencia
+
+
+## Descripción del Candidato 
+
+Federico Anaya Gallardo es candidato a la Suprema Corte de Justicia de la Nación, con número de lista 36. Abogado y politólogo con doctorado, cuenta con una amplia trayectoria académica como profesor auxiliar en diversas universidades públicas y privadas, incluyendo la UNAM, UASLP y UNACh.
+
+Su motivación para buscar el cargo se centra en aportar su experiencia en defensa de derechos humanos y una visión social a los debates de la Corte. Propone una Suprema Corte más accesible, transparente y preocupada por las carencias sociales, priorizando asuntos que afecten al pueblo. Aboga por una colaboración crítica entre los poderes de la unión, un debate abierto sobre el rol del Poder Judicial Federal en relación con los estados, y la transparencia en la selección de casos a tratar por la Corte.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/federico.anayagallardo
+- https://x.com/ANAYAFederico
+- https://www.tiktok.com/@federicoanayagallardo
+
+
+## Cursos
+
+- En 2017 cursé un diplomado en la Facultad de Ciencias Políticas y Sociales de la UNAM sobre Latinoamérica
+- ,De 2012 a 2024 he colaborado en la Maestría de Derechos Humanos de la UASLP como profesor auxiliar
+- ,Durante mi estancia en Chiapas, impartí la clase de Antropología Política en la UNACh en 1996 y 1997
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/36/6
+
+
+## Trayectoria Academica
+
+- Abogado y politólogo de formación, he enseñado en universidades públicas y privadas como profesor auxiliar
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi experiencia en defensa de derechos humanos en luchas populares aportará visión social a los debates de la Corte.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Juicio de Amparo es difícil de activar y aún más penoso de sostener. En general, las complejidades del litigio constitucional aumentan costos y dependencia de la ciudadanía frente a operadores jurídicos tradicionales. Así resulta que apenas llega al máximo tribunal un puñado de casos relevantes para los sectores populares. Necesitamos un tribunal constitucional más preocupado por las carencias sociales y que sea activista en favor de los derechos de todas y todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El caso de la lucha de los pueblos campesinos de Palmarejo, Acasico y Temacapulín contra la presa El Zapotillo en Jalisco nos demostró a toda la ciudadanía la importancia de combinar, en la defensa de derechos humanos, varias sedes: legislativa, judicial y ejecutiva. La división de poderes no es simple confrontación (como una visión superficial del principio argumenta) sino colaboración crítica entre las ramas del árbol generoso que debe ser el Gobierno de la República. La Corte no es una isla.
+
+
+## Propuestas
+
+- La Suprema Corte debe explicitar y transparentar los criterios con los que atrae casos. Su nueva conformación (sin salas) implica profundizar su papel como tribunal constitucional. Si ha de ser cabeza responsable de uno de los Poderes de la Unión, la Corte debe dar prioridad a asuntos que afectan al Pueblo y a los que más preocupan a la sociedad. Debe acercarse a ellos de manera razonada, razonable y clara. Sólo así será una efectiva defensa de los derechos humanos.
+- La Suprema Corte en su papel de tribunal constitucional debe ser una guía de interpretación seria y confiable para el resto de los poderes de la Unión y para los de las entidades federativas. Debe recordar que las altas cuestiones políticas tienen un fuerte componente de Derecho Constitucional. Por lo mismo, no es razonable que conflictos entre poderes o fuero de altos funcionarios tarden muchos meses en resolverse. Una Corte que se tarda no es ni seria ni confiable.
+- La Suprema Corte debe abrir y avanzar en el debate del  No es razonable que el Poder Judicial Federal se haya convertido en el corrector permanente y omnipresente de los poderes judiciales de los Estados. Deben considerarse los avances y obstáculos que han tenido las salas constitucionales de las entidades y colaborar, con respeto al principio federal, para la construcción de un sistema de Justicia accesible a la ciudadanía y que efectivamente garantice los derechos humanos.
+

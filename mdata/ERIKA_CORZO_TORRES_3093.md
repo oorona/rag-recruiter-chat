@@ -1,0 +1,78 @@
+Nombre Candidato: ERIKA CORZO TORRES
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4441133789
+Correo Electronico: erikacorzotorres@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación para Jueces, Capacitación para Juezas, Carrera Judicial, Código Nacional de Procedimientos Civiles y Familiare, Licenciatura en Derecho, Oralidad Mercantil, Pasantía, Proceso Oral Civil, Proceso Oral Familiar, Proceso Oral Mercantil, Secretaria de Acuerdos.
+Tags Propósito: Acceso a la Justicia, Capacitación, Celeridad, Derecho Digital, Derechos Humanos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Imparcialidad, Inclusión., Juicios Orales, Justicia, Legalidad, Modernización, Paz Social, Perspectiva de Género, Profesionalización, Resolución de Conflictos, Transparencia
+
+
+## Descripción del Candidato 
+
+Erika Corzo Torres es candidata a Jueza/es de Distrito en San Luis Potosí, postulada por el Poder Ejecutivo Federal. Es Licenciada en Derecho por la UASLP, con cédula profesional y trayectoria en el Poder Judicial del Estado de San Luis Potosí, actualmente como Secretaria de Acuerdos.
+
+Su motivación para buscar el cargo se basa en su vocación por la justicia y experiencia. Su visión se centra en una función jurisdiccional independiente, imparcial y apegada a la ley, así como en una impartición de justicia transparente, eficiente e incluyente. Sus propuestas incluyen la digitalización y modernización del sistema judicial, el fortalecimiento de la capacitación continua del personal judicial y el impulso de la oralidad para agilizar los procesos y mejorar el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/erika.c.torres.7
+- https://www.instagram.com/licenciadaerikacorzotorres2025?igsh=MWxlcm02a3cwM2czNw3D3D&utm_source=qr
+- https://www.tiktok.com/@erikacorzotorre77?_t=ZM-8v3yZu3ijqf&_r=1
+
+
+## Cursos
+
+- Curso en Oralidad Mercantil con base en el Programa Nacional de Capacitación para Jueces en Materia Oral Mercantil
+- 2020,Segundo Programa Nacional de Capacitación para Juezas, Jueces, Magistradas y Magistrados en Mercantil de Proceso Oral
+- 21,Diplomado en Procesal Oral Civil y Familiar
+- Código Nacional de Procedimientos Civiles y Familiares
+- 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52920/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la UASLP, con pasantía en despacho
+- Carrera judicial en el PJESLP, hoy Secretaria de Acuerdos
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi vocación por la justicia y experiencia me han preparado para asumir este nuevo reto garantizando resoluciones justas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser ejercida con independencia, imparcialidad y apego a la ley y a las convenciones internacionales, garantizando la correcta aplicación del derecho y sus principios para resolver los conflictos de manera justa y equitativa. Su objetivo es salvaguardar el estado de derecho, asegurando que las decisiones judiciales sean oportunas, fundamentadas y accesibles para la sociedad, promoviendo la confianza en los Tribunales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser transparente, eficiente e incluyente, basada en los principios de legalidad, equidad y respeto a los derechos humanos. Es fundamental que el sistema judicial responda a las necesidades de la sociedad con celeridad y sensibilidad, priorizando la resolución de conflictos mediante mecanismos que fomenten la paz social y el acceso efectivo a la justicia para todas las personas, sin discriminación.
+
+
+## Propuestas
+
+- Que la digitalización y modernización del sistema judicial, llegue a todos los tribunales, incluyendo a los órganos judiciales que se encuentran en Municipios o Comunidades. Esto reduciría tiempos procesales, costos y facilitaría el acceso a la justicia para todos, con mayor eficacia y transparencia
+- capacitación y profesionalización continua. Fortalecer la formación de jueces, secretarios y personal judicial, en temas como derecho digital, perspectiva de genero y métodos alternativos de solución de conflictos, para garantizar resoluciones mas justas y acordes con la evolución social.
+- impulso de la oralidad. Optimar la aplicación de juicios orales en todas las materias, reduciendo formalismos innecesarios y fomentando la inmediatez en la solución de controversias, para brindar respuestas mas rápidas a la ciudadanía, rediciendo costos
+

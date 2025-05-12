@@ -1,0 +1,81 @@
+Nombre Candidato: JAIME LANDEROS DUEÑAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: 4495114885
+Correo Electronico: lic.landerosd@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Defensa Pública Federal, Derecho Internacional del Trabajo, Derecho Laboral Procesal, Derecho del Trabajo, Espacios Libres de Violencia, Género, Igualdad, Justicia Laboral, Maestría en Derecho, Maestría en Derecho Constitucional, Protocolo de Estambul, UNAM, Universidad Panamericana
+Tags Propósito: acceso a la justicia, autonomía, confianza pública, conflictos de interés, corrupción, defensoría pública, derechos fundamentales, derechos humanos., desarrollo jurídico, eficiencia, equidad, estado de derecho, grupos vulnerables, imparcialidad, justicia, justicia laboral, nepotismo, resolución de conflictos, selección de jueces, sistema judicial, transparencia, ética
+
+
+## Descripción del Candidato 
+
+JAIME LANDEROS DUEÑAS es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en Aguascalientes. Cuenta con Maestría en Derecho y Derecho Constitucional y Amparo, así como diversas especializaciones en Derecho del Trabajo y cursos relacionados con la igualdad y la defensa de los derechos humanos. 
+
+Su motivación para buscar el cargo se basa en servir a la justicia promoviendo la equidad, la ética y el cumplimiento legal. Sus propuestas principales incluyen el fortalecimiento de la Defensoría Pública Federal, el combate a la corrupción y el nepotismo dentro del sistema judicial, y la creación de una Comisión Substanciadora autónoma para resolver asuntos laborales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574032412993
+- https://x.com/LicLanderosJ
+- https://www.instagram.com/licjaimelanderos/?igsh=MTRscW9mbG96Y21vcQ3D3D#
+- https://www.youtube.com/@JaimeLanderosDuenas
+- https://www.tiktok.com/@licjaimelanderos
+
+
+## Cursos
+
+- ESPECIALIDAD EN DERECHO DEL TRABAJO Y JUSTICIA LABORAL,CURSO AUTOGESTIVO SOBRE EL PROTOCOLO DE ESTAMBUL Y LA DEFENSA PÚBLICA FEDERAL
+- SEGUNDA EDICIÓN,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA   V,CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD
+- QUINTA EDICIÓN,CURSO DERECHO LABORAL PROCESAL Y DERECHO INTERNACIONAL DEL TRABAJO VIRTUAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53772/10
+
+
+## Trayectoria Academica
+
+- 1
+- Maestría en Derecho
+- Universidad Panamericana 2
+- Maestría en Derecho Constitucional y Amparo
+- UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la justicia promoviendo la equidad, la ética y el cumplimiento legal, fortaleciendo el sistema judicial en Mex
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es esencial para garantizar el estado de derecho y promover la justicia en la sociedad. Mi visión se centra en la imparcialidad, la eficiencia y la ética como pilares para resolver conflictos y proteger los derechos fundamentales. Aspiro a fortalecer la confianza pública en el sistema judicial a través de decisiones fundamentadas y transparentes, contribuyendo así al desarrollo de un entorno jurídico más equitativo y accesible para todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser el pilar que sostenga el equilibrio social, garantizando el respeto a los derechos humanos y el acceso igualitario a la resolución de conflictos. Mi visión se enfoca en una justicia imparcial, expedita y transparente, que inspire confianza en la ciudadanía y refuerce el estado de derecho. Aspiro a contribuir a un sistema judicial ético y eficiente, donde cada resolución sea un reflejo de los más altos valores de equidad y profesionalismo.
+
+
+## Propuestas
+
+- Implementación de la Defensoría Pública Federal Reforzar la Defensoría Pública Federal, ampliando su capacidad para brindar asesoría y representación legal gratuita a quienes no tienen los medios para contratar un abogado. Esto contribuye a garantizar el acceso a la justicia de grupos vulnerables y reduce la desigualdad en el ejercicio de derechos, incluso buscar los mecanismos para llegar al ámbito ¿rural¿.
+- Combate a la corrupción y el nepotismo Erradicar prácticas de corrupción y nepotismo dentro del sistema judicial; a través de la creación de una institución autónoma libre de presión tanto interna como externa y la implementación de mecanismos más estrictos de selección, evaluación y sanción de jueces y magistrados, se busca incrementar la confianza ciudadana en las instituciones judiciales.
+- Comisión substanciadora autónoma. La falta de autonomía del Comisión Substanciadora de resolver asuntos de carácter laboral dentro del mismo poder judicial de la federación, radica en el riesgo latente de parcialidad e influencia institucional; ya que este organismo pertenece al mismo poder judicial federal. Genera conflicto de intereses, afecta la imparcialidad y legitimación de sus resoluciones, sin garantizar plenamente los derechos de los trabajadores bajo el principio de justicia laboral.
+

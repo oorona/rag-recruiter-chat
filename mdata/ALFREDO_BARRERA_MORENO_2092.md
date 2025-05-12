@@ -1,0 +1,75 @@
+Nombre Candidato: ALFREDO BARRERA MORENO
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6563207226
+Correo Electronico: alfredbmor@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho Constitucional, Diplomado, Educación Jurídica., Facultad de Derecho, Trayectoria Académica, UNAM
+Tags Propósito: Acceso a la Justicia, Aplicación de la Ley, Bajos Recursos, Corrupción, Defensores de Oficio, Democracia, Discapacidad, Estado de Derecho, Experiencia, Función Jurisdiccional, Grupos Vulnerables, Honestidad, Igualdad ante la Ley, Imparcialidad, Juez, Justicia, Orden Social, Poder Judicial., Protección de Derechos, Publicidad, Rectitud, Rendición de Cuentas, Resolución de Conflictos, Sistemas Electrónicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Alfredo Barrera Moreno es candidato a Juez de Distrito en Chihuahua, postulándose a través del Poder Legislativo Federal. Licenciado en Derecho egresado de la UNAM con Diplomado en Derecho Constitucional y Amparo, cuenta con 37 años de experiencia profesional. Motiva su candidatura el deseo de servir a la nación aprovechando su trayectoria, honestidad y rectitud.
+
+Su visión de la función jurisdiccional enfatiza la imparcialidad, la aplicación estricta de la ley y la protección de los derechos humanos.  Sus propuestas incluyen reforzar la rendición de cuentas de los juzgadores mediante mecanismos transparentes, ampliar el acceso a la justicia para grupos vulnerables a través de un sistema eficaz de defensores de oficio y la implementación de sistemas electrónicos para el seguimiento ciudadano de los casos judiciales con el objetivo de prevenir la corrupción.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alfredo.barrera.5891
+- https://x.com/alfredbmor?s=21&t=fBjT3bJiK0Jfb3XolXs7og
+- https://www.instagram.com/alfredbmor?igsh=MTZpNW9jeHkxM3J0&utm_source=qr
+- https://www.youtube.com/@alfredbmor
+- https://www.tiktok.com/@alfredbarreram?_t=ZM-8v4IWRsGyyD&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Constitucional y Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52752/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Facultad de Derecho de la UNAM con Diplomado en Derecho Constitucional y Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser Juez me da la oportunidad de aprovechar 37 años de experiencia, honestidad y rectitud para poder servir a la nación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La Función Jurisdiccional es esencial en los sistemas democráticos para garantizar la resolución de conflictos, la protección de derechos y la aplicación de la Ley en forma imparcial y justa. Es contrapeso de otros poderes, debiendo mantenerse al margen de criterios políticos y atenerse únicamente a lo establecido por la Constitucional y los tratados afines con el fin de garantizar la protección de los derechos humanos y la imparcialidad ante la Ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La Impartición de Justicia es el deber que tiene el Poder Judicial para sentar las bases de un adecuado Estado de Derecho, coadyuvando a preservar el orden social, asegurando la protección de los derechos humanos y asegurando la igualdad ante la ley. Es el principio fundamental que busca ante todo armonizar la estructura jurídica del Estado entre los gobernados y entre los gobernados y el propio Estado.
+
+
+## Propuestas
+
+- Reforzar la vigilancia y apego a la ley por parte de los juzgadores estableciendo mecanismos de rendición de cuentas transparentes y accesibles y que sobre todo puedan ser consultadas por la ciudadanía.
+- Ampliar el acceso a la justicia mediante el fortalecimiento y modificación en su caso de un sistema eficaz de defensores de oficio, enfocado principalmente en el auxilio jurídico de personas con discapacidad, personas con bajos recursos y otros grupos vulnerables.
+- Implementación y publicidad de sistemas electrónicos capaces de dar a conocer en forma actualizada el estado que guardan los diversos asuntos que para su resolución lleva el Poder Judicial, accesibles por el ciudadano común, para su estudio, confrontación o escrutinio evitando así casos de corrupción en el sistema nacional de impartición de justicia.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: MARIA DEL CARMEN MONDRAGON RODRIGUEZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 5523368791
+Correo Electronico: eigor_car@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Internacional Público, Desigualdad Estructural, Doctorado en Derecho., Función Judicial, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Público, Materia Familiar, No Discriminación, Perspectiva de Género, Seguridad Social, Universidad Autónoma de México
+Tags Propósito: Administración de justicia, Capacitación, Carga laboral, Confianza social, Derechos fundamentales, Eficiencia, Equidad, Imparcialidad, Justicia, Personal jurisdiccional, Recursos financieros, Recursos humanos, Resolución de conflictos, Rezago judicial., Órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+MARÍA DEL CARMEN MONDRAGON RODRIGUEZ es candidata a Jueza/es de Distrito en Baja California, postulada por el Poder Legislativo Federal. Cuenta con Maestría en Derecho Público y actualmente es Doctorante, siendo Licenciada en Derecho por la Universidad Autónoma de México. Su trayectoria académica se complementa con diversos diplomados en áreas como Derecho Internacional, Seguridad Social y perspectiva de género en el ámbito jurídico.
+
+Su motivación para buscar el cargo es contribuir a la impartición de justicia y garantizar la igualdad en el trato a las personas. Su visión de la función jurisdiccional se centra en la administración objetiva, imparcial y equitativa de justicia, la protección de los derechos fundamentales y la resolución de conflictos. Sus propuestas incluyen la optimización de la gestión de asuntos, la creación de más órganos jurisdiccionales con mayor dotación de recursos y la implementación de capacitación continua para el personal jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/María del Carmen Mondragón Rodríguez
+
+
+## Cursos
+
+- Diplomado en Derecho Internacional Público
+- ,Diplomado en Seguridad Social
+- ,La Función Judicial y la no Discriminación como Desigualdad Estructural
+- ,Juzgar con Perspectiva de Género en Materia Familiar, Segunda Edición
+- ,La Perspectiva de Género y el Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54454/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad Autónoma de México; Maestra en Derecho Público y Doctorante en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir en la impartición de justicia y garantizar un trato igualitario para las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Está vinculada a la administración de justicia de manera objetiva, imparcial y equitativa; su finalidad es la protección de los derechos fundamentales de las personas; así como sancionar los actos o conductas contrarias a derecho; busca garantizar el cumplimiento del derecho y la resolución de conflictos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no solo se refiere a la resolución de conflictos de manera justa y eficiente, sino también al fortalecimiento de la confianza social y la protección de los derechos de todos los individuos.
+
+
+## Propuestas
+
+- Establecer un sistema de gestión de asuntos más eficiente para reducir la carga de trabajo y mejorar la atención de las personas usuarias.
+- Creación de más órganos jurisdiccionales en los lugares que tienen mayor carga laboral, lo cual ayudaría bastante para abatir el rezago que actualmente existe en la mayoría de juzgados y tribunales; así como el aumento de recursos humanos y financieros para garantizar que la administración de justicia tenga los medios necesarios para funcionar.
+- Implementación de cursos obligatorios de capacitación continúa para todo el personal que atiende funciones jurisdiccionales en los juzgados y tribunales.
+

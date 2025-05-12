@@ -1,0 +1,74 @@
+Nombre Candidato: PAVEL HUMBERTO NUÑEZ MORENO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6621726154
+Correo Electronico: pavelh_nm@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización profesional, Cédula profesional, Doctorado Honoris Causa, Doctorado en Derecho Penal, Doctorante en Administración Pública, Educación superior., Especialidad en Juicios Orales, Licenciatura en Derecho, Maestría en Derecho Procesal Penal, Universidad de Sonora
+Tags Propósito: Acceso a la Justicia, Cargas de Trabajo, Ciudadanía, Derechos de las Víctimas, Eficiencia, Humanismo, Imparcialidad, Justicia, Juzgadores, Malas Prácticas, Marco Normativo, Poder Judicial, Pronta Expedición, Reforma Judicial., Rezagos, Sensibilidad Social, Sistema Judicial
+
+
+## Descripción del Candidato 
+
+PAVEL HUMBERTO NUÑEZ MORENO es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal en Sonora. Cuenta con un alto nivel de escolaridad que incluye un Doctorado en Derecho Penal, Maestría en Derecho Procesal Penal y Especialidad en Juicios Orales, además de estar inscrito como doctorante en Administración Pública. 
+
+Su motivación para el cargo público se basa en rendir cuentas a la ciudadanía a través de un trabajo excepcional en favor de la comunidad.  Su visión de la función jurisdiccional y la impartición de justicia enfatiza la necesidad de un sistema judicial más accesible, empático con las víctimas y cercano a la gente, priorizando la actualización y erradicación de prácticas arcaicas. Sus propuestas centrales incluyen la protección prioritaria de los derechos de las víctimas, la agilización de los procesos judiciales y la eficiencia de los órganos jurisdiccionales para reducir el rezago.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15VyCTPB4Z/?mibextid=wwXIfr
+- https://x.com/pavelh_?s=21
+- https://www.instagram.com/pavelhnm/profilecard/?igsh=ZTZ4Zm42ODFicm54
+
+
+## Cursos
+
+- Doctorado Honoris Causa por la World  Organization,Doctorado en Derecho Penal   titulado y con cédula profesional,Maestría en Derecho Procesal Penal   titulado y con cédula profesional,Especialidad en Juicios Orales   titulado y con cédula profesional,Doctorante en Administración Pública Instituto Superior de Administración Pública de Sonora
+- (inscrito)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54563/10
+
+
+## Trayectoria Academica
+
+- Egresado de la licenciatura en derecho de la Universidad de Sonora en 2008; siempre en búsqueda de la actualización
+
+
+## Motivo para buscar el Cargo Publico
+
+La mejor forma de rendirle cuentas a la ciudadanía es realizando un trabajo excepcional en favor de la comunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El sistema judicial en México requiere un cambio profundo, en el cual los ciudadanos puedan realmente acceder a los servicios de justicia de una manera pronta y expedita, además de que el Poder Judicial debe ser cercano a la gente, empático con las víctimas y firme con aquellos ciudadanos que lastimen la conformación del tejido social; y para ello se requiere una nueva generación de juzgadores que dejen atrás los vicios y atavismos de un Poder Judicial que no se ajusta a nuestra realidad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia en México a menudo se confunde con legalidad, y parte de ello nos lleva a que el juzgador pierde la perspectiva de su labor, la cual debe desarrollar con un sentido humanista, cercano a la gente; sensible de los aspectos que rodean a cada controversia, para que de esa forma se pueda contar con Jueces, Magistrados y Ministros humanos, que puedan juzgar con sensibilidad social pero a la vez con apego al marco normativo; se deben erradicar las prácticas arcaicas de impartir
+
+
+## Propuestas
+
+- Poner siempre en una perspectiva prioritaria la atención a los derechos de las víctimas. Los criterios   han sido utilizado de manera desproporcionada a favor de delincuentes principalmente, lo cual en algunos casos incluso han llevado a su liberación; cuando el propósito de estos criterios se deben aplicar primordialmente en salvaguardar los derechos de aquellas personas que les han sido vulnerados su esfera jurídica; no se puede hacer justicia si se deja de lado a las víctimas.
+- Brindar una justicia que realmente sea pronta y expedita. Lamentablemente es muy común que los procesos judiciales sean tardados y deficientes; una justicia que llega tarde, no es justicia. Se deben sancionar a los juzgadores que no impulsen los procesos, siempre y cuando se deje a salvo la imparcialidad de este. El juzgador debe dejar de ser pasivo en el proceso y debe impulsar a las partes para que actúen sin dilaciones, incluso sancionar actos deliberados de este tipo.
+- Abatimiento del rezago y de malas prácticas al interior de los órganos jurisdiccionales. La constante en órganos jurisdiccionales de cualquier tipo es el exceso de cargas de trabajo, por diversos motivos, como falta de personal, insumos, entre otros; lo cual viene acarreando con el paso del tiempo un volumen alto de asuntos no atendidos; para ello, se deben replantear los diagramas de flujo de trabajo al interior de cada órgano jurisdiccional con el fin de eficientar los procesos al interior.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: NATHAN ESCAMILLA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 2223325157
+Correo Electronico: neithan.sug@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Cambio Climático, Derecho, Derecho Procesal, Derechos Humanos, Educación Continua, Innovación, Juicio de Amparo, Juicios Orales, Licenciatura, Maestría., Pensamiento Crítico, Posgrado, Protección de la Naturaleza, Sistema de Justicia Laboral
+Tags Propósito: Aplicación de la Ley, Confianza Pública, Decisión Judicial., Derechos Fundamentales, Eficiencia, Equidad, Imparcialidad, Juicio Justo, Justicia, Legalidad, Precedentes Legales, Proceso Legal, Resolución de Conflictos, Sistema Judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+NATHAN ESCAMILLA HERNANDEZ es candidato a Jueces/as de Distrito en Yucatán, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal y Juicios Orales, complementada por diversos diplomados y seminarios en áreas como protección de la naturaleza, derechos humanos, el nuevo sistema de justicia laboral y juicio de amparo.
+
+Su motivación para buscar el cargo se centra en contribuir al fortalecimiento del sistema judicial y servir a la sociedad. Propone generar confianza pública a través de un sistema judicial justo, eficiente y transparente; fomentar la correcta interpretación y aplicación de la ley; e impartir justicia de forma transparente, basando las decisiones en el marco legal vigente. Su visión se enfoca en un sistema rápido y eficiente que garantice un juicio justo y proteja los derechos fundamentales de las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574134555767&locale=es_LA
+- https://www.instagram.com/nathanescamillah/
+
+
+## Cursos
+
+- Diplomado Protección de la Naturaleza, Cambio Climático y Derechos Humanos, 2025
+- ,Diplomado Derechos Humanos: Aproximaciones para su Defensa, 2025
+- ,Seminario Pensamiento Crítico e Innovación UTEL, 2023
+- ,Seminario Especializado El Nuevo Sistema de Justicia Laboral, 2023
+- ,Diplomado Juicio de Amparo, 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53138/11
+
+
+## Trayectoria Academica
+
+- 2013 Licenciatura en Derecho 2022 Maestría en Derecho Procesal y Juicios Orales
+
+
+## Motivo para buscar el Cargo Publico
+
+Representa una oportunidad de servir a las personas y de contribuir a fortalecer la confianza en el sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Proporcionar un foro imparcial donde las partes puedan presentar sus argumentos y obtener una resolución justa y equitativa; esto se logrará a través de un proceso legal transparente, en el que se respeta el derecho a un juicio justo y se protegen los derechos fundamentales de las personas involucradas, garantizando con ello que se resuelvan de manera eficiente los conflictos
+
+
+## Vision sobre la Imparticion de Justicia
+
+Siempre he buscado que el sistema de justicia sea rápido y eficiente, evitando dilaciones innecesarias en los procedimientos, ya que la justicia no solo debe ser justa, sino también pronta, para que las personas no tengan que esperar años para obtener una resolución, al lograr esto se reduciría el riesgo de que los casos se prolonguen sin resolución y contribuya a la confianza de la sociedad en el sistema judicial.
+
+
+## Propuestas
+
+- Generar confianza pública en el sistema judicial, al ser justo, eficiente y transparente, con ello lograr una mayor disposición a respetar las decisiones judiciales y participación activamente en el sistema legal; por lo tanto, la impartición de justicia estará garantizada en las decisiones tomadas en los juicios para que sean justas, equitativas, transparentes y eficaces, protegiendo los derechos fundamentales de todos los individuos.
+- Fomentar la interpretación y aplicación adecuada de la ley, al garantizar que las leyes sean aplicadas de manera consistente y que las decisiones judiciales sean coherentes con los principios del derecho, proporcionando precedentes que guíen futuras decisiones legales.
+- Impartir justicia de forma transparente, las personas deben poder comprender cómo se toman las decisiones judiciales y cuál es el proceso para llegar a ellas, por tanto, garantizaré la legalidad de que todas las decisiones se basen en las leyes y principios jurídicos establecidos, sin que se dejen influir por intereses externos o personales.
+

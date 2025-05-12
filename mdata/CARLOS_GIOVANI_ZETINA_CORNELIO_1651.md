@@ -1,0 +1,74 @@
+Nombre Candidato: CARLOS GIOVANI ZETINA CORNELIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9931219945
+Correo Electronico: zetina.carlos09@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho Fiscal, Doctorado, Licenciatura, Maestría, UJAT, UVM
+Tags Propósito: acceso a la justicia, confianza pública, derechos fundamentales, diálogo ciudadano, expeditez, función jurisdiccional, instituciones, justicia, magistrados., modernización, procesos judiciales, razonamiento jurídico, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Giovanni Zetina Cornelio es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios concluidos de Doctorado en Derecho, además de Maestrías y Licenciatura en la misma área. Su motivación para buscar el cargo se basa en la oportunidad de incidir en la impartición de justicia en México.
+
+Su visión se centra en modernizar la función jurisdiccional a través de la tecnología para agilizar procesos y fortalecer la transparencia, promoviendo a la vez un acercamiento de los razonamientos judiciales a la ciudadanía. Sus propuestas principales incluyen fortalecer la confianza ciudadana mediante la divulgación del sentido de las resoluciones, el uso de tecnologías para expeditar los procesos y promover el diálogo entre el juzgador y la sociedad sobre la función jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100063538094468
+- https://www.instagram.com/carlosgzetina/
+- https://www.youtube.com/@carlosgiovanizetinac5262
+- https://www.tiktok.com/@carlosgiovanizetina
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55361/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho (UJAT); Maestro en Derecho Fiscal (UVM); Licenciado en Derecho (UJAT)
+
+
+## Motivo para buscar el Cargo Publico
+
+Representa un honor y oportunidad para incidir de manera significativa en la impartición de justicia en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se aspira a una jurisdicción moderna que utilice tecnologias que permitan por un lado agilizar los procesos y fortalecer la transparencia, y por el otro lado, la de que estas tecnologías permitan coadyuvar al juzgador en el acercamiento del razonamiento de las resoluciones a la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los magistrados deben ser agentes del cambio en la impartición de justicia y su función ineludibles es la de contribuir en el fortalecimiento de la confianza pública en el Poder Judicial mediante decisiones basadas en el respeto a los derechos fundamentales y a las normas vigentes; así tambien, en que la justicia debe seguir garantizando la transparencia de sus actuaciones y añadiría: promover el dialogo con la sociedad por medio de que estos conozcan el razonamiento detrás de las resoluciones.
+
+
+## Propuestas
+
+- Fortalecer la confianza ciudadana en las instituciones impartidores de justicia, a través del acercamiento o darles a conocer el sentido de las resoluciones.
+- Apoyarse en las tecnologías para ser expeditos en los procesos judiciales y en el acercamiento de los razonamientos judiciales a la ciudadanía.
+- El juzgador debe promover el dialogo con la sociedad sobre la función jurisdiccional.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: JOSE DE JESUS TORRES GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: nora.edii@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Diplomado., Impartición de Justicia, Juicio de Amparo, Maestría, Métodos Alternos de Solución de Conflictos, Nuevas Tecnologías, Universidad Panamericana, Universidad del Valle de México
+Tags Propósito: Capacitación judicial, Colaboración interinstitucional, Conciliación, Confianza, Corrupción, Derechos humanos, Digitalización, Dilaciones procesales, Enfoque social, Gestión de casos, Integridad, Inteligencia artificial, Justicia, Ley de Amparo, Mediación, Transparencia, Transparencia procesal., Ética
+
+
+## Descripción del Candidato 
+
+José de Jesús Torres González es candidato a Jueces/es de Distrito en Jalisco, postulado por el Poder Ejecutivo Federal. Cuenta con licenciatura y cédula profesional, actualmente cursando una maestría en la Universidad Panamericana. Su formación incluye diplomados en métodos alternos de solución de conflictos, derecho constitucional, prácticas del juicio de amparo, y cursos sobre nuevas tecnologías para la impartición de justicia.
+
+Torres González busca el cargo con el objetivo de construir un sistema judicial que inspire confianza y garantice justicia, enfocándose en erradicar la corrupción y promover la integridad y la ética. Sus propuestas incluyen el uso de plataformas digitales y herramientas de inteligencia artificial en los procesos legales, la implementación de metodologías de gestión de casos para reducir las dilaciones procesales, y el establecimiento de una mayor colaboración entre el Poder Judicial Federal y otros organismos públicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JesusTorresGonz
+- https://x.com/JJesusTorresGon
+- https://www.instagram.com/JesùsTorresGonzàlez_/
+- https://www.tiktok.com/@jesustorresgonzalez
+
+
+## Cursos
+
+- Diplomado en Métodos Alternos de Solución de Conflictos
+- ,Diplomado en derecho Constitucional,Congreso de Impartición de Justicia y Solución de Conflictos,Curso Nuevas Tecnologías para la Impartición de Justicia,Diplomado en Practicas del Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55055/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Universidad del Valle de México, actualmente, curso la maestría en la Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo firmemente en la posibilidad de construir un sistema judicial que inspire confianza y garantice justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es asumir, con responsabilidad la tarea de vigilar de cerca que se erradique todo acto de corrupción en el ejercicio de la función jurisdiccional. La integridad y la ética serán principios rectores en cada decisión, asegurando que el sistema judicial actúe con total honestidad y transparencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Implementar programas de capacitación permanente para jueces y magistrados, enfocados en la actualización jurídica y la aplicación de criterios con enfoque social y de derechos humanos y realizar talleres y seminarios sobre la realidad socioeconómica de las diferentes regiones del país.
+
+
+## Propuestas
+
+- Ampliar el uso de plataformas digitales para la presentación de pruebas y documentación y promover el uso de herramientas de inteligencia artificial para el análisis de jurisprudencia y la elaboración de proyectos de resolución. Así como de igual manera con esta misma directriz modificar el articulo 101 de la Ley de Amparo, para que así se obligue a que en la tramitación de recursos entre órganos del propio poder judicial federal toda remisión sea realizada de manera electrónica.
+- Implementar metodologías de gestión de casos que prioricen asuntos urgentes y reduzcan dilaciones procesales, así como crear mecanismos de mediación y conciliación más efectivos para resolver conflictos sin necesidad de llegar a juicios prolongados.
+- Establecer una mayor colaboración entre el Poder Judicial Federal y organismos públicos para el intercambio de información relevante en tiempo real.
+

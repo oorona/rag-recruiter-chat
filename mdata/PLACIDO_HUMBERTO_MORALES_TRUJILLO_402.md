@@ -1,0 +1,87 @@
+Nombre Candidato: PLACIDO HUMBERTO MORALES TRUJILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9613141121
+Correo Electronico: placidomoralestrujillo@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: ASILEGAL., Adolescentes, CONACYT, Derecho, Derecho de la Niñez, Derechos Humanos, Derechos de la Mujer, Doctorado en Derecho, Género, IIJ, Juicio de Amparo, Licenciatura en Derecho, Maestría en Educación, Procedimientos Civiles y Familiares, UNACH, UNAM
+Tags Propósito: Accesibilidad, Confianza, Constitución, Credibilidad, Democracia judicial, Diálogo, Experiencia, Imparcialidad, Juez cercano, Jurisdicción, Justicia, Litigio, Protección al justiciable., Responsabilidad, Sensibilidad, Sentido social, Sistema judicial, Valores
+
+
+## Descripción del Candidato 
+
+Plácido Humberto Morales Trujillo es candidato a Magistrado de los Tribunales Colegidos de Circuito en Chiapas, postulándose al Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho, así como diversas especializaciones en áreas como Derechos Humanos, Derecho Familiar, Juicio de Amparo y Derecho de la Niñez y Adolescencia. Su trayectoria académica incluye la docencia en la Universidad Autónoma de Chiapas.
+
+Motivado por acercar la justicia a la ciudadanía, Plácido Morales Trujillo propone un Poder Judicial más accesible y sensible a las necesidades de las personas. Sus propuestas se centran en fortalecer la credibilidad del sistema, fomentar el contacto directo entre juzgadores y justiciables, y promover una administración de justicia que considere tanto los principios legales como los valores personales, buscando jueces que vean personas, no expedientes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/placidomoralestrujillo
+- https://x.com/placidomt?s=11&t=h3QNZiDle5qg_mWumEW63A
+- https://www.instagram.com/placidomoralestrujillo/?igsh=YXNjNzZzOWRqZTBl&utm_source=qr#
+
+
+## Cursos
+
+- Diplomado en Código Nacional de Procedimientos Civiles y Familiares
+- INEF/FLD 2024,Diplomado en Juicio de Amparo
+- Suprema Corte de Justicia de la Nación
+- Julio
+- 2021
+- ,Diplomado en Derechos Humanos en la Práctica, ASILEGAL
+- Julio
+- 2021
+- ,Diplomado en Género y Derechos Humanos de las Mujeres, Universidad Autónoma de Chiapas
+- Marzo
+- 2021
+- ,Diplomado en Derecho de las Niñas, Niños y Adolescentes
+- Universidad Autónoma de Chiapas
+- Abril 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53854/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho PNPC CONACYT, Maestro en Educación, Licenciado en Derecho UNAM
+- Profesor del IIJ UNACH
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ser un juzgador sensible que acerque la justicia a las personas que recienten los problemas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional y específicamente la acción de juzgar es una de las actividades más complejas, que sólo quienes lo hacemos entendemos. En la mayoría de las resoluciones, la parte no beneficiada queda inconforme porque siente vulnerado un derecho, pero, además, el propio sistema propicia que el beneficiado tampoco queda satisfecho por el tiempo, el trato e indiferencia con que llevó su litigio. Se confundió la imparcialidad con la insensibilidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser aplicada con los principios que la Constitución nos establece, pero debe ser aplicada por juzgadores que en su interpretación también actúen con principios y valores personales. El fortalecimiento del Sistema de Impartición de Justicia en México pasa necesariamente por sus juzgadores y la democratización de las instituciones. Juzgadores con mayor sensibilidad social, que vean personas y no expedientes, harán la diferencia en la fortaleza del Sistema Judicial.
+
+
+## Propuestas
+
+- La construcción de la idea de que el Poder Judicial es inalcanzable, que es un grupo de intereses que solo atiende y beneficia a unos cuantos, se construyó en el colectivo social ante la vasta evidencia. La validación de actos de autoridad que afectan al grueso de la sociedad y beneficia a una minoría fue carcomiendo la credibilidad. Por eso se necesita un Poder Judicial cercano a la gente, en el que el justiciable tenga acceso no solo a las casas de justicia, sino al juzgador.
+- La indiferencia que ha caracterizado al Poder Judicial hacia los problemas de la gente tiene que detenerse. Por eso, el juzgador tiene que ser una persona preparada en lo académico, con experiencia en la jurisdicción, pero sobre todo con sensibilidad y contacto directo con la sociedad a quien juzgará. El juzgador debe ser conocido de los justiciables, reconocido en su familia, en su casa, en la sociedad, porque debe ser responsable de sus determinaciones ante sus semejantes y ante la ley.
+- La sospecha ronda a los juzgadores. Se pensó que la solución es que el juzgador fuera intocable para el justiciable ante la probable colusión. Pero esta aparente protección se convirtió en juzgadores inaccesibles a los que no se les puede hablar. El diálogo respetuoso con las partes es válido, la atención al justiciable por su juzgador no debe generar sospechas. Debe haber jueces honorables que atiendan a quien recurra a él, porque puede haber justicia imparcial, pero con sentido social.
+

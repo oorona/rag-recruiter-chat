@@ -1,0 +1,76 @@
+Nombre Candidato: PRISCILLA VELASQUEZ PLACENCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Demografía, Derecho, Doctorado, Frontera Norte, Justicia, Justicia Procedimental, Maestría, Niñez, Pisión Preventiva, Población, Políticas Públicas, Sistema Acusatorio Adversarial, Suprema Corte, U.S. Political Institutions., Valuación
+Tags Propósito: acceso a la justicia, derechos de la mujer, derechos humanos, dignidad humana, equidad, formación judicial, grupos vulnerables, igualdad, inclusión, justicia social, mujeres, observatorios independientes, procesos judiciales, rendición de cuentas., sistema jurídico, transformación social, transparencia judicial
+
+
+## Descripción del Candidato 
+
+Priscilla Velásquez Placencia es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Legislativo Federal para el estado de Baja California. Cuenta con formación académica de posgrado en Derecho y Políticas Públicas, incluyendo un Doctorado en Derecho.
+
+Su motivación para buscar el cargo se basa en su trayectoria como abogada y activista comprometida con la justicia social. Su visión de la función jurisdiccional y la impartición de justicia se centra en la dignidad humana, el acceso universal a la justicia, y especialmente en la garantía de los derechos de las mujeres y grupos vulnerables. Sus propuestas incluyen la formación continua en derechos humanos para el personal judicial, la creación de mecanismos para facilitar el acceso a la justicia a grupos vulnerables, y el aumento de la transparencia en los procesos judiciales relacionados con derechos humanos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15wt5fnYxN/?mibextid=wwXIfr
+- https://x.com/priscivelaplace?s=21&t=ndhrIbcZHjb8K2Gu2Q-NCg
+- https://www.instagram.com/priscillavp_
+
+
+## Cursos
+
+- U
+- S
+- POLITICAL INSTITUTIONS RELATIONS PROGRAM, UC San Diego School    Policy   Strategy,El futuro demográfico y poblacional en la Frontera Norte de México, Consejo Nacional de Población,La justicia procedimental y los derechos de la niñez, Suprema Corte de Justicia,El Sistema Acusatorio Adversarial y la Prisión Preventiva en México, Casa de la Cultura Jurídica,El acceso a una justicia adaptada
+- Experiencias desde América, Suprema Corte de Justica de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55010/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestría en Derecho, Maestría Políticas Públicas, Especialidad Valuación y Doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque soy una abogada altamente capacitada y una activista comprometida con la justicia social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi enfoque se centra en la justicia social, entendida no solo como un conjunto de normas y leyes, sino como un compromiso constante con la dignidad humana y el respeto a los derechos fundamentales de todas las personas. Mi visión del ejercicio del derecho se basa en la creencia de que el sistema jurídico debe ser un instrumento de transformación social, accesible, inclusivo y capaz de adaptarse a las realidades cambiantes de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El acceso a la justicia no debe seguir siendo un privilegio exclusivo; es un derecho fundamental que debe estar al alcance de todos. Necesitamos instituciones que respondan con empatía, sensibilidad y un profundo sentido social, que realmente promuevan la equidad y la justicia para cada persona. En el camino hacia la igualdad, enfrentamos grandes desafíos, especialmente en la garantía de los derechos de las mujeres. A pesar de los avances, las mujeres aún enfrentamos barreras significativas.
+
+
+## Propuestas
+
+- Garantizar que todos los jueces, magistrados y personal judicial reciban una formación continua y especializada en derechos humanos, con un enfoque transversal en todas las áreas del derecho, para garantizar una interpretación y aplicación adecuada de los estándares internacionales de derechos humanos, Esto contribuiría a una mayor sensibilización y comprensión sobre las diversas problemáticas que enfrentan los grupos vulnerables, mejorando la calidad y justicia de las decisiones judiciales.
+- Crear mecanismos para que las personas, especialmente de grupos vulnerables (como mujeres, personas con discapacidad, pueblos indígenas, etc.), puedan acceder de manera efectiva a la justicia sin obstáculos ni discriminación, garantizando que no se les excluya por razones socioeconómicas, culturales o de género, la eliminación de barreras al acceso a la justicia especialmente para aquellas que históricamente han sido marginadas o excluidas del sistema judicial.
+- Implementar medidas para mejorar la transparencia en los procesos judiciales relacionados con derechos humanos, como la publicación de sentencias y la creación de observatorios independientes que evalúen el desempeño de los tribunales en la protección de los derechos humanos, la transparencia y rendición de cuentas aumentan la confianza pública en el sistema judicial y aseguran que las decisiones sean supervisadas y que las personas juzgadoras rindan cuentas por su desempeño
+

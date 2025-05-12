@@ -1,0 +1,73 @@
+Nombre Candidato: MARTIN DE JESUS SIMON ENRIQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 9211434080
+Correo Electronico: angel_junior_1992@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Bachillerato, Derecho del Trabajo, Educación Primaria, Educación Secundaria, Justicia Laboral, Poder Judicial de la Federación, Reforma Laboral, Secretario Proyectista, Sistema Penal Acusatorio, Universidad.
+Tags Propósito: Atención al público, Ciudadanía, Corrupción, Defensoría pública, Discriminación, Eficiencia, Escuchar, Igualdad, Igualdad de género, Justicia, Justicia pronta., Organización eficiente, Resolución rápida, Sentencias claras, Servidores públicos, Servir, Trabajo en equipo, Transparencia
+
+
+## Descripción del Candidato 
+
+Martín de Jesús Simón Enríquez es candidato a Jueces/es de Distrito en Coahuila, postulado por el Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, además de cursos en áreas como justicia laboral, igualdad de género y el Nuevo Sistema de Justicia Penal Acusatorio. Su trayectoria académica incluye estudios en la Escuela Primaria Solidaridad, Secundaria Técnica Número 96, COBAEV 18 y Universidad Villa Rica Camp.
+
+Simón Enríquez expresa como motivación para buscar el cargo el deseo de servir a la ciudadanía garantizando justicia, igualdad y transparencia. Su visión se centra en un ambiente laboral colaborativo, la escucha activa de las partes, y la impartición de justicia con sentencias claras, prácticas y expeditas. Entre sus propuestas destacan la atención directa al público, la eficiencia en la resolución de casos y la colaboración interdepartamental para agilizar el trabajo del órgano jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/MartC3ADn-SimC3B3n/61573904473191/
+- https://www.tiktok.com/@simonmartinoficia?_t=ZM-8v6UQdgWGla&_r=1
+
+
+## Cursos
+
+- Jornadas de Sensibilización sobre la Reforma en Materia de Justicia Laboral
+- ,Genero como herramienta para la igualdad,Examen acreditado Secretario Proyectista de Tribunal Colegiado y Juzgado de Distrito del Poder Judicial de la Federación,Curso introducción al derecho del trabajo y a la REFORMA EN MATERIA DE JUSTICIA LABORAL,Diplomado El Nuevo Sistema de Justicia Penal Acusatorio de frente a la
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55430/11
+
+
+## Trayectoria Academica
+
+- Escuela Primaria Solidaridad: Escuela Secundaria Técnica Numero 96, Bachillerato: Cobaev 18, Universidad Villa Rica Camp
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servirle al pueblo y garantizarle justicia de verdad en igualdad de circunstancia y con plena transparencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Primero tener un ambiente de trabajo bueno, trabajar en equipo y sobre todo que la sociedad tenga justicia con puertas abiertas para servir a la ciudadanía, escuchar a las partes no solo en sus demandas sino su sentir que se sientan escuchados, por lo que es necesario trabajar de manera armónica, garantizar efectividad en un horario adecuado y justo, con el objetivo de cumplir con las tareas diarias y sobre todo garantizar a la sociedad buenos resultados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+1. QUE LAS SENTENCIAS SEAN CLARAS Y PRECISAS PARA LA SOCIEDAD EN GENERAL. 2. QUE LAS SENTENCIAS SEAN MAS PRACTICAS Y TRATAR QUE SE RESUELVAN EN MENOS TIEMPO. 3. PROMOVER LAS DEFENSORIAS PUBLICAS AL PUBLICO EN GENERAL. 4. CERO TOLERANCIA A LA CORRUPCION. 5. IGUALDAD DE GENERO Y NO A LA DISCRIMINACION. 6. JUSTICIA CON TRANSPARENCIA PARA TODAS Y TODOS. 7. SERVIR CON UNA VERDADERA JUSTICIA PARA LAS O LOS MEXICANOS.
+
+
+## Propuestas
+
+- ATENCION AL PUBLICO CON PUERTAS ABIERTAS Y ASI LAS PARTES SEAN ESCUCHADOS DE VIVA VOZ, SIN QUE IMPLIQUE RESOLVER CONFORME A DERECHO.
+- UNA ORGANIZACION EFICIENTE PARA QUE LAS SENTENCIAS NO TARDEN EN RESOLVERSE.
+- COMPARTIR IDEAS CON LOS SERVIDORES PUBLICOS DE LAS DIFERENTES AREAS, Y CADA UNO PROPORCIONE SU PUNTO DE VISTA PARA ANALIZAR COMO SE PUEDE AGILARZAR EL TRABAJO PARA TODO EL ORGANO JURISDICCIONAL Y EN EQUIPO SACAR CONCLUSIONES PARA UNA JUSTICIA PRONTA PARA LA SOCIEDAD EN GENERAL
+

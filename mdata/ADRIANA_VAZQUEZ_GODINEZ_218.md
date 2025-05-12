@@ -1,0 +1,76 @@
+Nombre Candidato: ADRIANA VAZQUEZ GODINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Actuario, Argumentación Jurídica, Derecho Mercantil, Derecho Procesal Civil, Igualdad de Género, Maestría en Derecho, Mención Honorífica., Poder Judicial, Programación Neurolingüística, UAA, Violencia
+Tags Propósito: Accesibilidad, Agilización, Bienestar social, Capacitación, Derechos fundamentales, Digitalización, Educación jurídica, Empatía, Equidad, Fortalecimiento judicial., Inclusión, Independencia judicial, Integridad, Justicia, Sistema judicial, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Adriana Vázquez Godínez es candidata a Magistratura de Tribunales Colegiados de Circuito por Aguascalientes, postulada por el Poder Ejecutivo Federal. Abogada egresada de la UAA con mención honorífica, cuenta con posgrado y maestría en Derecho, además de diversas capacitaciones en áreas como argumentación judicial, equidad de género y programación neurolingüística. 
+
+Su motivación para buscar el cargo se basa en su formación, experiencia de 25 años en el Poder Judicial Federal y el deseo de fortalecer el sistema judicial. Su visión se centra en resolver controversias protegiendo los derechos fundamentales, con un enfoque en la accesibilidad e inclusión de la justicia, particularmente para los sectores vulnerables. Sus principales propuestas incluyen la capacitación constante de operadores del sistema judicial, la agilización de la impartición de justicia mediante la digitalización y la difusión del conocimiento legal a través de programas educativos y una página web de orientación legal gratuita.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/drianavazquezgodinez
+- https://www.instagram.com/adriana.vazquez.godinez/profilecard/?igsh=amdhc3R2YmdtcTg2
+- https://www.tiktok.com/@adriana.vazquez.godinez?_t=ZM-8v4w6OZrWIY&_r=1
+
+
+## Cursos
+
+- Curso de preparación y capacitación para Actuarios y para Secretarios del Poder Judicial
+- ,Constancia de jornada sobre interpretación y argumentación judiciales,Curso para Generar Espacios Libres de Violencia
+- ,Curso Género como Herramienta para la Igualdad
+- ,Curso de estrategias de aprendizaje con programación neurolingüística
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55475/10
+
+
+## Trayectoria Academica
+
+- Abogada por la UAA (mención honorífica); Posgrado en Derecho Procesal Civil y Mercantil, y Maestra en Derecho ambas curs
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi formación, experiencia y valores me permiten postularme para contribuir al fortalecimiento del sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión en este rubro es resolver las controversias con el compromiso a la protección de derechos fundamentales e independencia judicial. Mi experiencia profesional, en estos veinticinco años de servicio para el Poder Judicial Federal, es lo que me motiva a postularme en este encargo, con plena conciencia de que mi trabajo trasciende en la vida de las personas y a la postre, implica el fortalecimiento de la justicia en nuestro país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser accesible, incluyente y sensible a las necesidades de los sectores más vulnerables de la sociedad. Además el ejercicio de la magistratura exige no solo conocimientos, sino también integridad, empatía y una responsabilidad inquebrantable con el bienestar social; de ahí que estoy convencida de que estoy en posibilidad de seguir contribuyendo al fortalecimiento del sistema judicial y a la construcción de un México más justo y equitativo.
+
+
+## Propuestas
+
+- CAPACITACIÓN CONSTANTE de operadores de justicia, desde quienes tienen el primer contacto con hechos que pueden presumirse delictivos (agentes, soldados), así como ministerios públicos, jueces y magistrados.
+- AGILIZAR la impartición de justicia, con prácticas objetivas como digitalización de expedientes, sentencias más concretas, y en lenguaje asequible, sin sacrificar calidad y acuosidad en los análisis jurídicos.
+- ACERCAR A LA SOCIEDAD AL CONOCIMIENTO DEL DERECHO, a través de programas masivos de educación sobre derechos para acercar a cualquier ciudadano en su interacción con el sistema de justicia, verbigracia a través de una página oficial para otorgar gratuitamente orientación legal en cualquier materia.
+

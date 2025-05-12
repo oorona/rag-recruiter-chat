@@ -1,0 +1,77 @@
+Nombre Candidato: MARGARITA DOMINGUEZ MERCADO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho Constitucional, Derechos Humanos, Especialista., Gestión Administrativa, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, Poder Judicial de la Federación, Protección de Derechos Humanos, UNAM, Universidad Iberoamericana, Universidad de Alicante, Órganos Jurisdiccionales Federales
+Tags Propósito: Calidad humana, Capacidad, Comunicación directa, Derechos humanos, Dignidad, Eficiencia, Imparcialidad, Independencia, Justicia, Justicia cercana, Justicia pronta, Preparación., Sensibilidad social, Servicio público, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Margarita Dominguez Mercado es candidata a Jueza/es de Distrito en la Ciudad de México, postulando desde la función en el Poder Judicial de la Federación. Cuenta con Maestría en Derecho, Especialidad en Derecho Constitucional y Licenciatura en Derecho por la UNAM, además de una Especialidad por la UP. Ha realizado diversos diplomados y cursos en áreas como argumentación jurídica, derechos humanos y práctica forense, incluyendo formación administrativa reciente en 2022 y 2024.
+
+Su motivación para buscar el cargo es continuar sirviendo a la gente, acercando la justicia con calidad humana. Propone una función jurisdiccional entendida como un servicio público enfocado en la resolución justa de problemas, con respeto a los derechos humanos. Sus propuestas incluyen un servicio respetuoso y digno en los juzgados, agilizar los trámites mediante una organización eficiente y una comunicación directa con la ciudadanía para acercar la justicia a la gente.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Margarita-Dominguez/pfbid0ZNrkTim5z2AFvEmrQXmNM4yLsoLYVsDALvYiMandrhU161z5JfDZKsTfTAq6vgbHl/
+- https://x.com/margaritadommer
+- https://www.instagram.com/margaritadominguez2025/#
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica, IJF/UP/ Universidad de Alicante, 2017
+- ,Diplomado a distancia Derechos Humanos en el Poder Judicial de la Federación, Universidad Iberoamericana, 2013
+- ,Diplomado La Practica Forense del Nuevo Juicio de Amparo y la Protección Efectiva de los Derechos Humanos, UNAM, 2012
+- ,Curso de Inducción para la Gestión Administrativa de los Órganos Jurisdiccionales Federales, EFFJ, 2022
+- ,Curso Inducción Administrativa para Juezas y Jueces de Reciente Adscripción en el Poder Judicial de la Federación, 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52874/11
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho, Especialista en Derecho Constitucional y Licenciada en Derecho por la UNAM; Especialista por la UP
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero continuar sirviendo a la gente acercando la justicia con calidad humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un servicio público para la gente, que busca resolver en justicia los problemas. Para ello, debe estar a cargo de personas capaces que respeten los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser humana, imparcial, independiente y sensible a la sociedad. Para ello, debe haber juzgadores y juzgadoras con los conocimientos y la preparación necesaria que, con calidad humana, resuelvan con justicia.
+
+
+## Propuestas
+
+- Vocación de servicio. Seguir atendiendo de manera respetuosa y con dignidad a todo el que se acerque al juzgado de distrito, sin olvidar que la principal función es servir a la gente.
+- Justica pronta. Agilizar el trámite de los asuntos. Para ello, continuar implementando una organización adecuada en el juzgado que permita contar con personal capacitado, dispuesto a ejercer su labor de manera eficiente y con vocación de servicio.
+- Justicia cercana. La justicia no debe de esperar a que lleguen a ella, por lo que continuaré implementando mecanismos para tener comunicación directa con la gente.
+

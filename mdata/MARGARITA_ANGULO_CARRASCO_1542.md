@@ -1,0 +1,73 @@
+Nombre Candidato: MARGARITA ANGULO CARRASCO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: 4437227114
+Correo Electronico: margaritamagistrada@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciberseguridad, Ciencias Sociales, Curso., Derecho, Diplomado, Justicia Laboral, Justicia Penal, Maestría, Secretariado de Tribunal, Trata de Personas, Violencia de Género
+Tags Propósito: accesibilidad, actualización tecnológica, atención al usuario, burocracia, derechos humanos, eficiencia, grupos indígenas, hechos., imparcialidad, independencia, intérpretes, justicia, lenguaje claro, leyes, pruebas, razonamiento, resolución entendible, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Margarita Angulo Carrasco es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose ante el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con Maestría en Derecho Humanidades y licenciatura en Derecho y Ciencias Sociales, además de diversas especializaciones y diplomados en áreas como justicia penal, laboral, protección de mujeres contra la violencia, y ciberseguridad.
+
+Su motivación para el cargo es servir a la sociedad impartiendo justicia, con una visión centrada en la protección de los derechos humanos, especialmente de los grupos vulnerables, y en la accesibilidad de las resoluciones judiciales. Sus propuestas incluyen la actualización tecnológica de los tribunales, la mejora en la atención a usuarios (incluyendo acceso a intérpretes para comunidades indígenas) y la simplificación del lenguaje utilizado en las resoluciones para facilitar su comprensión.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1APTgisMTK/
+- https://www.instagram.com/margaritamagistrada?igsh=MXRtdzExN2VoaG5ibw==
+
+
+## Cursos
+
+- Especialidad en Secretario de Tribunal por el Instituto de la Judicatura Federal,Diplomado en Nuevo Sistema de Justicia Penal,Curso básico en materia de justicia laboral para el personal del Poder Judicial de Michoacán,Curso Órdenes de Protección: garantía efectiva de las mujeres a una vida libre de violencia,Curso Ciberseguridad y Trata de Personas, enganche en línea
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52341/10
+
+
+## Trayectoria Academica
+
+- Maestría Derecho humanidades, licenciada en derecho y ciencias sociales, Especialidad Secretario de Tribunal,
+
+
+## Motivo para buscar el Cargo Publico
+
+Es mi deseo servir a la sociedad mexicana impartiendo justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Recibir las inconformidades de las personas interesadas para hacer un estudio pormenorizado y análisis de cada caso concreto y la legislación aplicable, con la finalidad de entregar a la ciudadanía una resolución en la que sean respetados los derechos humanos, especialmente los de los grupos más vulnerables, evitando términos especializados y con ello haciendo las resoluciones más entendibles.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser completamente imparcial, debe atender a los hechos y las pruebas presentadas, así como a las leyes previamente establecidas, es importante evitar cualquier tipo de dádivas o coerción, encontrarse completamente apartada de prejuicios, manteniendo la libertad de cada juzgador para emitir sus criterios de manera razonada e independiente.
+
+
+## Propuestas
+
+- Actualización tecnológica, con la finalidad de mejorar la calidad, atención, rapidez y eficiencia en el servicio, reduciendo los procesos burocráticos, lo que impactaría en la reducción de los tiempos de espera.
+- Mejorar la atención a los usuarios, especialmente a aquellos que no son profesionales del derecho, permitiéndoles el acercamiento a sus asuntos de manera explicativa y, en caso de pertenecer a grupos indígenas, dándoles acceso a intérpretes para acercarse al personal de los tribunales, para que con ello puedan tener mejor acceso a la justicia.
+- Hacer las resoluciones más entendibles, es decir, evitando en todo momento caer en repeticiones, el uso de lenguaje técnico, las discusiones doctrinarias, es decir, que puedan ser accesibles y entendibles para aquellos en quienes va a tener repercusiones explicando paso a paso la forma en que se llegó a esa conclusión.
+

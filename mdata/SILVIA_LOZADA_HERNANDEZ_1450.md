@@ -1,0 +1,75 @@
+Nombre Candidato: SILVIA LOZADA HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2212697557
+Correo Electronico: budakido17@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Actuaria, Amparo, Benemérita Universidad Autónoma de Puebla., Gestión Pública, Juicio de Amparo, Maestría Constitucional, Marco Jurídico, Notaria, Responsabilidades Servicio Público, Responsabilidades Servidores Públicos, Sistema Nacional Anticorrupción
+Tags Propósito: acceso a la justicia, adultos mayores, aprendizaje, cercanía, conocimiento, cultura judicial, derechos humanos, empatía, función jurisdiccional., género, imparcialidad, interpretación, justicia, materia administrativa, niñez, paradigma judicial, progresividad, satisfacción ciudadana, sistema judicial, transformación judicial
+
+
+## Descripción del Candidato 
+
+Silvia Lozada Hernández es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Maestría y cédula profesional, así como con diversos diplomados en gestión pública, responsabilidades administrativas y juicio de amparo. Su trayectoria académica incluye el título de Abogada, Notaria y Actuaria, y es Maestra en Constitucional y Amparo por la Benemérita Universidad Autónoma de Puebla.
+
+La motivación central de su candidatura es asegurar la efectiva ejecución de las resoluciones de amparo. Su visión para la función jurisdiccional se centra en un trabajo honesto, imparcial y responsable, con sensibilidad a temas de género, edad, derechos humanos y el interés superior de la niñez. Sus propuestas incluyen acercar la justicia a la ciudadanía, demostrar empatía en las decisiones judiciales y fomentar una imagen más accesible y cercana de los juzgadores.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=1279728805
+- https://x.com/SilviLo4?t=_5l6zpNwi_gyeD7dq6odQA&s=09
+- https://www.instagram.com/chivis_lozada?igsh=cWhoOXlqdml3ZGL5
+- https://www.tiktok.com/@silvialozada7?_t=ZS-8uvk2VYi16v&_r=1
+- https://www.facebook.com/share/1BcvrvcACW/
+
+
+## Cursos
+
+- Diplomado La Gestión Pública y su Marco Jurídico,Diplomado La Gestión Pública y su Marco Jurídico II,Diplomado en Sistema de Responsabilidades de los Servidores Públicos y Sistema Nacional Anticorrupción,Diplomado Responsabilidades en el Servicio Público y Diplomado en materia de responsabilidades administrativas,Diplomado Juicio de Amparo Edición 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53923/10
+
+
+## Trayectoria Academica
+
+- Soy Abogada, Notaria y Actuaria y Maestra en Constitucional y Amparo por la Benemérita Universidad Autónoma de Puebla
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco que la justicia habite en las ejecutorias de amparo directo y amparo en revisión y se obtenga su exacta ejecución.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desempeñar un trabajo honesto, imparcial y responsable que resuelva los conflictos legales eficazmente, según le asista la razón y el derecho a cada parte; sin olvidar las perspectivas de género, adultos mayores, interés superior de la niñez, las formas de interpretación y la progresividad de los derechos humanos. Por eso me importa transmitirles mi convicción en la función y el amor a mi perfil profesional, para lograr que los ciudadanos tengan un acceso real, objetivo y sencillo a la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Encontrar áreas de oportunidad para cambiar la perspectiva de quienes no creen en nuestra actividad, para ello, es importante demostrar que nuestro sistema de impartición de justicia se ha transformado, que lo aprendido en las aulas se ha renovado, que se actualiza y reinventa constantemente, convirtiéndose en progresivo, a la par de una ola de nuevas tendencias cognitivas de los profesionales y estudiosos del derecho y; que a ello se suma la actividad humana de quienes lo aplican e interpretan.
+
+
+## Propuestas
+
+- Demostrar que los juzgadores tenemos una visión empática, inspirar a los ciudadanos la cultura de que el juzgador se pone en el lugar de las partes al momento de resolver efectivamente la litis de lo pedido. Difundir que en la materia administrativa, se incluyen infinidad de actos administrativos que nos interesan como ciudadanos: medio ambiente, multas viales, permisos, concesiones, mercados, transporte público, protección animal, obra pública, educación, salud, toda decisión de una autoridad.
+- Sumar, compartir conocimientos, prepararme constantemente y aprender de los conocimientos de quienes cuentan con una trayectoria significativa en la carrera judicial. Crear la convicción de que en esta nueva era, surge el paradigma de que los juzgadores serán personas que conoces, que viste crecer, cercanas a ti, los hijos e hijas de tus vecinos, que a diario veías salir a estudiar y trabajar; quienes viven tu misma realidad y que también son blanco de la delincuencia y, a veces, de injusticias.
+- Consolidar la visión de los ciudadanos y de los profesionales del derecho en la función jurisdiccional de nuestro país, guiarlos por el camino de la justicia de un modo amigable, fácil, accesible, práctico, con la finalidad exclusiva de que se vayan satisfechos con las decisiones jurisdiccionales que obtengan, sin olvidar la imparcialidad con la que debo conducirme en mi actuar y las prudentes técnicas de interpretación.
+

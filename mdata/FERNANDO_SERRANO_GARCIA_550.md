@@ -1,0 +1,78 @@
+Nombre Candidato: FERNANDO SERRANO GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5545728871
+Correo Electronico: ferserranog03@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho Procesal Mercantil, Derechos Humanos., Igualdad de Género, Juicio Oral, Juicio de Amparo, Maestría en Derecho, Red de Jueces Orales, Suprema Corte de Justicia de la Nación
+Tags Propósito: Acercamiento, Actualización Profesional, Ciudadanía, Confianza, Derechos Humanos, Eficiencia, Empatía, Expedientes, Imparcialidad, Justicia, Lado Humano, Plazos Procesales, Rapidez, Resolución Informada, Resolución de Problemas, Responsabilidad, Transparencia, Tribunales.
+
+
+## Descripción del Candidato 
+
+FERNANDO SERRANO GARCIA es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Ejecutivo Federal en la Ciudad de México. Cuenta con licenciatura en Derecho y estudios de especialidad y maestría en la materia, complementados con diversos cursos en Derecho Procesal Mercantil, Juicio de Amparo, Derechos Humanos e Igualdad de Género.
+
+Su motivación para buscar el cargo se centra en seguir sirviendo a la ciudadanía de la Ciudad de México.  Su visión de la función jurisdiccional se enfoca en la resolución de problemas con base en la ley, considerando los derechos humanos y las necesidades de las personas.  Entre sus propuestas destacan el acercamiento a la ciudadanía para generar confianza, la agilización de procesos respetando los plazos legales, y la emisión de resoluciones con profundo conocimiento jurídico y respeto a los derechos humanos, enfatizando la importancia de considerar el lado humano de quienes acuden a los tribunales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/fernando.serrano.9809
+- https://www.x.com/@Fer_SerranoG
+- https://www.instagram.com/fernando.serrano.9809
+- https://www.tiktok.com/@fernando.serrano.g
+
+
+## Cursos
+
+- DERECHO PROCESAL MERCANTIL Y JUICIO ORAL
+- ,DIPLOMADO EN JUICIO DE AMPARO IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+- ,REUNIÓN NACIONAL RED DE JUECES ORALES CIVILES Y MERCANTILES
+- ,DIPLOMADO LA SUPREMA CORTE Y LOS DERECHOS IMPARTIDO POR LA SCJN
+- ,YO SÉ DE GÉNERO CONCEPTOS BÁSICOS DE GÉNERO; MARCO INTERNACIONAL PARA LA IGUALDAD DE GÉNERO; Y PROMOCIÓN DE LA IGUALDAD
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55044/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, estudios de especialidad en Derecho Constitucional, y estudios de Maestría en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque me daría la gran oportunidad de seguir sirviendo a las personas de la Ciudad de México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La solución de los problemas, tomando en cuenta lo que dice la ley, considerando siempre los derechos humanos, pensando en las personas y lo que necesite para la solución de sus problemas, escuchándolas y conociéndolas solucionando sus asuntos con la mayor rapidez.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Imparcial, independiente, con un alto sentido de responsabilidad al impartir justicia, ocupando las herramientas que a través de mi estudio y actualización constante me faculta como un juzgador empático y confiable con un amplio espectro de los derechos humanos.
+
+
+## Propuestas
+
+- Justicia social, mayor acercamiento a las personas, conocer sus inquietudes y problemas y resolverlos con mayor rapidez, eficiencia y conocimiento. El planteamiento principal es como servidor público que soy es la cercanía con la ciudadanía. darle confianza, que conozcan lo que hago, como me conduzco. El distanciamiento ente poder judicial y las personas puede originar desconfianza, incertidumbre. Siempre escuchar y resolver adecuadamente.
+- Seguir con el respeto a los plazos y términos procesales, agilizando para la pronta resolución de los asuntos. una de las características y pilares que debe tener la impartición de la justicia que se soluciones los asuntos rápidamente sin obstáculos.
+- Dictar resoluciones con profundo conocimiento en el juicio, garantizando y salvaguardando los derechos humanos. Una de las obligaciones de todo juzgador, es el de estar siempre estudiando, capacitándose, preparándose para dar mejor servicio a las personas, y que resuelva de la mejor manera, sin quitar el lado humano de quienes acuden a los tribunales. Detrás de cada expediente hay personas, hay vidas de las cuales se debe tener presente día a día.
+

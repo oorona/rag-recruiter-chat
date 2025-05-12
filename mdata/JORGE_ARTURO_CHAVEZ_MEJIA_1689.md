@@ -1,0 +1,77 @@
+Nombre Candidato: JORGE ARTURO CHAVEZ MEJIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9611771438
+Correo Electronico: jorgearturochavezmejia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Berlitz, Ciudad Universitaria., Debido Proceso, Especialización Judicial, Estándares Internacionales, Facultad de Derecho, Francés, Género, IJF, Igualdad, Inglés, Tesis, UNAM
+Tags Propósito: accesibilidad jurídica, cambio constitucional, derechos laborales, experiencia jurisdiccional, honestidad, humanismo, justicia equitativa, justicia social., lenguaje claro, participación ciudadana, productividad, puntualidad, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jorge Arturo Chavez Mejia es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose desde el Poder Ejecutivo Federal. Cuenta con 23 años de experiencia en el ámbito jurisdiccional y es egresado de la Facultad de Derecho de la UNAM, donde obtuvo su título por tesis. Su motivación para buscar el cargo se basa en ofrecer su experiencia a la ciudadanía, destacando la seriedad y el conocimiento del funcionamiento de los órganos jurisdiccionales.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en la experiencia, la honestidad, la transparencia y un enfoque humanista, priorizando la equidad y la atención a grupos vulnerables. Sus propuestas incluyen dedicar un día semanal a la escucha directa de los ciudadanos, elaborar sentencias en un lenguaje accesible y garantizar la puntualidad en el desempeño laboral.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jorgearturochavezmejia
+- https://www.instagram.com/jorgearturochavezmejia?igsh=M3p6N3kyM3lrazdw
+
+
+## Cursos
+
+- Inglés CELE de la UNAM 1999,Especialización Judicial
+- IJF 2004,Francés Básico, Instituto Berlitz 2010,Género como herramienta para la igualdad
+- Segunda Edición
+- 2022,Sobre el derecho a un debido proceso
+- Estándares internacionales
+- 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52766/10
+
+
+## Trayectoria Academica
+
+- Egresado de la Facultad de Derecho de la UNAM, campus, Ciudad Universitaria, Generación Titulado por Tesis
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo 23 años de experiencia en la labor jurisdiccional que quiero ofrecer a mis conciudadanos. Seriedad y experiencia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El cambio constitucional para elegir personas juzgadoras, requiere de personas con experiencia, surgidas de las bases trabajadoras, que sabemos el funcionamiento de los órganos jurisdiccionales, pero con una visión más humanista, comprometidos con la honestidad y transparencia. Impartir justicia con apego a las normas jurídicas, pero ponderando a los grupos sociales débiles, prefiriendo la equidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Personas juzgadoras con sentido humano, que escuchen directamente a los más vulnerables, para aplicar las leyes y que todos obtengan una justicia equitativa.
+
+
+## Propuestas
+
+- Programar un día a la semana para escuchar a las personas que deseen platicar con la persona juzgadora, de tal manera que sientan que la persona electa para ese cargo, realmente surgió por voluntad popular.
+- Elaborar las sentencias en el lenguaje jurídico más accesible a los ciudadanos que no son especialistas en el tema, de tal manera que entiendas las razones y motivos por los cuales se les concede o no la razón.
+- Puntualidad en el inicio de las jornadas laborales, para maximizar la productividad dentro del horario de trabajo y respetar así también los derechos laborales de los trabajadores de los órganos jurisdiccionales.
+

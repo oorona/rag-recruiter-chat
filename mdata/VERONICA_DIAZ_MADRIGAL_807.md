@@ -1,0 +1,81 @@
+Nombre Candidato: VERONICA DIAZ MADRIGAL
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5515104229
+Correo Electronico: dimaver@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho, Derecho Colectivo del Trabajo, EFFJ, Especialización Judicial, Jurisprudencia Laboral, Justicia Laboral, PJF, Reforma Laboral, UNAM
+Tags Propósito: Accesibilidad, Calidad, Confianza, Derechos, Eficiencia, Empatía, Expedientes., Experiencia, Humanismo, Imparcialidad, Independencia, Justicia, Laboral, Lenguaje claro, Objetividad, Profesionalismo, Resolución de conflictos, Sentencias, Servicio público, Transparencia
+
+
+## Descripción del Candidato 
+
+Verónica Díaz Madrigal es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Cuenta con estudios de Licenciatura y Maestría en Derecho por la UNAM, además de especialización en Derecho del Trabajo y Justicia Laboral. Su trayectoria académica y profesional se ha desarrollado principalmente en el ámbito del Derecho Laboral, con formación continua a través de cursos del Instituto de la Judicatura Federal.
+
+Díaz Madrigal motiva su candidatura en la necesidad de juzgadores confiables, autónomos y comprometidos con la justicia. Su visión de la función jurisdiccional se centra en la imparcialidad, la independencia y la profesionalización, mientras que su visión de la impartición de justicia busca accesibilidad, eficiencia e inclusión. Sus principales propuestas se enfocan en mejorar la atención a las partes en juicios laborales, agilizar y clarificar las sentencias, y seleccionar juzgadores con experiencia y sensibilidad social en la materia laboral.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AEvHi4rJ7/
+- https://x.com/veronicadiazmad?s=08
+- https://www.instagram.com/veronicadiazmad?igsh=azVtYmF3b2l6NXdu
+- https://www.tiktok.com/@veronicadiazmad?_t=ZM-8v4jHGvrWac&_r=1
+
+
+## Cursos
+
+- Jornadas de Introducción a la Reforma Laboral
+- Análisis de los retos y perspectivas
+- Instituto de la Judicatura Federal,Jornadas de actualización sobre jurisprudencia en materia laboral
+- Instituto de la Judicatura Federal,Derecho Colectivo del Trabajo
+- Instituto de la Judicatura Federal,Curso de Especialización Judicial
+- Instituto de la Judicatura Federal,Argumentación Jurídica
+- Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52995/10
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestra en Derecho por la UNAM y Especialista en Derecho del Trabajo y Justicia Laboral por la EFFJ del PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que los juzgadores deben ser confiables, autónomos, humanistas, accesibles y comprometidos con la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional para mi consiste en una impartición de justicia sustentada en principios constitucionales, legales y convencionales, cuyo ejercicio exige independencia, imparcialidad, profesionalismo, objetividad y excelencia, lo cual se puede conseguir con servidores públicos preparados tanto académica como profesionalmente, sensibles a los problemas sociales y con vocación de servicio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se debe garantizar que la impartición de justicia sea accesible, eficiente, ágil, eficaz, inclusiva y proactiva, para que todas las personas tengan derecho a obtenerla, sin sufrir discriminación alguna y de manera confiable, lo que significa que los juzgadores, deben estar comprometidos con la sociedad y resolver los conflictos sometidos a su consideración tomando en cuenta las circunstancias específicas de cada caso y sin estar sujetos a ningún tipo de presión.
+
+
+## Propuestas
+
+- Las personas que piden justicia en materia de trabajo se quejan de que no son escuchadas cuando van a preguntar sobre los expedientes que se tramitan en los Tribunales Laborales y los juzgadores los ven sólo como otro caso más o parte de una estadística. Cuando cada expediente es una persona que anhela justicia, por lo que deben ser atendidos de manera amable y empática, proporcionándoles la información que requieran, para que se vayan satisfechos con el servicio público que se les brinda.
+- Las personas se quejan de que no se resuelven sus asuntos de manera rápida, clara e imparcial. Cuando los juzgadores deben emitir sentencias que no retrasen el acceso a la justicia y que sean comprensibles, manejando un lenguaje simple, para que todas las partes entiendan y conozcan las razones y fundamentos de la decisión tomada y tengan la certeza de que la misma se tomó analizando todas los argumentos y características sometidas a su consideración y sin intereses o influencias ajenas.
+- Se puede mejorar el sistema de impartición de justicia laboral, eligiendo juzgadores con la experiencia profesional y académica necesarias en la materia para resolver de manera completa, objetiva e imparcial cada asunto que se le presente, pero consciente de que las decisiones que toman transcienden en la vida de todas las personas, al ser la fuente de trabajo el medio de subsistencia con el que cuentan para alcanzar los objetivos que se plantean en su vida.
+

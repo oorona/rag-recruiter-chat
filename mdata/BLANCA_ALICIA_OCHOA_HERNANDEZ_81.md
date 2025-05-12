@@ -1,0 +1,77 @@
+Nombre Candidato: BLANCA ALICIA OCHOA HERNANDEZ
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: magistradablanca@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 20 años de experiencia., Argumentación Jurídica, Cursos, Derecho Ambiental, Derecho Tributario, Derechos Humanos, Diplomados, Formación Continua, ITAM, Licenciatura en Derecho, Maestría en Derecho, Protección Jurisdiccional, UNAM
+Tags Propósito: Acceso a la justicia, Compromiso ciudadano, Consejo de la Judicatura Federal., Corrupción, Dilaciones, Eficiencia judicial, Experiencia judicial, Inteligencia artificial, Justicia social, Monitoreo en tiempo real, Participación ciudadana, Planes de trabajo, Poder Judicial, Servidores públicos, Transparencia, Tribunal de Disciplina Judicial
+
+
+## Descripción del Candidato 
+
+BLANCA ALICIA OCHOA HERNANDEZ es candidata a Magistratura del Tribunal de Disciplina Judicial, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho, respaldada por 20 años de estudios en diversas áreas del derecho a través de diplomados y cursos, incluyendo Derecho Tributario, Ambiental, Argumentación Jurídica y Derechos Humanos. Su trayectoria incluye experiencia como juzgadora y en el Consejo de la Judicatura Federal.
+
+La candidata basa su motivación en su experiencia, conocimiento y vocación de servicio a México.  Propone un Poder Judicial cercano a la ciudadanía, con acceso para la resolución de conflictos, la implementación de inteligencia artificial para monitorear la actividad judicial y combatir la corrupción, así como planes de trabajo a nivel nacional para eficientar el trámite de los asuntos y asegurar una impartición de justicia con sentido social, priorizando a personas en situación de desventaja.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://blancaochoa.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/blancaochoah
+- https://www.x.com/blancaochoah
+- https://www.instagram.com/blancaochoah
+- https://www.youtube.com/blancaochoadisciplina
+- https://www.tiktok.com/blancaochoah
+- https://www.linktr.ee/blancaochoah
+
+
+## Cursos
+
+- Diplomado en Derecho Tributario,Diplomado en Derecho Ambiental,Diplomado en Argumentación Jurídica,Diplomado en Protección Jurisdiccional de los Derechos Humanos,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17315/7
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por el ITAM Maestra en Derecho por la UNAM
+- Con 20 años de diplomados y cursos en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Por la experiencia, conocimiento, perfil, vocación y amor por México que me caracterizan.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión del nuevo poder judicial es uno cercano a las personas, servidores públicos que escuchan y son sensibles a la situación del pueblo de México. Un poder judicial que imparte justicia en tiempo, que hace que sus resoluciones se cumplan en favor de la sociedad. Un poder judicial legitimado por y para el pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión es impartir justicia con sentido social, esto significa que las sentencias siempre tomen en cuenta lo mejor para los mexicanos, para los niños, los trabajadores, y todas aquellas personas en situación de desventaja.
+
+
+## Propuestas
+
+- Propuesta social: Implica que como Magistrada del Tribunal de Disciplina Judicial abriré las puertas de este órgano a todas las personas que tengan un conflico que resolver ante los juzgados y Tribunales del Poder Judicial de la Federación. Quiero conocer tu visión y opinión del servicio de impartición de justicia para mejorarlo, para que verdaderamente esté al servicio de los Mexicanos. TU VOZ ES MI COMPROMISO.
+- Propuesta tecnológica: Implementar a través de la inteligencia artificial el monitoreo en tiempo real de la actividad de los juzgados y tribunales, para que no haya más dilaciones en el trámite de los asuntos y dictado de sentencias, para eliminar la corrupción de raíz. Con la experiencia como juzgadora, tengo el ojo para detectar cuando un juzgador no está realizado debidamente su trabajo, sé como combatir estar prácticas en beneficio de todos los mexicanos.
+- Propuesta de trabajo. Como juzgadora he implementado diversos mecanismos para hacer eficiente el trabajo en juzgados de Distrito. También con la amplia experiencia con la que cuento en Tribunal Colegiado y en el área de Vigilancia en el Consejo de la Judicatura Federal, implementaré planes de trabajo a nivel nacional para que todos los órganos del país tramiten sus asuntos de manera eficiente, de manera que la justicia llegue de manera pronta a quien lo necesita.
+

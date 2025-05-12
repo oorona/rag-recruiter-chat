@@ -1,0 +1,79 @@
+Nombre Candidato: JUAN MANUEL CEN GAMBOA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9211121678
+Correo Electronico: abogadogamboa19@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Constitucional, Derecho Penal, Derechos Humanos, Doctorado, Función Jurisdiccional, Juicio de Amparo, Licenciatura en Derecho., Litigación Penal, Maestría, Sistema de Justicia Penal Acusatorio, Suprema Corte de Justicia de la Nación
+Tags Propósito: Acceso a la justicia, Adultos mayores, Audiencia, Confianza, Grupos vulnerables, Imparcialidad, Justicia, Niñez, Profesionalismo, Rendición de cuentas, Resolución de casos., Transparencia, Violencia de género, Ética
+
+
+## Descripción del Candidato 
+
+Juan Manuel Cen Gamboa es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado concluidos, además de diversos diplomados en áreas como Juicio de Amparo, Derechos Humanos y Litigación Penal, impartidos por la Suprema Corte de Justicia de la Nación y otras instituciones. Su trayectoria académica incluye estudios de Maestría en Derecho Constitucional y Amparo, y Licenciatura en Derecho.
+
+El candidato manifiesta su motivación para buscar el cargo en el deseo de contribuir a recuperar la confianza en los juzgadores y en la impartición de justicia. Su visión de la función jurisdiccional se centra en la transparencia, la honestidad, la cercanía a la gente y los altos valores éticos. Sus propuestas incluyen atención prioritaria a grupos vulnerables, transparencia y rendición de cuentas mediante informes anuales, y garantía de audiencia para los ciudadanos involucrados en los casos a su cargo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19xwYYsrRw/?mibextid=wwXIfr
+- https://www.instagram.com/jmcengamboa
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, por la Suprema Corte de Justicia de la Nación, a través de las Casas de la Cultura Juríd
+- ,Diplomado en la Suprema Corte y los Derechos Humanos, por la Suprema Corte de Justicia de la Nación
+- ,Diplomado en Litigación en el Proceso Penal, por el Consejo de la Judicatura Federal, Univ
+- Anáhuac y Univ
+- Alberto Hurt,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Diplomado en Introducción a la Función Jurisdiccional, por el Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52699/10
+
+
+## Trayectoria Academica
+
+- Doctorando en Derecho Penal
+- Maestro en Derecho Constitucional y Amparo
+- Licenciado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir a que el pueblo de México recupere la confianza en los juzgadores y en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser transparente, honesta, humana, cercana a la gente, con altos valores éticos, excelencia y profesionalismo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe caracterizarse por ser totalmente imparcial, sin prejuicios ni sesgos. Debe ser apegada a derecho, pero de la manera más justa y de cara a la sociedad, buscando recuperar la credibilidad de la gente.
+
+
+## Propuestas
+
+- ATENCIÓN PRORITARIA A GRUPOS VULNERABLES. Se dará prioridad a la resolución de los casos relacionados con los derechos de los niños, niñas y adolescentes, mujeres víctimas de violencia, así como de adultos mayores.
+- TRANSPARENCIA Y RENDICIÓN DE CUENTAS. Se realizará un informe anual de labores, para que los ciudadanos conozcan el número de asuntos que ingresaron, el número de asuntos que se resolvieron y las resoluciones más relevantes que se hayan emitido.
+- GARANTÍA DE AUDIENCIA. Se dará atención personal a los ciudadanos y/o sus representantes legales cuyos asuntos se encuentren a mi cargo, para que expresen los comentarios u observaciones que estimen necesario destacar para la resolución de su caso. Cuidando siempre la imparcialidad y transparencia en la tramitación de sus asuntos.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: HECTOR JAVIER DAVILA HERRERA
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8441326493
+Correo Electronico: hector.davila13@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 2008, Derecho laboral, Diplomado., Egresado, Jurisprudencia, Redacción jurídica, Universidad Autónoma de Coahila
+Tags Propósito: Accesibilidad, Compromiso, Criterios actualizados, Dilaciones procesales, Eficiencia, Honestidad, Imparcialidad, Juicio justo, Justicia, Justicia humana, Justicia social, Ley, Perspectiva de género, Plataformas electrónicas, Resoluciones accesibles, Resolución justa, Responsabilidad social, Sentido común., Trámites innecesarios, Vulnerables
+
+
+## Descripción del Candidato 
+
+Héctor Javier Dávila Herrera es candidato a Juez/a de Distrito en Coahuila, postulándose a través del Poder Legislativo Federal. Es Licenciado en Derecho, egresado de la Universidad Autónoma de Coahuila en 2008, y cuenta con diplomados en redacción de textos jurídicos y derecho laboral.
+
+Su motivación para el cargo público se centra en garantizar una justicia parcial y eficiente, aportando su experiencia para la resolución de casos. Propone una función jurisdiccional imparcial y eficiente, accesible a todos, con resoluciones claras, humanas y basadas en la ley y la realidad social. Sus propuestas incluyen evitar dilaciones procesales mediante control de tiempos y uso de plataformas electrónicas, eliminar trámites innecesarios, y redactar resoluciones accesibles, con un enfoque en la justicia social, la perspectiva de género y la protección de los más vulnerables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574986161099
+- https://x.com/hectorjdh?s=11&t=er20oTabjKeXVzl_5MmdVg
+- https://www.instagram.com/lic.hectordavila_
+- https://www.tiktok.com/@user83016165047294
+
+
+## Cursos
+
+- Diplomado en redacción de textos jurídicos
+- ,Diplomado en derecho laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52555/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Facultad de Jurisprudencia de la Universidad Autónoma de Coahuila en el año 2008
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero tener la oportunidad de garantizar justicia de manera parcial y eficiente, aportar mi experiencia para resolver.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Vamos a tener una función jurisdiccional imparcial y eficiente, toda aquella persona que acuda a los tribunales va tener la certeza que su asunto será resuelto con honestidad, conocimiento y compromiso con la ley, vamos a garantizar que cada persona tenga una resolución justa y oportuna basada en la ley y en la realidad social en la que vivimos, ser juez no es solo un trabajo, es una responsabilidad con la sociedad, la Justicia no debe ser fría ni lejana, sino clara y humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de Justicia será más accesible, imparcial y eficiente, con mucha sensibilidad ante los problemas que las personas enfrentan todos los días, he visto como la justicia tarda demasiado cómo hay criterios que deben actualizarse y como muchas personas no tienen acceso a un juicio justo, vamos a garantizar que eso cambie, no basta con señalar los problemas, hay que estar en una posición donde se puedan solucionar. Mi meta es garantizar que cada persona tenga una resolución justa y oport
+
+
+## Propuestas
+
+- El derecho no es solo para los abogados, sino al igual que la ley es para todos, vamos a demostrar que a justicia si puede ser clara, justa y rápida. Me voy a asegurar de que la ley se aplique bien y con sentido común, con perspectiva de genero y a favor siempre de los mas vulnerables.
+- Se van a evitar dilaciones procesales mediante el control estricto de tiempos y sanciones a quienes promuevan recursos dilatorios, se ampliará el uso de plataformas electrónicas, para presentación de demandas, consulta de expedientes y audiencias virtuales.
+- Se identificarán los trámites innecesarios, y se eliminarán para la resolución de los casos de manera pronta y eficaz. Se redactarán las resoluciones de manera accesible para que las personas entiendan los fallos sin necesidad de un abogado especializado. Vamos a implementar la justicia con perspectiva humana y social. Con perspectiva de genero y siempre velando por las personas mas vulnerables para que tengan acceso a la justicia de manera rápida y eficiente.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: EDGAR JAIR ROMERO ORTIZ
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4439297086
+Correo Electronico: ejromeroo@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Competencia Constitucional, Competencia Ordinaria., Derecho del Trabajo, Derechos Humanos, Igualdad de Género, Justicia Laboral, Lenguaje Inclusivo, Licenciatura en Derecho, Maestría, Seguridad Social, Suprema Corte
+Tags Propósito: Estado de Derecho, Poder Judicial, Servicio público, accesibilidad., acceso a la justicia, audiencias virtuales, cohesión social, eficacia, eficiencia, honestidad, imparcialidad, inteligencia artificial, justicia, lenguaje ciudadano, optimización laboral, paz social, procedimientos judiciales, sensibilidad social, sentencias claras, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Edgar Jair Romero Ortiz es candidato a Juez/a de Distrito en Michoacán, postulando a través del Poder Judicial de la Federación. Cuenta con Maestría en Competencia Constitucional y Ordinaria, así como diversos cursos de especialización en áreas como Derecho del Trabajo, Derechos Humanos, lenguaje inclusivo y seguridad social. Su motivación para buscar el cargo público es contribuir a la nación y garantizar el acceso a la justicia.
+
+Romero Ortiz basa su visión jurisdiccional en la honestidad, imparcialidad, eficiencia y acceso a la justicia. Sus propuestas incluyen la implementación de tecnologías e inteligencias artificiales para agilizar los procedimientos, la redacción de sentencias en lenguaje ciudadano para facilitar la comprensión, y la optimización de los horarios laborales del personal judicial para mejorar la eficiencia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jairo.tax2?mibextid=wwXIfr&mibextid=wwXIfr
+- https://x.com/gau200808006?s=11
+- https://www.instagram.com/romero_ortiz_edgar_jair?igsh=c3l1dzNkNDJkZnhz&utm_source=qr
+- https://www.tiktok.com/@edgar_jair_romero_ortiz_?_t=ZM-8v576Hk6rqx&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado La Suprema Corte y los Derechos Humanos,Técnicas para la Implementación del lenguaje ciudadano e inclusivo,Género como Herramienta para la Igualdad,Diplomado en Seguridad Social
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55072/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho
+- Maestría en Competencia Constitucional y Ordinaria
+
+
+## Motivo para buscar el Cargo Publico
+
+El servicio público es la vía para contribuir con mi Nación e impartir justicia a las personas que lo soliciten.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión jurisdiccional se basa en cuatro pilares fundamentales: honestidad, imparcialidad, eficiencia y acceso efectivo a la justicia. Todo ello para lograr un sistema judicial que resuelva conflictos, con sensibilidad social, garantizando que nadie quede excluido del amparo de la ley, fortaleciendo al Poder Judicial de la Federación, hacerlo eficiente y cercano a la ciudadanía, donde cada sentencia sea un reflejo de la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia es el equilibrio entre el derecho y la realidad social, va mucho más allá de la aplicación de la ley. Es un derecho universal, no un privilegio de quien tenga poder adquisitivo. La justicia debe materializarse, ser real, accesible y tangible, no distante, ni elitista. La justicia es la razón y el pilar del Estado de Derecho. Es un instrumento de paz y de cohesión social, basado en un sistema accesible, transparente y humano, donde cada persona encuentre en el derecho un respaldo.
+
+
+## Propuestas
+
+- La tecnología y las inteligencias artificiales son una realidad y los juzgadores debemos estar actualizados y adaptarnos a ellas; propongo la utilización de tecnologías e inteligencias artificiales en el desarrollo de los procedimientos para agilizarlos; audiencias virtuales y el uso asistentes de IA para el dictado de sentencias; todo ello, con la finalidad de materializar una justicia pronta y expedita.
+- Redacción sencilla y en lenguaje ciudadano de las sentencias. Fomentar el desuso de los tecnicismos y la complejidad del lenguaje jurídico para que cualquier persona pueda comprender sin ninguna dificultad los fallos judiciales; para acercar a los juzgadores a la ciudadanía y ésta pueda cuestionarlas directamente.
+- Optimizar los horarios laborales del personal de los órganos jurisdiccionales, para que desempeñen la función y el servicio público con eficiencia y eficacia.
+

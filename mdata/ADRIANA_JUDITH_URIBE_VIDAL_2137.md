@@ -1,0 +1,75 @@
+Nombre Candidato: ADRIANA JUDITH URIBE VIDAL
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5550020100
+Correo Electronico: adrianauribev00@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: 2013, 2019, Ciudad de México, Código Fiscal, Derecho, Distrito Federal, FES Acatlán, Licenciatura, Maestría, Reformas Fiscales, Universidad Chapultepec
+Tags Propósito: Derechos fundamentales, accesibilidad, acceso a la justicia, ciudadanía, derechos humanos, empatía, justicia integral, justicia pronta, justicia social, perspectiva de género, realidad social., resolución de conflictos, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Adriana Judith Uribe Vidal es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho, egresada de la FES Acatlán, y es Licenciada en Derecho por la Universidad Chapultepec. Su trayectoria incluye cursos de actualización en Código Fiscal del Distrito Federal y de la Ciudad de México.
+
+Uribe Vidal motiva su candidatura en la posibilidad de velar por los derechos fundamentales de los ciudadanos a través de la función jurisdiccional. Su visión se centra en un acceso a la justicia más cercano y empático a la ciudadanía, privilegiando la dimensión social del derecho y los derechos humanos en la resolución de casos, con especial atención a las personas en situación vulnerable y la perspectiva de género. Sus propuestas incluyen la apertura de los órganos jurisdiccionales a la ciudadanía, la simplificación del lenguaje legal y la aplicación de protocolos sensibles en la resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/adrianauribev00
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19WjUfADEN/
+- https://x.com/adrianauribev00
+- https://www.instagram.com/adrianauribev00
+- https://www.tiktok.com/@adrianauribev00
+
+
+## Cursos
+
+- ¿Las Reformas al Código Fiscal del Distrito Federal para el 2013¿ (2013)
+- ,¿Actualizaciones 2019 al Código Fiscal de la Ciudad de México¿ (2019)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55529/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho por la Universidad Chapultepec, cursé la Maestría en Derecho en la FES Acatlán
+
+
+## Motivo para buscar el Cargo Publico
+
+A través de la labor de los juzgadores se puede velar integralmente por los derechos fundamentales de los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los órganos jurisdiccionales deben ser verdaderos impartidores de justicia, deben acercarse a la ciudadanía, escuchar sus problemáticas de manera oportuna, respetuosa y empática, así como ser abiertos para dar a conocer la función que realizan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la justicia abarca la dimensión social del derecho, porque la justicia no se limita al texto normativo o incluso a la jurisprudencia, la justicia está en la realidad social de los justiciables. Cada expediente representa una persona y una realidad que debe valorarse en forma específica.
+
+
+## Propuestas
+
+- Puertas abiertas a la ciudadanía para conocer sus problemáticas de manera oportuna y así brindar una justicia pronta y expedita.
+- Simplificar los términos en que se redactan los acuerdos y resoluciones jurisdiccionales, con el objeto de que sean más accesibles para todos los usuarios de los servicios judiciales.
+- Privilegiar en la resolución de todos los asuntos que se sometan a mi conocimiento la visión social y de derechos humanos, así como la aplicación de los protocolos para actuar con perspectiva de género, de infancia y en general de cualquier persona en situación vulnerable.
+

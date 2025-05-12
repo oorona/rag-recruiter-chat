@@ -1,0 +1,73 @@
+Nombre Candidato: FERNANDO MENDOZA FUENTES
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: 7712220485
+Correo Electronico: eljuezdelospobres@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Jurídicas, Derecho Procesal Penal, Derecho del Trabajo, Doctorado, Especialidad, Justicia., Maestría
+Tags Propósito: Adultos Mayores, Corrupción, Denuncia, Derechos Laborales, Estabilidad Laboral, Hidalgo., Igualdad, Indígenas, Juez Laboral, LGTBQ+, Migrantes, Mujeres, Nepotismo, Pachuca de Soto, Pobreza, Reforma Judicial, Transparencia, Vulnerabilidad, Víctimas del Delito
+
+
+## Descripción del Candidato 
+
+FERNANDO MENDOZA FUENTES es candidato a Juez/a de Distrito en Hidalgo, postulándose a través del Poder Ejecutivo Federal. Cuenta con doctorado en Ciencias Jurídicas, maestría en Derecho Procesal Penal y especialidad en Derecho del Trabajo y Justicia, acreditado con cédula profesional.
+
+Su motivación para buscar el cargo público se centra en ser un juez laboral federal que priorice la defensa de los derechos de los sectores más vulnerables, incluyendo a los pobres, mujeres, adultos mayores, comunidad LGBTQ+, personas con discapacidad y trabajadores de diversos sectores. Sus propuestas incluyen mantener una oficina accesible, la transparencia en sus resoluciones a través de redes sociales, la defensa de la estabilidad laboral y el combate frontal contra el nepotismo y la corrupción en el Poder Judicial, promoviendo la renovación de los jueces actuales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BMeBZxPAE/
+- https://www.instagram.com/fernando_mendoza_fuentes?utm_source=qr&igsh=OWZmaWZrMHA3bG5r
+- https://www.tiktok.com/@fernando.mendoza.fuentes?_t=ZM-8urNH2EkYAY&_r=1
+
+
+## Cursos
+
+- DOCTORADO EN CIENCIAS JURÍDICAS   MAESTRÍA EN DERECHO PROCESAL PENAL   ESPECIALIDAD EN DERECHO DEL TRABAJO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54111/11
+
+
+## Trayectoria Academica
+
+- DOCTORADO EN CIENCIAS JURÍDICAS MAESTRÍA EN DERECHO PROCESAL PENAL ESPECIALIDAD EN DERECHO DEL TRABAJO Y JUSTICIA
+
+
+## Motivo para buscar el Cargo Publico
+
+Seré el Juez Laboral Federal de los Pobres, de los más vulnerables, de los trabajadores y adultos mayores, de mujeres...
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El objetivo y propósito de la reforma al Poder Judicial de acuerdo a nuestro Expresidente AMLO y la actual Presidenta de México, es acabar con el NEPOTISMO y LA CORRUPCIÓN, por ello se requiere cambiar a todos los actuales JUECES, por nuevas personas juzgadoras. Es por ello, que invito a la toda la sociedad, a los trabajadores, a las mujeres, a los pobres, a todo el pueblo de México, a NO votar por los actuales Jueces a fin de cumplir con el propósito y objetivos de la Reforma Judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+No existe impartición de justicia en la actualidad, pues se favorece a la gente rica que soborna a los jueces. Los actuales juzgadores corruptos nombran a puros familiares y amigos a ocupar cargos en lugar de nombrar a los mas aptos y capaces, olvidándose de impartir justicia a los más pobres, a los vulnerables y a los que menos tienen. ES NECESARIO CAMBIAR A TODOS LOS JUECES, MAGISTRADOS Y MINISTROS, PARA ACABAR CON LA CORRUPCIÓN Y NEPOTISMO.
+
+
+## Propuestas
+
+- Seré el Juez Laboral Federal de P0BRES, de las clases mas vulnerables, las mujeres, la comunidad LGTBQ+, de las personas adultas mayores, de trabajadores con VIH o enfermedades estigmatizadas, sectores del campo, comunidades marginadas, indígenas, personas migrantes, víctimas del delito, trabajadores de menores de edad, propiciaré la igualdad entre mujeres y hombres, personas con discapacidad en general de los que menos tienen.
+- Como Juez Laboral Federal en Pachuca de Soto, Hidalgo, mi oficina estará abierta para recibir a la gente, escuchar sus problemas laborales y orientarla para darle solución a sus conflictos de trabajo, seré un Juez cercano a la gente, en mis redes sociales expondré las resoluciones que emita y sean de interés para la sociedad. Como Juez Laboral Federal, respetaré los derechos laborales de la base trabajadora de mi tribunal, en principio su estabilidad laboral, nadie se quedará sin trabajo.
+- Como Juez Laboral Federal en Pachuca de Soto, Hidalgo, acabaré con el nepotismo, denunciaré a cualquier persona juzgadora que pretenda nombrar con algún puesto, por medio de intercambio, favorecimiento, amiguismo, pago u otra índole a alguno de sus familiares por afinidad o consanguinidad, e igual invito a toda persona a que me denuncie si llegó a realizar dicha conducta por demás nefasta, vil y odiada.
+

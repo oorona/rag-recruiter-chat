@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN HECTOR VALENZUELA RODRIGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8448805767
+Correo Electronico: juanleyes007@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Decisión Judicial, Derecho, Derecho Constitucional, Derechos Humanos, Formación, Función Jurisdiccional, Género, Licenciatura, Maestría, Poder Judicial de la Federación, Secretarios.
+Tags Propósito: Amparo, Austeridad, Democracia, Derechos Fundamentales, Eficacia, Eficiencia, Función Jurisdiccional., Honestidad, Imparcialidad, Justicia, Modernización, Nepotismo, Poder Judicial, Presupuesto, Recursos Humanos, Sistemas Informáticos, Tecnología, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Juan Hector Valenzuela Rodriguez es candidato a Magistratura de Tribunales Colegiados de Circuito en Nuevo León, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con 17 años de trayectoria en el Poder Judicial de la Federación y posee una Maestría en Derecho Constitucional y Derechos Humanos, siendo el primer lugar de su generación. 
+
+Su motivación para el cargo se basa en su pasión por el trabajo judicial y el servicio a su país. En su visión, la función jurisdiccional exige honestidad, imparcialidad y personal capacitado, mientras que la impartición de justicia en México presenta oportunidades de mejora en eficiencia y accesibilidad. Sus propuestas principales incluyen combatir el nepotismo, modernizar los sistemas informáticos del Poder Judicial y optimizar el uso de los recursos humanos y materiales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574081798311
+- https://www.instagram.com/juanleyes007/
+- https://www.tiktok.com/@juanleyes007
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Diplomado Decisión Judicial con Perspectiva de Género,Diplomado en Argumentación Jurídica,Diplomado en Derechos Humanos Poder Judicial de la Federación,Diplomado Introducción a la Función Jurisdiccional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55387/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Constitucional y Derechos Humanos Primer lugar de la generación
+- Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo 17 años de carrera judicial en el PJF, me apasiona mi trabajo y es un honor servir a mi país como juzgador federal
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar fundamental en el funcionamiento de cualquier democracia constitucional moderna. En estricto sentido, el correcto desempeño de la función jurisdiccional exige un compromiso inquebrantable con la honestidad y la imparcialidad por parte de sus operadores; al respecto, debe decirse que el ejercicio de la función requiere también de las personas más capaces, pues están involucrados los derechos fundamentales de la población, destacándose los grupos vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México tiene grandes áreas de oportunidad, vamos, son múltiples los aspectos susceptibles de mejorar, principalmente la eficiencia y la eficacia en el desempeño de la función, algunos juicios son demasiado largos y, el proceso de amparo exige un conocimiento técnico especializado que torna inaccesible este importante mecanismo de defensa de derechos fundamentales para los grupos de personas más vulnerables, lo que indirectamente produce muchas injusticias.
+
+
+## Propuestas
+
+- Combate al Nepotismo. En carne propia he sufrido el nepotismo, desde mis inicios como servidor público de carrera judicial, se otorgó un nombramiento al sobrino de un magistrado que recién se había incorporado al juzgado de Distrito, cuando yo tenía muchos más méritos para recibir el nombramiento. Ahora entiendo que no sólo yo resentí la injusticia, sino que contratar a personas sólo porque son familiares de algún titular del Poder Judicial impacta directamente a la calidad del servicio.
+- Modernización de los sistemas informáticos. El uso de las tecnologías de la información en la función jurisdiccional impactaría en forma positiva en su mejora, por mencionar algún factor en específico, ya no sería necesario que los justiciables acudan personalmente a las instalaciones de los órganos jurisdiccionales para conocer el estatus de sus expedientes, que en muchos casos, como en Nuevo León, son de difícil acceso, alejados y más aún para personas que no cuentan con vehículo propio.
+- Eficiencia en el uso de los recursos humanos y materiales. El Poder Judicial de la Federación es una gran institución y para su funcionamiento se requiere un gran presupuesto, sin duda, usar los recursos con eficiencia y responsabilidad reduciría significativamente los costos que implica la prestación de este importante servicio del Estado, las políticas de austeridad, pero que no comprometan el correcto desarrollo de la función son torales para alcanzar este propósito.
+

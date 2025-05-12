@@ -1,0 +1,72 @@
+Nombre Candidato: ESTELA FERNANDA DIAZ RAMOS
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9515902187
+Correo Electronico: ef.dr@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derechos Humanos, Diplomado, Educación Superior., Licenciatura en Derecho, Maestría, Sistema Penal Acusatorio Adversarial, Universidad Autónoma de Oaxaca
+Tags Propósito: Estado de derecho, acceso a la justicia, confianza ciudadana, debido proceso, derechos humanos, eficiencia, equidad, función jurisdiccional, gestión judicial, imparcialidad, justicia, legalidad, paz social, rendición de cuentas, resolución de conflictos., sistema penal, transparencia
+
+
+## Descripción del Candidato 
+
+Estela Fernanda Diaz Ramos es candidata a Jueza/es de Distrito en Oaxaca, postulándose a través del Poder Ejecutivo y Legislativo Federal. Es Licenciada en Derecho, actualmente cursando una Maestría en Sistema Penal Acusatorio Adversarial y con un Diplomado en Derechos Humanos.
+
+Su motivación para buscar el cargo es contribuir a la justicia, aplicar su experiencia legal y fortalecer el sistema penal. Propone reducir el tiempo de resolución de casos mediante una gestión eficiente de expedientes, supervisar y evaluar el desempeño judicial para mejorar la eficiencia y la rendición de cuentas, y fortalecer la confianza ciudadana a través de mecanismos accesibles y transparentes. Su visión para la función jurisdiccional y la impartición de justicia se centra en garantizar una justicia imparcial, pronta, expedita, con apego a la Constitución y los derechos humanos, promoviendo la paz social y el fortalecimiento del Estado de derecho.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/fernanddiazr/about/
+
+
+## Cursos
+
+- Cursando actualmente la Maestría en Sistema Penal Acusatorio Adversarial Universidad Autónoma   de Oaxaca,Diplomado en Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52897/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho y actualmente curso la Maestría en Sistema Penal Acusatorio Adversarial
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a la justicia, aplicar mi experiencia legal y fortalecer el sistema penal con imparcialidad y compromiso
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia imparcial, pronta y expedita, con estricto apego a la Constitución y los derechos humanos. Implica resolver conflictos con objetividad, aplicando el derecho de manera equitativa y transparente. Mi visión es consolidar un sistema penal eficiente, basado en la legalidad y el debido proceso, que genere confianza en la ciudadanía y contribuya a un Estado de derecho sólido y accesible para todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Busco una justicia que no solo resuelva conflictos, sino que también promueva la paz social y el fortalecimiento del Estado de derecho. La impartición de justicia debe ser imparcial, accesible y eficaz, garantizando el respeto a los derechos humanos y el debido proceso. Mi visión es fortalecer un sistema basado en la legalidad, la transparencia y la equidad, donde las resoluciones sean justas, prontas y contribuyan a la confianza ciudadana.
+
+
+## Propuestas
+
+- Reducción del tiempo de resoluciones mediante una gestión más eficiente de los expedientes y la optimización de audiencias.
+- Supervisión y evaluación periódica del desempeño judicial para mejorar la eficiencia y reforzar la rendición de cuentas en la función jurisdiccion
+- Fortalecer la confianza ciudadana mediante mecanismos accesibles y transparentes.
+

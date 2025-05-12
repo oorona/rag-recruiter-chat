@@ -1,0 +1,80 @@
+Nombre Candidato: ROBERTO RODRIGUEZ GARZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8123777046
+Correo Electronico: roberto@rrg.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización., Ciencias Políticas, Consejo de la Judicatura Federal, Derecho, Derecho Fiscal, Derecho Mercantil, Derecho Privado, Diplomado, Doctorado, ITESM, Impuestos, Juicio de Amparo, Maestría, Reforma Fiscal, Seguridad Social, Suprema Corte de Justicia de la Nación, Universidad Autónoma de Nuevo León
+Tags Propósito: acceso a la justicia, capacitación continua, derechos humanos, eficiencia, estado de derecho., igualdad, imparcialidad, inclusión, independencia judicial, justicia, legalidad, modernización judicial, observatorios judiciales, profesionalización, rendición de cuentas, tecnologías digitales, transparencia, transparencia judicial, ética
+
+
+## Descripción del Candidato 
+
+ROBERTO RODRÍGUEZ GARZA es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación en Nuevo León. Cuenta con un alto nivel de escolaridad, incluyendo un doctorado, y amplia formación complementaria en áreas como juicio de amparo, impuestos y reforma fiscal. Su trayectoria académica incluye estudios en Derecho Fiscal, Ciencias Políticas, Derecho Privado y Fiscal.
+
+El candidato motiva su búsqueda del cargo en el deseo de fortalecer la justicia con un enfoque académico y un compromiso con la ética, imparcialidad y legalidad. Su visión de la función jurisdiccional se centra en la independencia judicial, transparencia, acceso a la justicia y protección de los derechos humanos, proponiendo la modernización del sistema judicial. Entre sus propuestas destacan programas de capacitación continua para juzgadores en temas de igualdad, inclusión y derechos humanos, la incorporación de tecnologías digitales para facilitar el acceso a la justicia, y el fortalecimiento de la transparencia en los procedimientos judiciales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.rrg.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1LUJ9sREfb/
+- https://x.com/roberto_rg?s=09
+- https://www.instagram.com/robertordz11?igsh=MXRpMDljMjR1ZTE4Mg==
+- https://youtube.com/@robertordz7?feature=shared
+- https://www.tiktok.com/@robertordz.11?_t=ZS-8uUbkL2uBo0&_r=1
+- https://www.linkedin.com/in/rrgabogado
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo en la Suprema Corte de Justicia de la Nación
+- ,Diplomado en Impuestos y Seguridad Social en el Instituto Tecnológico y de Estudios Superiores de Monterrey
+- ,Diplomado en Reforma Fiscal 2014 en la Facultad de Contaduría Pública de la Universidad Autónoma de Nuevo León
+- ,Diplomado en la Nueva Ley de Amparo en la Facultad de Derecho de la Universidad Autónoma de Nuevo León
+- ,Actualización en Derecho Mercantil, impartido por el Consejo de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54405/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho Fiscal; Doctorando en Ciencias Políticas; Maestro en Derecho Privado y Fiscal; y Licenciado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+A fin de fortalecer la justicia con enfoque académico, de postulante y juzgador; con ética, imparcialidad y legalidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional versa en la independencia judicial, transparencia, imparcialidad, acceso a la justicia y protección a los derechos humanos. Debe realizarse utilizando sistemas de modernización judicial con el fin de que la justicia llegue a todos y sea ágil, prevaleciendo la profesionalización y ética de los juzgadores, con el fin de lograr una eficaz impartición de justicia, que sea pronta, expedita y completa. Reforzando la máxima protección a los derechos fundamentales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar legalidad, igualdad, imparcialidad y eficiencia, fortaleciendo la confianza de la ciudadanía en las instituciones. Requiere un sistema judicial sólido, que cuente con los jueces más capacitados y que resuelvan con apego al derecho y a los derechos humanos; jueces que no solo apliquen las normas, sino que transformen realidades mediante resoluciones equitativas, justas, eficaces y completas, consolidando con ello un verdadero estado de derecho.
+
+
+## Propuestas
+
+- Para obtener una justicia eficaz y sensible a las necesidades sociales, es indispensable establecer programas de capacitación continua para todos los juzgadores. Dichas capacitaciones deben enfocarse en temas clave tal como lo son: la igualdad, la inclusión y los derechos humanos, con una perspectiva tanto nacional como internacional. La actualización constante del conocimiento fortalece la calidad de las resoluciones y promueve una impartición de justicia más equitativa y humana.
+- La justicia debe ser cercana y accesible para todas las personas, sin importar su condición o ubicación. En este sentido, la incorporación de tecnologías digitales en los procedimientos judiciales representa una herramienta clave para facilitar el acceso al derecho. Las plataformas en línea, sesiones virtuales y sistemas de gestión digital permiten reducir barreras, así como agilizar los procesos y mejorar la atención a la ciudadanía, garantizando un sistema judicial más moderno y eficiente.
+- El fortalecimiento de los mecanismos de transparencia en los procedimientos judiciales es clave para consolidar una justicia abierta. Garantizar el acceso público a las resoluciones y a los fundamentos que las sustentan fortalece la rendición de cuentas y la confianza ciudadana. La creación de observatorios judiciales permitiría monitorear el actuar jurisdiccional, promover buenas prácticas y detectar áreas de mejora, impulsando así un sistema más participativo y responsable.
+

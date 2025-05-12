@@ -1,0 +1,76 @@
+Nombre Candidato: HESED HERNANDEZ TORREZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6634061113
+Correo Electronico: hesedht@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualizaciones Legislativas., Derecho Concursal, Derechos Humanos, Doctorado, Ley de Amparo, Licenciatura en Derecho, Maestría, Poder Judicial de la Federación, Secretaría de Juzgado, Tribunal de Circuito
+Tags Propósito: Accesibilidad, Capitación, Confianza, Cultura jurídica, Derechos Humanos, Eficiencia, Igualdad, Imparcialidad, Justicia, Modernización, Participación ciudadana, Protección al débil., Rendición de cuentas, Resolución de conflictos, Servicio público, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+HESED HERNANDEZ TORREZ es candidato a Jueces/es de Distrito en Baja California, postulado por el Poder Legislativo Federal. Cuenta con Maestría en Derecho y una trayectoria académica en la Universidad Autónoma de Baja California, habiendo iniciado estudios de Doctorado. Su motivación para buscar el cargo público se centra en servir a la gente, impartir justicia sin distinción y velar por el respeto a los derechos humanos.
+
+Su visión de la función jurisdiccional y la impartición de justicia se basa en recuperar la confianza del público en el sistema judicial, ofreciendo un servicio ágil, accesible y libre de corrupción. Sus propuestas incluyen garantizar una justicia equitativa sin discriminación, modernizar el sistema judicial mediante el uso de la tecnología y elaborar resoluciones claras y comprensibles para la ciudadanía, fomentando la cultura jurídica a través de diversos medios de comunicación.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Hesed Hernández Torrez
+- https://www.x.com/@hesedht
+- https://www.instagram.com/@hesedht
+- https://www.youtube.com/HesedHernandezTorrez
+- https://www.tiktok.com/@hesedht
+- https://www.threads.com/@hesedht
+
+
+## Cursos
+
+- Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, en el Instituto de la Judicatura Federal,Curso Básico de Formación de Secretarios del Poder Judicial de la Federación,¿	Primer Congreso Nacional de Derecho Concursal, del Instituto Federal de Especialistas de Concursos Mercantiles,¿	Actualizaciones legislativas, en el Instituto de la Judicatura Federal,¿	Curso de la Ley de Amparo con enfoque de derechos humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53551/11
+
+
+## Trayectoria Academica
+
+- Soy licenciado en Derecho por la Universidad Autónoma de Baja California; estudié una Maestría y curso el Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir y escuchar a la gente, impartir justicia sin distinción alguna y velar por el respeto a los derechos humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El México de hoy tiene sed de justicia debido a los atropellos y abusos de quienes deberían de servir al pueblo; los jueces no han logrado crear la percepción de una justicia cercana a la gente, motivo por el cual la actuación de los impartidores de justicia no sólo debe consistir en aplicar las normas, sino garantizar derechos, proteger al débil frente al poderoso y hacer justicia, incluso de resultar incómoda o impopular, ello para recuperar la confianza en el sistema judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México se percibe por el pueblo como un trámite o proceso burocrático viciado, tardado, inaccesible, reservado para unos cuantos e incluso lleno de corrupción, por ello estamos ante una oportunidad inmejorable de convertir la impartición de justicia en un servicio público ágil, confiable y cercano a la gente, que otorgue autoridad moral a los jueces y el ciudadano tenga seguridad de alcanzar lo que le pertenece, la experiencia será importante para lograr ese anhelo.
+
+
+## Propuestas
+
+- Tener una justicia que no discrimine por condición social, género o poder adquisitivo, que a todos trate por igual, sin favorecer al rico o poderoso y cercana a la gente, para ello debe implementarse una justicia de puertas abiertas, que todos tengan acceso a exponer su caso al juez, ya que antes de dictar sentencias, hay que entender las vidas que hay detrás de cada caso.
+- Que el servicio público de impartición de justicia sea rápido, ágil, confiable y cercano a la gente, para ello debe modernizarse mediante el uso de la tecnología para agilizar procesos y eliminar barreras, lo cual también permitiría hacer más con menos recursos, así como la constante actualización y capacitación de los impartidores de justicia.
+- Elaborar resoluciones sencillas y entendibles, así como explicar las resoluciones a la ciudadanía mediante redes sociales, notas informativas o foros, para contribuir a la cultura jurídica de la sociedad.
+

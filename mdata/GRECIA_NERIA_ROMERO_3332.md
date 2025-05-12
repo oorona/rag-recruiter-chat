@@ -1,0 +1,72 @@
+Nombre Candidato: GRECIA NERIA ROMERO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: nerogre@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derechos Humanos, Igualdad de Género, Juicio de Amparo, Licenciatura en Derecho, Maestría, Perspectiva de Género, Reforma Laboral, Reforma al Juicio de Amparo, Universidad de Xalapa., Violencia
+Tags Propósito: Administración de justicia, Derechos humanos, Diálogo ciudadano, Formación continua, Igualdad, Justicia inclusiva, Necesidades específicas, Participación ciudadana, Proporcionalidad, Realidades sociales, Rendición de cuentas, Responsabilidad social, Sistema judicial., Transformación social, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+GRECIA NERIA ROMERO es candidata a Jueza/es de Distrito en Veracruz, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derechos Humanos y Juicio de Amparo por la Universidad de Xalapa, además de formación en temas como reforma al juicio de amparo, reforma laboral, perspectiva de género y la prevención de la violencia.
+
+Su motivación para buscar el cargo público se basa en contribuir a un sistema judicial más inclusivo. Su visión de la función jurisdiccional y la impartición de justicia enfatiza el respeto a los derechos humanos, la consideración de las realidades sociales, la transparencia y la inclusión de grupos vulnerables.  Propone la creación de mesas de diálogo periódicas entre operadores de justicia y diversos sectores de la población para mejorar la administración de justicia y acercarla a las necesidades ciudadanas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/grecia.neriaromero
+- https://www.instagram.com/grecianeria/
+
+
+## Cursos
+
+- Congreso Nacional de Reforma al Juicio de Amparo,Seminario Virtual sobre la Reforma Laboral,Juzgar con Perspectiva de Género,Curso Género como herramienta para la igualdad,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54601/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Maestría en Derechos Humanos y Juicio de Amparo (ambas por la Universidad de Xalapa)
+
+
+## Motivo para buscar el Cargo Publico
+
+Mujer con altos valores morales y quiero contribuir haciendo el sistema judicial más inclusivo para todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que la función jurisdiccional debe ser entendida como un proceso que va más allá de la simple aplicación de la ley, donde está presente el respeto a los derechos humanos y se toman en consideración las distintas realidades que viven las personas que se acercan a los juzgados y tribunales, para así, lograr una transformación social, donde se asegure, en conjunto con los otros poderes, que se logrará una justicia consciente de las necesidades que viven cada habitante de este país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Me parece que el proceso de impartición de justicia debe ir de la mano con el compromiso de la transparencia, rendición de cuentas y responsabilidad social, donde a través de herramientas jurídicas como la aplicación de criterios de interpretación, análisis de principios y el uso de técnicas como el test de proporcionalidad que permitan corregir las desigualdades y favorecer la inclusión de los grupos en situación de vulnerabilidad, quienes han sido históricamente marginados.
+
+
+## Propuestas
+
+- Es fundamental que las personas operadoras de justicia comprendan las realidades sociales y las necesidades específicas de cada sector. Si bien existen programas de formación continua, me parece que hacen falta espacios de diálogo y retroalimentación donde se escuche a la ciudadanía y se conozca la perspectiva de determinados grupos en situación de vulnerabilidad de primera mano.
+- Estos espacios podrían generarse como mesas de diálogo periódicas entre las personas operadoras de justicia y diferentes sectores de la población donde haya cabida para la escucha y retroalimentación. Lo cual, serviría no solo para compartir experiencias, sino para crear propuestas concretas de mejora al sistema judicial. De esta forma se estaría logrando una administración de justicia más cercana a las necesidades de la ciudadanía.
+- No proporcionó
+

@@ -1,0 +1,74 @@
+Nombre Candidato: MANUEL GALEANA ALARCON
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 7471331059
+Correo Electronico: manuelgaleanaalarcon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Calificaciones Excelentes, Educación Jurídica., Instituto de la Judicatura Federal, Secretaría de Juzgado, Tribunal de Circuito, Universidad Iberoamericana
+Tags Propósito: Acceso a la justicia, Acoso, Ambiente laboral, Atención a justiciables, Corrupción, Dignidad, Eficiencia, Imparcialidad, Juicios rápidos, Justicia, Legalidad, Nepotismo., Poder Judicial Federal, Recursos, Respeto, Sentencias claras, Servidores públicos, Transparencia, Trato igualitario, Visión social
+
+
+## Descripción del Candidato 
+
+MANUEL GALEANA ALARCÓN es candidato al Poder Legislativo Federal, con trayectoria como Magistrado de Tribunales Colegiados de Circuito en Guerrero. Cuenta con una Maestría concluida y especialización en Secretaría de Juzgado de Distrito y Tribunal de Circuito, así como un Diplomado en Argumentación Jurídica. 
+
+Su motivación para buscar el cargo se basa en la necesidad de transformar el Poder Judicial Federal, buscando una justicia más cercana a la gente, con juicios rápidos y sentencias claras. Sus propuestas principales incluyen mejorar la atención a los justiciables garantizando un trato igualitario y digno, eficientar los recursos para agilizar los procesos judiciales y asegurar un ambiente laboral respetuoso para todos los trabajadores del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Lic. Manuel Galeana Alarcón
+- https://www.instagram.com/lic_manuel_galeana_alarcon
+- https://www.tiktok.com/mgkatsoe
+
+
+## Cursos
+
+- Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, Instituto de la Judicatura Federal
+- ,Diplomado en Argumentación Jurídica, Universidad Iberoamericana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53253/10
+
+
+## Trayectoria Academica
+
+- En todos mis estudios obtuve excelentes calificaciones
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque el Poder Judicial Federal debe cambiar, impartir justicia cercana a la gente. Juicios rápidos y sentencias claras
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es necesario hacer cambios a la función jurisdiccional, actualmente la sociedad quiere que los tribunales y juzgados del Poder Judicial de la Federación verdaderamente velen por sus derechos. Se necesita una justicia con visión social; además, que en realidad se escuche y se atienda a las personas que tienen la necesidad de acudir a un tribunal de amparo en demanda de protección a sus derechos y garantías.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi propuesta consiste en mejorar la atención a los justiciables, que exista un trato igual para todos; que se atienda de manera amable y respetuosa a quienes acudan ante un tribunal en demanda de justicia y protección; que el respeto a la dignidad de las personas y de los propios trabajadores del Poder Judicial de la Federación sea la norma que guíe a los nuevos jueces y magistrados como servidores públicos y que sólo la ley oriente el sentido de sus sentencias, sin corrupción, sin nepotismo.
+
+
+## Propuestas
+
+- Mejorar la atención a los justiciables, esto es, que todas las personas que acudan ante el órgano jurisdiccional, reciban un trato amable, respetuoso y digno. Que tanto el empresario o empresaria, campesino o campesina, sean atendidos de manera igual, sin privilegios, sin distingos de ningún tipo y sin discriminación.
+- Eficientar los recursos materiales, tecnológicos y humanos a fin de mejorar los tiempos de trámite y resolución de los asuntos, es decir, que los juicios sean más rápidos y las sentencias más claras.
+- Que todos los trabajadores del Poder Judicial de la Federación reciban un trato respetuoso por parte de los titulares del órgano jurisdiccional, que puedan desempeñarse en un ambiente seguro y libre de acoso.
+

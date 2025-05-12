@@ -1,0 +1,75 @@
+Nombre Candidato: MARIO GALINDO ARIZMENDI
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6691170719
+Correo Electronico: mgalindoa@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Argumentación Jurídica, CJF, Derecho Penal, Derecho Procesal Constitucional, Derecho Procesal Penal, Derechos Humanos, Doctorado, INDEPAC, Interpretación Constitucional., Interpretación Judicial, Licenciatura en Derecho, Maestría, Universidad Autónoma del Estado de Morelos, Universidad Panamericana
+Tags Propósito: Administración de justicia., Concisión, Eficiencia, Juicio de Amparo, Jurisprudencia, Justicia, Pragmatismo, Productividad, Rezago judicial, Tribunales Colegiados
+
+
+## Descripción del Candidato 
+
+Mario Galindo Arizmendi es candidato a Magistratura de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal para el estado de Sinaloa. Cuenta con estudios de Doctorado en Derecho con orientación en materia Constitucional, Derechos Humanos y Derecho Penal, además de dos Maestrías en Derecho Procesal. Su trayectoria profesional se centra en la función jurisdiccional, la cual ha desempeñado por más de veintitrés años.
+
+Su visión para la función jurisdiccional se enfoca en aumentar la productividad de los Tribunales. Propone mecanismos para reducir el rezago, como la resolución unitaria de ciertos asuntos y la delimitación de la procedencia del Juicio de Amparo Directo. Adicionalmente, busca facultar al Presidente del Tribunal Colegiado para desechar asuntos con jurisprudencia existente de la Corte. Su información de contacto y Curriculum Vitae están disponibles en las fuentes proporcionadas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/Mario Galindo
+
+
+## Cursos
+
+- Maestría en Derecho Procesal Constitucional, Universidad Panamericana, Ciudad de México
+- ,Maestría en Derecho Procesal Penal, Instituto de Estudios Superiores en Derecho Penal (INDEPAC), Ciudad de México
+- ,Doctorado en Derecho con orientación en materia Constitucional, Derechos Humanos y Derecho Penal, INDEPAC
+- ,Cursos sobre Derecho Penal, Derechos Humanos, Interpretación Judicial, Argumentación Jurídica, impartidos por el CJF
+- ,Cursos de Interpretación Constitucional y Amparo, impartidos por el CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53285/10
+
+
+## Trayectoria Academica
+
+- Egresado de Licenciado en Derecho en la Universidad Autónoma del Estado de Morelos, además dos Maestrías y un Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+La principal razón, estriba en el hecho de que durante más de veintitrés años he desempeñado esa función jurisdiccional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es necesario establecer diversos mecanismos para que sea más productiva.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es necesario cambiar de paradigmas en la aplicación de justicia, esto es, ser más pragmático en la resolución de los asuntos, dado que actualmente existe la impresión de que los fallos judiciales deben ser bastante extensos en cuanto al contenido de los mismos, pasándose por alto que la administración de justicia debe ser clara y concisa, sin demasiados formulismos.
+
+
+## Propuestas
+
+- Para poder erradicar el gran rezago que existe en los diversos Tribunales Colegiados de Circuito de la República Mexicana, es necesario instrumentar en cada uno de esos órganos colegiados, la posibilidad de que un determinado tipo de asuntos puedan ser resueltos de manera unitaria por cada uno de los integrantes de un Tribunal Colegiado tan es así que ese sistema de justicia impera en los Tribunales de Justicia Federal y Administrativa.
+- Delimitar la procedencia del Juicio de Amparo Directo a determinado tipo de asuntos, esto es, atendiendo a la naturaleza del acto reclamado, el monto en litigio y la trascendencia que pudiera tener en el ámbito político, económico y social.
+- Facultar al Presidente del Tribunal Colegiado a efecto de que por Auto de Presidencia pueda desechar aquellos asuntos en los que ya exista Jurisprudencia de la Corte.
+

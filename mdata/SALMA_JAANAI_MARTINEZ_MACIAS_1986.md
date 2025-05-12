@@ -1,0 +1,81 @@
+Nombre Candidato: SALMA JAANAI MARTINEZ MACIAS
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8442568314
+Correo Electronico: Jaanai_salma@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: California Western School of Law, Derecho, Derechos Humanos, Género, Investigación, Justicia para Adolescentes, Litigación Oral, Poder Judicial Coahuila., Sistema Penal Acusatorio, UAdeC, Universidad Autónoma de Coahila, Universidad Paulo Unifreire
+Tags Propósito: Agilización procesal, Concentración, Derechos fundamentales, Derechos humanos, Digitalización, Estado de derecho, Expedita justicia., Imparcialidad, Jueza penal federal, Justicia, Legalidad, Pronta justicia, Publicidad, Reparación del daño, Seguridad jurídica, Tecnología, Transparencia, Víctimas, Ética
+
+
+## Descripción del Candidato 
+
+Salma Jaanai Martinez Macias es candidata a Jueza/es de Distrito en Coahuila, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría y una trayectoria profesional enfocada en el sistema de justicia penal acusatorio y oral. Su motivación para el cargo se basa en su experiencia profesional y su deseo de contribuir a la justicia.
+
+Su visión de la función jurisdiccional enfatiza la necesidad de conocimientos técnicos, compromiso con la justicia, eficacia, transparencia, valores éticos y respeto al estado de derecho. Sus propuestas incluyen garantizar la reparación del daño integral a las víctimas en sentencias penales, utilizar la tecnología para la difusión de criterios judiciales respetando la privacidad, y agilizar los procesos penales aplicando el principio de concentración.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BZoY72sE1/
+- https://x.com/SalmaJaanai?t=vCFkuqdpskG5D5GyksvDcg&s=08
+- https://www.instagram.com/salma_jaanai?igsh=OTM1OG1peTlmMm12
+- https://www.tiktok.com/@salma.jaanai?_t=ZM-8uzgHUTPzVv&_r=1
+- https://www.threads.net/@salma_jaanai
+
+
+## Cursos
+
+- UNIVERSIDAD  2018 Universidad Autónoma de Coahuila
+- Resultado de Ceneval  DERECHO: Satisfactorio
+- ,MAESTRÍA EN DERECHO CON ESPECIALIZACIÓN EN LITIGACIÓN ORAL  2019 California Western School  Law, San Diego
+- ,ESPECIALIZACIÓN EN EL SISTEMA DE JUSTICIA PARA ADOLESCENTES
+- MAYO 2024 Universidad Paulo Unifreire
+- ,ESPECIALIDAD EN GÉNERO Y DERECHOS HUMANOS  2023 Academia Interamericana de Derechos Humanos UAdeC,Curso Técnicas de Investigación
+- Mayo 2020, PODER JUDICIAL DEL ESTADO DE COAHUILA DE ZARAGOZA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53751/11
+
+
+## Trayectoria Academica
+
+- En toda mi trayectoria profesional he ejercido como operadora del sistema de justicia penal acusatorio y oral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser jueza penal federal, porque mi trayectoria profesional, me respalda para ostentar dicho cargo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de una persona juzgadora es tener los conocimientos necesarios para asumir un compromiso con la justicia y contribuir a que se cumplan los objetos y principios del proceso, con eficacia y transparencia. Así también, no basta con tener la preparación técnica y adecuada, sino que es importante contar con valores éticos, siendo referente de objetividad y respeto al Estado de derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo firmemente que, la impartición de justicia debe ser con total imparcialidad, garantizando los derechos fundamentales de las partes de acuerdo a la ley y observando las peculiaridades del caso, fundando y motivando las resoluciones judiciales, apegadas al principio de legalidad, dando seguridad jurídica a los ciudadanos y fomentando así la confianza en las instituciones.
+
+
+## Propuestas
+
+- Desde la trinchera de la persona juzgadora cuando se tenga convicción de culpabilidad de una persona acusada por un hecho delictivo, garantizar la reparación del daño integral a víctimas, evitando sentencias sin contemplar este enfoque de víctimas y derechos humanos.
+- Tomando en cuenta el avance tecnológico y uso de medios digitales, utilizarlos no sólo en tiempos de campaña electoral, sino adoptando estos medios para dar difusión a la actuación judicial, como lo son sus criterios y resoluciones judiciales; garantizando la publicidad y reservando los datos personales de las partes.
+- Agilización de los procesos penales, aplicando en la medida de lo posible el principio de concentración. Evitando a toda costa el diferimiento innecesario de audiencias, garantizando una justicia pronta y expedita.
+

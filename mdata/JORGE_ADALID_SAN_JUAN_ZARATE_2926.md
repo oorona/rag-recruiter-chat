@@ -1,0 +1,74 @@
+Nombre Candidato: JORGE ADALID SAN JUAN ZARATE
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 9511122462
+Correo Electronico: lic.jorge.sanjuan@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Carrera Judicial, Derecho Civil, Derecho Mercantil, Derechos Humanos, Formación Judicial, Instituto Cognos Lumen, Justicia Agraria, Licenciatura en Derecho, Maestría, Posgrado., Predios, Suprema Corte de Justicia, Universidad Anáhuac Oaxaca
+Tags Propósito: Accesibilidad, Adaptación, Corrupción, Derecho, Diversidad cultural, Diálogo social, Equidad, Género, Impunidad, Independencia., Integridad, Justicia, Legalidad, Lenguaje jurídico, Necesidades sociales, Profesionales del derecho, Protección, Seguridad jurídica, Sentencias claras, Sistema judicial, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jorge Adalid San Juan Zárate es candidato a Jueces de Distrito en Oaxaca, postulado por el Poder Ejecutivo Federal. Es licenciado en Derecho por la Universidad Anáhuac Oaxaca y cuenta con maestría concluida. Su trayectoria incluye cursos en materia de amparo, derechos humanos, derecho civil y mercantil, justicia agraria y predios.
+
+El candidato manifiesta su interés en el cargo para continuar contribuyendo positivamente a la sociedad. Su visión de la función jurisdiccional se centra en el ejercicio del derecho conforme a la constitución y tratados internacionales, priorizando la protección de grupos vulnerables y la seguridad jurídica. Sus propuestas incluyen el diálogo con grupos sociales para mejorar la aplicación del derecho, la redacción de sentencias más accesibles y la adaptación del sistema judicial a la diversidad cultural y lingüística de Oaxaca.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/j.a.sanzarhtt
+- https://www.instagram.com/jorgesan531
+
+
+## Cursos
+
+- SEMINARIO EN MATERIA DE AMPARO, POR LA COMISIÓN DE CARRERA JUDICIAL ADSCRIPCIÓN Y EVALUACIÓN, CONSEJO DE LA JUDICATURA,CONGRESO NACIONAL DE DERECHOS HUMANOS POR LA UNIVERSIDAD ANÁHUAC OAXACA
+- ,CURSO INDUCCIÓN EN MATERIA CIVIL Y MERCANTIL, POR LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,CURSO  DE PREDIOS MEDIANTE INMATRICULACIÓN Y  POR EL INSTITUTO EDUCATIVO COGNOS LUMEN
+- ,MESA DE ANÁLISIS DE JUSTICIA AGRARIA EN MÉXICO, POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53505/11
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO POR LA UNIVERSIDAD ANÁHUAC OAXACA Y MAESTRANTE POR EL CENTRO DE ESTUDIOS DE POSGRADO (CONCLUIDO)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para continuar siendo testigo que el ejercicio de mi profesión puede seguir generando un cambio positivo en la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer el derecho, conforme a las máximas constitucionales en coordinación con lo dispuesto por los tratados y convenciones internacionales, en pro de los grupos vulnerables y la sociedad en general, logrando con ello garantizar la seguridad jurídica de las y los gobernados, en un marco de legalidad y equidad; fomentando principios de igualdad, imparcialidad, independencia, gratuidad, integridad, competencia y corrección, para lograr con ello la cimentación de un pilar del poder judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Conservar un sistema que en sus máximas conduzca a la solución de conflictos, vigilando plenamente la aplicación de la Ley conforme al mejor derecho y desafiando barreras como la corrupción, la impunidad, la demora judicial, el tráfico de intereses y las malas prácticas judiciales; garantizando legalidad, profesionalismo y perspectiva de género conforme a las necesidades de una sociedad que exige un orden social que dé protección a las diferentes vertientes sociales y grupos vulnerables.
+
+
+## Propuestas
+
+- Trabajar de cerca con los diferentes grupos sociales y vulnerables, para la creación de círculos de dialogo, en los que puedan manifestar y transmitir a los funcionarios jurisdiccionales la visión que tienen de su entorno desde su muy particular necesidad de justicia, es decir dotar a los aplicadores del derecho de las herramientas sociales, culturales, religiosas y entre otras que causen impacto en la esfera jurídica de los gobernados, para lograr con ello una mejor aplicación de la norma.
+- Generar sentencias más cercanas a la sociedad, propiciando un lenguaje menos tecnificado, pero conservando el profesionalismo de una redacción concreta, directa y garante del mejor derecho, haciendo de ellas un texto de mayor entendimiento y que transmita una mejor certeza y seguridad jurídica a los gobernados.
+- Al encontrarnos en un Estado rico de culturas, idiomas, etnias y diversas formas de vida, la justicia debe proyectarse en un sentido acorde a tales circunstancias, no limitándose a un simple requisito de interpretación del lenguaje jurídico en diferentes idiomas, sino proyectándose conforme a las necesidades particulares de quien exige justicia, dotándose el sistema jurisdiccional de profesionales, que puedan adaptar el ejercicio del derecho a las circunstancia de vida de cada ciudadano.
+

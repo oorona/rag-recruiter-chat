@@ -1,0 +1,78 @@
+Nombre Candidato: ALFONSO JOSE BORJA ARIAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3322977192
+Correo Electronico: borja27@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Curso Magistral., Derecho, Derecho Constitucional Tributario, Derecho de Consumo, Derecho de Contratos, Doctorado, Estudios Doctorales, Gerenciales, Habilidades Directivas, Maestría, Reforma Fiscal, Seminario, Universidad Carlos III de Madrid, Universidad de Guadalajara
+Tags Propósito: acceso a la justicia., anticorrupción, certeza jurídica, ciudadanía, criterios unificados, debido proceso, derecho sustancial, derechos humanos, función social, justicia, justicia pronta, juzgador, métodos alternativos, nuevas tecnologías, seguridad jurídica, sensibilidad social, transparencia, tutela efectiva
+
+
+## Descripción del Candidato 
+
+ALFONSO JOSE BORJA ARIAS es candidato a Magistratura de Tribunales Colegiados de Circuito en JALISCO, postulándose desde el Poder Judicial de la Federación. Es abogado por la Universidad de Guadalajara, con estudios de Maestría y Doctorado por la Universidad Carlos III de Madrid. Su motivación para buscar el cargo público es aportar su experiencia y conocimiento para impartir justicia y dar certeza jurídica.
+
+Su visión de la función jurisdiccional enfatiza la necesidad de una inmersión en la realidad social compleja y multicultural, priorizando la tutela efectiva, el debido proceso y la prevalencia del derecho sustancial. Propone responder a la demanda de seguridad jurídica, aplicar nuevas tecnologías para agilizar y unificar criterios en las resoluciones, y acercar herramientas de acceso a la justicia a la ciudadanía, garantizando los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+http://www.facebook.com/alfonzoborjaoficial
+
+
+## Redes Sociales
+
+- http://www.facebook.com/alfonzoborjaoficial
+- https://www.x.com/borja27
+- http://www.instagram.com/alfonzoborjaoficial
+- https://www.tiktok.com/@alfonzoborjaoficial
+
+
+## Cursos
+
+- Estudios Doctorales, Programa General de Derecho de la Universidad Carlos III de Madrid, España
+- ,Diplomado, Desarrollo de Habilidades Directivas y Gerenciales
+- ,Seminario Tendencias de Reforma Fiscal
+- ,Seminario de Derecho Constitucional Tributario en Iberoamérica
+- ,Curso Magistral de Derecho de consumo y Derecho de Contratos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52216/10
+
+
+## Trayectoria Academica
+
+- Abogado por la Universidad de Guadalajara, con estudios de Maestría y Doctorado por la Universidad Carlos III de Madrid
+
+
+## Motivo para buscar el Cargo Publico
+
+Para aportar mi experiencia y conocimiento en beneficio de la sociedad, impartiendo justicia y dando certeza jurídica.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que la función no debe estar separada de la realidad en que el futuro juzgador acometerá su función, sino inmersa en ella y esta realidad es cada día más compleja, más rápida, más heterogénea y multicultural. Hoy por hoy, el Juez, Magistrado o Ministro, debe realizar la tutela efectiva, el debido proceso y la prevalencia del derecho sustancial para hacer real su función social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quien imparte justicia es precisamente el Juzgador, por ello afirmo que es la figura central del derecho, es un ser humano que necesita ser sensible y atento a todos los cambios y fenómenos sociales, sin permitirse acceder por ningún motivo al nepotismo y a la corrupción.
+
+
+## Propuestas
+
+- Responder a las exigencias de la sociedad en que desarrollará su servicio, en nuestro caso, una sociedad mexicana que cada vez reclama (y exige) mayor seguridad jurídica, tanto en sus transacciones económicas, en sus relaciones personales y familiares, y reclama mayor rapidez y motivación en las resoluciones, muestra de ello es que se está volviendo una tendencia en acudir a los métodos alternativos de solución de controversias.
+- Aplicación la nuevas tecnologías para auxiliar al Juzgador, por el exceso de trabajo y con el animo de dar justicia pronta y siempre con criterios unificados que permitar darle seguridad jurídica a la sociedad en general. A igual derecho igual disposición.
+- Acercar a la ciudadanía las herramientas necesarias, para que puedan tener justicia más cercana, gantizando los derecho humanos a ciudadanía.
+

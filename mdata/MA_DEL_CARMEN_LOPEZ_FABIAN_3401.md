@@ -1,0 +1,74 @@
+Nombre Candidato: MA. DEL CARMEN LOPEZ FABIAN
+Cargo: Juezas/es de Distrito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 4921304223
+Correo Electronico: juezacarmenlopezfabian@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Justicia, Consejería Familiar., Derecho Constitucional, Derecho de Amparo, Derecho del Trabajo, Derechos Humanos, Justicia Laboral, Licenciatura en Derecho, Maestría, Metodologías Sociales, Proceso Penal, Prueba en el Proceso Penal, Sistema de Justicia Penal
+Tags Propósito: Acceso a la Justicia, Adolescencia, Adultos Mayores, Compromiso Social., Comunidad LGBTTTQ+, Derechos Humanos, Escucha Activa, Formatos Sencillos, Justicia, Migrantes, Mujeres, Niñez, Participación Ciudadana, Paz Social, Responsabilidad, Sentencias Ciudadanas, Servicio Público, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ma. del Carmen López Fabian es candidata a Jueza/es de Distrito en Zacatecas, postulándose desde En Funciones. Cuenta con Maestría y cédula profesional, además de especializaciones en Derecho del Trabajo, Justicia Laboral, Nuevo Sistema de Justicia Penal, Metodologías Sociales en el Proceso Penal, Derechos Humanos y Derecho de Amparo. Su trayectoria académica incluye una Licenciatura en Derecho y tres Maestrías, en Derecho Constitucional, Derechos Humanos y Consejería Familiar.
+
+López Fabian se motiva a buscar el cargo público por su vocación de servicio y honestidad, con el objetivo de contribuir a la construcción de un mejor país. Su visión de la función jurisdiccional se centra en la protección de los derechos de los grupos vulnerables y en la construcción de la paz social. Sus propuestas incluyen la organización de espacios de diálogo para atender las necesidades ciudadanas, garantizar una justicia accesible y cercana al pueblo, y la elaboración de sentencias en formatos comprensibles para la ciudadanía.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ASxcZ8dAF/?mibextid=wwXIfr
+- https://x.com/carmenlopezfab?s=21
+- https://www.instagram.com/juezacarmenlopezfab?igsh=NXIwNDFhaHg3Yjd4
+- https://www.tiktok.com/@juezacarmenlopezfab?_t=ZM-8v6XXhBBIPf&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Formación y Preparación en el Nuevo Sistema de Justicia Penal,Diplomado Metodologías Sociales en el Proceso Penal para un Acceso Efectivo a la Justicia,Diplomado de Derechos Humanos y Prueba en el Proceso Penal,Diplomado en Derecho de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53041/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho, 3 maestrías, en derecho constitucional, en derechos humanos y en consejería familiar
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona honesta y con vocación de servicio, quiero seguir sirviendo y construyendo un mejor país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Creo firmemente en que la justicia construye la paz social que tanto necesitamos, por eso, considero que las juezas y jueces debemos proteger los derechos de todas las personas, especialmente de niños, niñas, adolescentes, mujeres, adultos mayores, migrantes, comunidad LGBTTTQ+ y de los más vulnerables. Las juezas y jueces debemos ser conscientes de la responsabilidad y compromiso que tenemos al dictar cada sentencia, para solucionar los problemas e impartir justicia a todas de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que la justicia no solo sea una palabra, sino un compromiso. La justicia debe ser una realidad para todas las personas, debe ser una justicia rápida para defender los derechos y solucionar los problemas de todos y todas. Una justicia que escuche y atienda el reclamo social. Las juezas y los jueces debemos ser aliados para construir un mejor país y la paz y seguridad que todos anhelamos. Debemos impartir una justicia que responda las necesidades del pueblo.
+
+
+## Propuestas
+
+- Me comprometo a escuchar las necesidades de las personas y ser sensible a los problemas que enfrentan y las circunstancias que viven, para darles solución. Para ello, organizaré conversatorios, foros y conferencias, en donde todas las personas puedan expresar lo que sienten y recibir una respuesta; además de llevar el conocimiento a todas las personas de los derechos humanos y cómo hacerlos valer.
+- Me comprometo a que la justicia sea una justicia de puertas abiertas y cercana al pueblo, siempre recibiré a ambas partes cuando lo soliciten, con respeto y consideración.
+- Mis sentencias serán en formatos sencillos, que cualquier persona pueda entender, por eso, propondré la elaboración de un manual para la elaboración de sentencias ciudadanas.
+

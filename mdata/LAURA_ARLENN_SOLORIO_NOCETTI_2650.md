@@ -1,0 +1,77 @@
+Nombre Candidato: LAURA ARLENN SOLORIO NOCETTI
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 7222441596
+Correo Electronico: laurarlenn@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derechos de las mujeres, Derechos humanos, Extinción de dominio, Formación continua., Género, Igualdad, Licenciatura en Derecho, Poder judicial, Proceso mercantil, Violencia
+Tags Propósito: accesibilidad, comunidades fuertes, confianza, contexto, derechos, dignidad, empatía, equidad, humanidad., justicia humana, lenguaje claro, profesionalismo, restauración, servicio, soluciones concretas, transparencia, trato digno, verdad, ética
+
+
+## Descripción del Candidato 
+
+Laura Arlenn Solorio Nocetti es candidata a Jueza/es de Distrito, postulando al Poder Legislativo Federal en México. Licenciada en Derecho por la Ibero, cuenta con formación continua en derechos humanos, evidenciado por diversos diplomados en temas de derechos de las mujeres, derechos humanos en el Poder Judicial y extinción de dominio.
+
+Su motivación para buscar el cargo público se basa en su creencia en una justicia humana, transparente y cercana. Su visión de la función jurisdiccional se centra en la acción, la empatía y la dignidad de las personas. Sus propuestas incluyen el uso de un lenguaje claro y accesible en las resoluciones judiciales, un trato digno y cercano a quienes acuden a su juzgado, y un compromiso con la búsqueda de la verdad y soluciones concretas a los problemas legales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://www.laurarlenn.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/lauraarlenn
+- https://www.instagram.com/launocetti
+- https://www.tiktok.com/@laurarlenn
+- https://www.threads.net/@launocetti
+
+
+## Cursos
+
+- Diplomado: ¿DERECHOS DE LAS MUJERES EN LOS SISTEMAS UNIVERSAL E INTERAMERICANO DE DERECHOS,GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD
+- ,ELABORACIÓN DE VERSIONES PÚBLICAS
+- ,DERECHOS HUMANOS EN EL PODER JUDICIAL DE LA FEDERACIÓN, EXTINCIÓN DE DOMINIO Y LA ORALIDAD EN EL PROCESO MERCANTIL
+- ,PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA   I
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54946/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Ibero, con espíritu de servicio y formación continua en derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo en una justicia humana, transparente y cercana, comprometida con la verdad y el servicio a las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia no es solo un ideal, es acción. No basta con enunciar principios, debemos hacerlos realidad. Creo en una justicia humana, con rostro y voz, que reconozca la dignidad de cada persona, actuando con empatía. No se trata solo de aplicar leyes, sino de escuchar, comprender contextos y transformar vidas. Una sociedad justa no nace de la indiferencia, sino del compromiso cotidiano con la equidad. Porque detrás de cada caso hay una historia y una vida que merece ser comprendida.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser transparente, sencilla y cercana. Nuestro deber no es solo juzgar casos, sino restaurar la confianza de las personas en las instituciones. Creo en jueces comprometidos con la verdad, sensibles al contexto y con vocación de servicio. Una justicia efectiva transforma realidades, protege derechos y construye comunidades fuertes, en donde todas las personas sepan que serán escuchadas y tratadas siempre con dignidad.
+
+
+## Propuestas
+
+- Lenguaje sencillo y cercano Comunicaré la justicia en un lenguaje claro y accesible, sin tecnicismos que alejen a las personas de sus derechos. Cada decisión y proceso será explicado de manera transparente, para asegurar que la ley sea realmente entendida por todas y todos. Las personas merecen que se hable su idioma, que las resoluciones se entiendan fácilmente y que el juzgado sea un espacio en el que nadie se sienta excluido.
+- Justicia humana y trato digno Trataré siempre con respeto, empatía y cercanía a quienes acudan a mi juzgado. Detrás de cada expediente existe una persona que merece ser escuchada con sensibilidad. Mi compromiso es ofrecer un trato digno, comprensivo y justo, asegurándome de que cada individuo reciba atención personalizada y soluciones claras. La justicia solo se fortalece cuando reconoce y valora la humanidad detrás de cada caso.
+- Compromiso con la verdad y soluciones concretas Buscaré incansablemente la verdad, trabajando cada caso con profesionalismo, rigor y ética. Las personas que acudan a mi juzgado no saldrán con incertidumbre; ofreceré orientación clara, respuestas precisas y acciones concretas. Mi propósito es transformar la justicia en hechos reales, garantizando soluciones efectivas y brindando herramientas a quienes buscan una respuesta justa y equitativa.
+

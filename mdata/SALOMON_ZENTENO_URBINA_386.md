@@ -1,0 +1,80 @@
+Nombre Candidato: SALOMON ZENTENO URBINA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9611695239
+Correo Electronico: urzs@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Argumentación Jurídica, Derecho Concursal, Derecho Procesal Constitucional, Docente., Doctor en Derecho Penal, Juicios Orales Penales, Licenciado en Derecho, Maestro en Derecho Constitucional, Reformas Fiscales
+Tags Propósito: Chiapas., Poder Judicial de la Federación, acceso a la justicia, administración de justicia, autonomía, compromiso, derechos fundamentales, desarrollo social, eficiencia, empatía, estado de derecho, función jurisdiccional, grupos vulnerables, honestidad, humanización, independencia judicial, justicia social, legalidad, necesidad de justicia, paz social, plazos legales, sensibilidad
+
+
+## Descripción del Candidato 
+
+SALOMON ZENTENO URBINA es candidato a Magistratura de Tribunales Colegiados de Circuito del Poder Judicial de la Federación en Chiapas. Cuenta con estudios de Doctorado en Derecho Penal, además de Maestrías en Derecho Constitucional y Amparo y Licenciatura en Derecho, complementados con diversos cursos en áreas como Derecho Procesal Constitucional, Derecho Concursal y Juicios Orales Penales, todos impartidos por instituciones del Poder Judicial Federal.
+
+El candidato expresa su motivación para el cargo como un deseo de servir a la sociedad chiapaneca con honestidad y eficiencia. Su visión de la función jurisdiccional se centra en un ejercicio eficiente, comprometido con la sociedad, especialmente con los grupos más necesitados, y en la estricta observancia del estado de derecho. Sus propuestas incluyen el respeto a los derechos fundamentales, la administración de justicia expedita y la humanización del proceso judicial para lograr un mayor acercamiento social y empatía con las personas justiciables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- DERECHO PROCESAL CONSTITUCIONAL
+- Impartido por la Suprema Corte de Justicia de la Nación
+- ,DERECHO CONCURSAL
+- Impartido por el Instituto de la Judicatura Federal
+- ,SEMINARIO SOBRE JUICIOS ORALES PENALES
+- Impatido por el Instituto de la Judicatura Federal
+- ,DIPLOMADO EN ARGUMENTACIÓN E INTERPRETACIÓN JURÍDICA
+- Impartido por el Instituto de la Judicatura Federal
+- ,SEMINARIO DE REFORMAS FISCALES
+- Impartido por el Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55354/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Maestro en Derecho Constitucional y Amparo; Doctor en Derecho Penal; Docente
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la sociedad Chiapaneca con honestidad, compromiso y eficiencia en el desempeño de la función jurisdiccional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ejercicio de la función jurisdiccional debe ser eficiente y comprometida con toda la sociedad y con mayor énfasis con las causas de los grupos más necesitados y marginados, para poder satisfacer sus necesidades en los diversos ámbitos; por lo tanto, las y los juzgadores en quienes se deposita su ejercicio deben actuar siempre apegados a derecho, para que sus decisiones sean justas y contribuyan al mejoramiento y estabilidad de la vida social que logre el pleno desarrollo de México buscado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad requiere de un servicio público eficaz y ágil; de ahí que la adecuada administración de justicia es de suma importancia, porque a través de ella se dirimen controversias que se suscitan entre particulares y entre éstos y las autoridades; por lo que su buen desempeño contribuye a generar un clima de legalidad y respeto al estado de derecho que asegure la paz y desarrollo en todos los ámbitos, que son pilares importantes para alcanzar la satisfacción del bienestar social.
+
+
+## Propuestas
+
+- Ejercer la función jurisdiccional requiere el compromiso siempre presente de que el actuar se apegue a los más altos valores que la sociedad mexicana y el Estado requieren, entre ellos, respetar en todo momento los derechos fundamentales de las personas, previstos en la Constitución Política de los Estados Unidos Mexicanos, tratados internacionales y demás normatividad secundaria que de ellas emanen; lo que sin duda alguna contribuirá de manera relevante a la mejora y desarrollo social.
+- Se debe procurar en todo momento resolver los juicios y recursos buscando en todo momento el respeto a la máxima establecida en el artículo 17 Constitucional, que señala que toda persona tiene derecho a que se le administre justicia de manera expedita, dentro de los plazos legales; con plena independencia de criterio y autonomía en el quehacer jurisdiccional; sujeto sólo al irrestricto respeto y plena observancia del estado de derecho que permita mantener la estabilidad social requerida.
+- Por la importancia de la función jurisdiccional a cargo del Poder Judicial de la Federación, es necesario que su desempeño se sensibilice y humanice más para con las personas justiciables que acuden a los órganos jurisdiccionales, quienes buscan la solución pronta y justa a los problemas legales que atraviesan; por lo tanto, ahora más que nunca debe procurase que en su actividad diaria, el juzgador tenga un mayor acercamiento social, que sea más empático y receptivo de la necesidad de justicia.
+

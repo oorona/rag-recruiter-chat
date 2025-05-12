@@ -1,0 +1,77 @@
+Nombre Candidato: ALEJANDRO TORRES MORAN
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: 5514571598
+Correo Electronico: alextorresjuez@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Alto Desempeño Académico, CNDH, Derecho Constitucional, Derecho Público, Derechos Humanos, Imparcialidad, Jurista, Justicia Constitucional, Perspectiva de Género, Sentido Humano., UNAM, Universidad de Mancha, Universidad de Pisa
+Tags Propósito: Accesibilidad, Bien Común, Constitución, Derechos Humanos, Empatía, Equidad, Escuchar, Experiencia Jurídica., Gobernanza, Imparcialidad, Integridad, Justicia Cercana, Justicia Sensible, Leyes, Perspectiva Humana, Poder Judicial, Profesionalismo, Sentido Humano, Transformación, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alejandro Torres Moran es candidato a Juez/a de Distrito en Hidalgo, postulándose a través del Poder Ejecutivo Federal. Cuenta con una Maestría concluida y una extensa formación especializada en Derecho Constitucional y Derechos Humanos, incluyendo estudios en la UNAM, la Universidad de Pisa, Italia, y la Universidad de Manchá, España.
+
+Su motivación para buscar el cargo se centra en transformar el Poder Judicial para ofrecer una justicia cercana, sensible y profesional. Sus propuestas principales incluyen tomar decisiones con sentido humano, priorizar la escucha y comprensión de cada caso, y garantizar una justicia cercana y confiable, apoyándose en sus casi 10 años de experiencia y formación jurídica.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/169HUbZjtU/?mibextid=wwXIfr
+- https://x.com/alex_tormon?s=11
+- http://www.instagram.com/alex_tormon
+- http://www.tiktok.com/alextorresius
+
+
+## Cursos
+
+- Especialista en Derecho Constitucional por la UNAM, con mencion honorífica,Maestro en Derecho Constitucional por la UNAM, en titulación por Alto Desempeño Académico,Especialista en Justicia constitucional y tutela jurisdiccional de Derechos, por la Universidad de Pisa, Italia
+- ,Diplomados en la CNDH en Derechos Humanos, así como procuración e impartición de justicia con perspectiva de género,Especialista en Derecho Público   por la Universidad de Mancha, España
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55056/11
+
+
+## Trayectoria Academica
+
+- Alejandro Torres, jurista de la UNAM con experiencia y compromiso
+- Justicia cercana, imparcial y sentido humano
+- Tu juez
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco la transformación del Poder Judicial para brindar justicia cercana, sensible y profesional a todas las personas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las juezas y jueces deben servir a la sociedad para garantizar que cada persona reciba justicia, sin privilegios ni corrupción, para ello deben aplicar la Constitución y leyes con imparcialidad, sensibilidad y respeto, asegurar que cada sentencia sea equitativa y que resuelva de fondo todos los conflictos entre las partes en juicio. De esta forma se logran dos objetivos: la protección irrestricta de los Derechos Humanos y el fortalecimiento de la gobernanza para la transformación del País.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es clara, como juez me comprometo a estudiar a fondo cada caso, con perspectiva humana y sensible, a escuchar a las partes con empatía, sin formalismos, ni barreras, para buscar soluciones equitativas, más allá de la aplicación literal de la ley. Mi formación jurídica y mi ética me guiarán para tomar decisiones claras, razonables y en beneficio del bien común. Quiero servir con integridad para transformar el Poder Judicial y que la justicia sea cercana y accesible a todas las personas.
+
+
+## Propuestas
+
+- Decisiones con sentido humano. Aplicaré la Constitución y nuestras leyes con respeto e imparcialidad, pero de ninguna manera dejaré que los formalismos de las leyes sea un obstáculo para resolver los asuntos con sensibilidad y en beneficio de la comunidad.
+- Escuchar para entender. Cada caso es único y merece ser analizado con atención y empatía, las partes deben ser escuchadas de forma cercana para que expongan sus necesidades e inquietudes y que sean resueltas, sin vulnerar la equidad entre las partes.
+- Justicia cercana y confiable. Aplicaré mi experiencia de casi 10 años y amplia formación jurídica y profesional para que la justicia sea accesible y clara para todas las personas.
+

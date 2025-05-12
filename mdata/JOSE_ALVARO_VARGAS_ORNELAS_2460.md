@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE ALVARO VARGAS ORNELAS
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 5531967600
+Correo Electronico: alvisisrael@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Académico, Derecho, Educación, Licenciatura, Maestría
+Tags Propósito: accesibilidad, capacitación judicial, cercanía al pueblo., confianza institucional, democracia, derechos humanos, eficacia, equidad, igualdad, imparcialidad, justicia, orden público, paz social, protección, reformas judiciales, resolución de conflictos, seguridad ciudadana, transparencia
+
+
+## Descripción del Candidato 
+
+José Álvaro Vargas Ornelas es candidato a Juez/a de Distrito en Guerrero, postulando en la categoría de En Funciones. Cuenta con estudios de Licenciatura y Maestría en Derecho. Su motivación para buscar el cargo público es servir a la comunidad y contribuir a la solución de problemas de manera justa. 
+
+En su visión, la función jurisdiccional debe basarse en la Constitución, las leyes y los derechos humanos, eliminando brechas de desigualdad y evitando formalismos. Propone una impartición de justicia accesible, rápida, eficaz y gratuita, con énfasis en la protección de los derechos humanos y la cercanía con la ciudadanía. Sus propuestas incluyen la capacitación de jueces y personal, impulsar reformas judiciales para mejorar la eficacia y transparencia, y promover la cercanía de los jueces con las necesidades del pueblo.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Jose Alvaro Vargas
+- https://x.com/alvisjavofiu
+- https://www.instagram.com/josealvarovargas
+- https://www.tiktok.com/@javo1015
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55218/11
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir al pueblo y comunidad; y contribuir a su bienestar mediante la solución de sus problemas de manera justa
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es la actividad del Estado por la cual los Jueces resuelven conflictos entre particulares y entre ellos y el gobierno, con base en la Constitución, las leyes y los derechos humanos, sin influencias personales y externas, de manera independiente e imparcial, pero sobre todo justa, para lo cual no se puede ser ajeno a las desigualdades que existen entre las personas y éstas y las autoridades, para lo cual es necesario eliminar las brechas existentes, evitando trabas, rigorismos y formalismos
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible, rápida, eficaz y gratuita, pero sobre todo justa y equitativa, protegiendo y respetando los derechos humanos fundamentales para mantener la seguridad, el orden público y la paz social que todo estado democrático requiere; debe ser cercana al pueblo y sensible a sus condiciones, transparente, libre de presiones externas y de opiniones o preferencias personales de los jueces.
+
+
+## Propuestas
+
+- Capacitación de los jueces y de todo su personal; dar un buen trato a todas las personal que requieren la solución de sus problemas, escucharlos, atenderlos, y acelerar el desarrollo de los procedimientos para que la solución se adopte dentro de los plazos previstos en las leyes y sobre todo prescindiendo de formalismos que impidan llegar oportunamente a la solución de los conflictos sometidos a consideración de los jueces.
+- Deben impulsarse reformas judiciales que puedan ayudar al mejorar la eficacia y la transparencia de la impartición de justicia, para lograr que el pueblo confíe en la justicia y en las instituciones democráticas.
+- Los jueces deben ser cercanos al pueblo y a sus necesidades ,velando en todo momento por el respeto a sus derechos fundamentales y devolviéndoles la confianza en la impartición de justicia como la mejor manera de mantener el orden público y la paz social a fin de evitar el que se quiera hacer justicia por su propia mano.
+

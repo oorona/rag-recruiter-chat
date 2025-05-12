@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE MANUEL SANCHEZ ACOSTA
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: sanchezacostajmgto@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo., Audiencias Penales, Formación Tribunal, Licenciatura en Derecho, Maestría en Derecho Fiscal, Materia Penal, Perspectiva de Género, Posgrado Constitucional, SCJN, Secretarios Judiciales, Sistema Penal Acusatorio
+Tags Propósito: acceso a la justicia, contexto social, derechos humanos, dignidad humana, diversidad, empatía, formación judicial, igualdad, imparcialidad, independencia judicial., justicia, justicia cercana, justicia humana, orientación ciudadana, perspectiva de género, profesionalismo, resolución de conflictos, responsabilidad, transparencia, ética
+
+
+## Descripción del Candidato 
+
+Jose Manuel Sanchez Acosta es candidato a Juez de Distrito en Guanajuato por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Fiscal, un posgrado en Constitucional y Amparo, y ha completado diversos cursos de formación en áreas como el Sistema Penal Acusatorio, perspectiva de género y habilidades para la conducción de audiencias. 
+
+Su motivación para buscar el cargo es construir una justicia cercana, humana e imparcial.  Sus propuestas centrales incluyen humanizar la justicia a través de la empatía, acercar el sistema judicial a la ciudadanía mediante actividades de orientación, e impulsar la formación continua de jueces y personal judicial en temas de derechos humanos y diversidad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1C7TUYbsyh/?mibextid=wwXIfr
+- https://x.com/sanchezacostaj?s=11&t=xrxE3OkhbG_4w95s1X57Og
+- https://www.instagram.com/sanchezacostajm?igsh=bjVyOXo4eGF6bWhw&utm_source=qr
+- https://www.tiktok.com/@sanchezacostaj?_t=ZM-8v0hwjxFG8z&_r=1
+
+
+## Cursos
+
+- Curso de Formación para Personas Secretarias de Tribunal de Circuito: Concurso Escolarizado,Curso básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Actualización: Teoría y Práctica del Sistema Penal Acusatorio a Través de los Precedentes de la SCJN,Curso para Juzgar con Perspectiva de Género en Materia Penal de la Escuela Federal de Formación Judicial,Taller para el Desarrollo de Habilidades de Conducción de Audiencias en Materia Penal (Fase I)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55500/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, maestro en derecho fiscal, posgrado en constitucional y amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo construir junto con la ciudadanía una justicia cercana, humana, imparcial y firme contra los abusos de pode
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser juez implica una gran responsabilidad, pues sus decisiones pueden cambiar la vida de las personas. Por eso, debe analizar cada caso con atención, actuar con sensibilidad y resolver con base en la ley. La justicia no es solo aplicar normas, sino hacerlo con empatía, profesionalismo y respeto por los derechos humanos, como la libertad, la salud o la vida. Mi visión es una justicia con rostro humano, que entienda el contexto de cada persona y resuelva con equilibrio y honestidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es dar a cada persona lo que le corresponde, sin preferencias ni prejuicios. El juez debe actuar con independencia, ética y conocimiento para tomar decisiones justas, basadas en la ley y los derechos humanos. Mi visión es que la justicia sea comprensible, cercana y transparente, para que quien acuda a ella tenga la certeza de que será escuchado y tratado con dignidad, sin importar su situación social o económica.
+
+
+## Propuestas
+
+- Humanizar la justicia. Detrás de cada expediente hay personas con historias reales, por eso propongo que todo el equipo de trabajo fortalezca la empatía y la sensibilidad al atender los asuntos. Así, las resoluciones serán más conscientes, sociales y justas. No se trata solo de números o papeles, sino de tomar decisiones que respeten la dignidad y los derechos de quienes confían en la justicia.
+- Acercar la justicia a la ciudadanía. Propongo fomentar actividades de orientación y difusión para que la gente entienda sus derechos, cómo funciona un juicio y qué esperar del sistema judicial. Esto fortalece la confianza en las instituciones y permite que todas las personas, sin importar su edad o nivel educativo, puedan acercarse con seguridad a pedir justicia.
+- Impulsar la formación continua de jueces y personal judicial en temas de derechos humanos, perspectiva de género y diversidad. La sociedad cambia, y el sistema de justicia debe evolucionar con ella. Esto permitirá emitir resoluciones más justas, actualizadas y sensibles a las distintas realidades que viven las personas en México.
+

@@ -1,0 +1,81 @@
+Nombre Candidato: MARIA CONCEPCION CASTRO MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4442090584
+Correo Electronico: conchiscastromtz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho Constitucional, Derecho Electoral, Derecho e Investigación Jurídica, Derechos Humanos, Género, Justicia para Adolescentes, Licenciatura, Maestría, Posgrado., Sistema de Justicia Penal Acusatorio, UASLP, Vulnerabilidad
+Tags Propósito: Acceso a la Justicia, Confianza Ciudadana, Constitución, Derechos Humanos, Desventaja Social., Eficiencia, Imparcialidad, Independencia Judicial, Innovación, Juicios, Justicia, Modelo Humanista, Objetividad, Paz Social, Profesionalismo, Rendición de Cuentas, Resolución de Controversias, Seguridad Jurídica, Sistema Judicial, Transparencia, Vulnerabilidad, Ética Judicial
+
+
+## Descripción del Candidato 
+
+Maria Concepción Castro Martínez es candidata a Magistratura de Tribunales Colegiados de Circuito en San Luis Potosí, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho e Investigación Jurídica y en Derecho Electoral, así como una Licenciatura en Derecho. Su trayectoria académica se complementa con especialidades y diplomados en temas de Derechos Humanos, justicia para adolescentes y grupos vulnerables, y el sistema de justicia penal acusatorio.
+
+Su motivación para buscar el cargo público se centra en la preservación de la paz y seguridad social a través de la impartición de justicia. Su visión se enfoca en fortalecer la ética y la independencia del Poder Judicial, así como en garantizar un sistema de justicia incluyente que elimine estereotipos y prejuicios hacia grupos vulnerables. Sus propuestas incluyen aumentar la confianza ciudadana en los órganos jurisdiccionales, fortalecer el Sistema de Impartición de Justicia con un enfoque humanista, e impulsar la transparencia y rendición de cuentas en las resoluciones.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16Degtvesa/?mibextid=wwXIfr
+- https://x.com/mariamarti52006?s=21
+- https://www.instagram.com/concepcioncastromtz?igsh=bWw3czdvNTdqM3U5&utm_source=qr
+- https://www.tiktok.com/@concepcioncastrotz?_t=ZM-8v66SxmJst5&_r=1
+
+
+## Cursos
+
+- Especialidad en ¿Derechos Humanos y Perspectiva de Género para la Administración de Justicia¿
+- ,Especialidad en ¿Justicia para Adolescentes
+- Proceso y Ejecución de Medidas¿
+- ,Diplomado  de Justicia para grupos en Situación de Vulnerabilidad¿
+- ,Diplomado  Sistema de Justicia Penal Acusatorio en México desde la Perspectiva,VII Congreso Nacional de Derecho Constitucional  Tendencias de las Constituciones
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52516/10
+
+
+## Trayectoria Academica
+
+- Maestría: Derecho e Investigación Jurídica, Posgrado UASLP
+- Maestría en Derecho Electoral
+- Licenciatura: Derecho UASLP
+
+
+## Motivo para buscar el Cargo Publico
+
+A través de la impartición de justicia en su aplicación con el derecho, se coadyuva a preservar la paz seguridad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La ética es el talón de Aquiles de los funcionarios judicial, pues al ser un contrato judicial de la magistratura con la sociedad, el Juez adquiere el compromiso de proteger la justicia; sin embargo, en la actualidad y no por lo general, encontramos funcionarios que no están comprometidos con su ética judicial, y no cumplen con la aplicación de los cuatro principios rectores fundamentales, que son la independencia, imparcialidad, objetividad y profesionalismo en su desempeño.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es fundamental trabajar para eliminar los estereotipos y prejuicios en torno a las personas víctimas, ofendidas, así como aquellas en condición de vulnerabilidad, desde la perspectiva de seguir trabajando en reconocerlas como titulares de derechos y obligaciones, y para ello, se debe reforzar el sistema de justicia incluyente en respeto a los derechos de estas personas analizando los estereotipos de desventajas que les asisten en cuestiones concretas.
+
+
+## Propuestas
+
+- Aumentar la confianza ciudadana en los órganos jurisdiccionales, y para ello, existe el compromiso y obligación es garantizar resolver las controversias que surjan, en cumplimiento y respeto de la Constitución y las normas aplicables, evitando la vulneración a los derechos humanos, buscando siempre el bienestar y sobre todo la justicia de las personas que forman y han formado parte en desventaja de una herencia social e histórica mexicana.
+- Fortalecer el Sistema de Impartición de Justicia, y para ello, se debe activar el andamiaje estructural del Poder Judicial de la Federación, garantizando a los justiciables su derecho al acceso a la justicia de manera eficaz, eficiente, innovadora, responsable, transparente, pronta y expedita, observando preponderantemente los protocolos de atención de las personas en condición de vulnerabilidad, es importante implementar el modelo humanista mexicano.
+- Es imperativo que se incremente la percepción de confianza ciudadana en los órganos jurisdiccionales, para ello es fundamental el impulso a la transparencia y la rendición de cuentas en las resoluciones fundadas y motivadas que sean emitidas. También es importante trabajar sobre los procesos de cambio y capacidad para emitir resoluciones con la finalidad de no tener una alta incidencia en la acumulación de juicios.
+

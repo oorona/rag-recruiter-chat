@@ -1,0 +1,76 @@
+Nombre Candidato: ELIAS GERARDO CEPEDA MORADO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6623946795
+Correo Electronico: cepedamoradoelias@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, Ciencias Penales, Ciencias Sociales, Democracia, Departamento de Justicia de los EUA., Derecho, Derechos Humanos, Facultad Latinoamericana de Ciencias Sociales, Instituto Nacional de Ciencias Penales, Juez de Distrito, Magistrado, Oficial Judicial, Razonamiento Probatorio, Secretario, Sistema Penal Acusatorio, Tribunal Colegiado de Apelación, Universidad Autónoma de Nuevo León, Universidad de Girona
+Tags Propósito: Accesibilidad, Calidad educativa, Currículo mínimo común., Democracia, Derecho digital, Derechos humanos, Educación jurídica, Eficiencia, Especialización, Honestidad, Justicia, Modernización, Profesionalismo, Profesionalización, Resolución alternativa de conflictos, Responsabilidad social, Sistema judicial, Tecnología, Transformación del sistema de justicia, Transparencia, Ética judicial
+
+
+## Descripción del Candidato 
+
+ELIAS GERARDO CEPEDA MORADO es candidato a Magistrado de Tribunales Colegiados de Circuito en Sonora, postulándose para el Poder Legislativo Federal. Cuenta con una formación académica sólida que incluye una Maestría en Ciencias Penales, especializaciones en Derechos Humanos, Razonamiento Probatorio y formación en el Sistema Penal Acusatorio de los EUA. Su trayectoria profesional incluye cargos como Oficial Judicial, Actuario, Juez de Distrito y Magistrado.
+
+Su motivación para buscar el cargo público es contribuir con su experiencia a la consolidación de un sistema judicial democrático. Sus propuestas se centran en la modernización de la administración de justicia, la mejora de la ética y calidad de la educación jurídica, la especialización en áreas del derecho digital y el uso de tecnologías y métodos alternativos de resolución de conflictos para aumentar la eficiencia y accesibilidad del sistema judicial en México.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/eliascepedamorado
+- https://www.x.com/@eliascepeda1
+- https://www.instagram.com/eliascepedam/
+- https://www.tiktok.com/@egcepmo
+
+
+## Cursos
+
+- Licenciatura en Derecho y Ciencias Sociales, Universidad Autónoma de Nuevo León, 1995,Maestría en Ciencias Penales con Especialización en Ciencia Jurídico Penal, Instituto Nacional de Ciencias Penales, Cdmx,Especialidad en Derechos Humanos y Democracia, Facultad Latinoamericana de Ciencias Sociales, Ciudad de México,Especialidad en Razonamiento Probatorio, Universidad de Girona, España 2020,Curso de Formación en el Sistema Penal Acusatorio para Juzgadores, Departamento de Justicia de los EUA
+- Puerto Rico 2016
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52700/10
+
+
+## Trayectoria Academica
+
+- Inicié como Oficial Judicial, Actuario, Secretario, Juez de Distrito y Magistrado del Tribunal Colegiado de Apelación
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir con mi experiencia académica, profesional y judicial, en la consolidación de un sistema judicial democratico.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estoy consciente de que la función jurisdiccional conlleva una altísima responsabilidad social, por lo que debe estar en manos de las personas con el más alto nivel de capacitación, experiencia y profesionalismo. Además, al emitir una resolución judicial no sólo se debe tener presente el contenido expreso de la ley, sino además se deben observar los ejes rectores de ética judicial, que exigen un actuar recto, honesto, abierto, transparente y apegado a la igualdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Existe una lista interminable de valores que es necesario tener para impartir justicia, pero en esa lista interminable destacan la honestidad, la transparencia, el deseo de servicio, el respeto a los derechos humanos, la capacidad de escuchar a las partes y sobre todo el sentido de justicia. Y estoy convencido de que puedo continuar actuando con base en este valores porque he adquirido la habilidad, experiencia, solvencia técnica y el conocimiento necesario para desempeñar el cargo de Magistrado
+
+
+## Propuestas
+
+- El objetivo principal de las propuestas es modernizar la administración de justicia para mejorar su precisión, eficiencia y accesibilidad para las personas. Yo quiero cambiar la percepción de la justicia, que actualmente se considera un sistema inaccesible y de baja calidad, un problema estructural que México ha enfrentado durante décadas. Es fundamental mejorar la calidad y la ética en la educación jurídica en todas las escuelas de derecho para asegurar una formación uniforme.
+- Existe una necesidad imperiosa de una educación jurídica más ética y profesionalizada, desarrollando un currículo mínimo común para todas las escuelas de derecho. Además, es vital incluir en los planes de estudio habilidades modernas, como el uso de la tecnología y métodos de resolución alternativa de conflictos, esenciales para una práctica legal más eficiente y accesible, aliviando la carga de los tribunales y ofreciendo resoluciones más rápidas.
+- Es igualmente importante que los abogados se especialicen en áreas del derecho digital anticipando que estas nuevas demandas requerirán una educación adaptada a las necesidades de una sociedad en constante cambio. Estas iniciativas deben abordarse de forma integral, respondiendo a las necesidades sociales y económicas del país para lograr una transformación completa en el sistema de justicia en México, enfocándose en mejorar la educación y la profesionalización de los abogados.
+

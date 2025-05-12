@@ -1,0 +1,73 @@
+Nombre Candidato: MARIA DE JESUS LOPEZ GUZMAN
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9622178868
+Correo Electronico: mariadejesus_guzman@live.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, CJF, ConsejoDeLaJudicaturaFederal, DerechosHumanos, Doctorado, Especialización., Género, INMUJ, InstitutoJudicaturaFederal, Interculturalidad, JuiciosOrales, JusticiaParaAdolescentes, LicenciaturaEnDerecho, LitigaciónPenal, Maestría, ONU, PruebaTestifical, PsicologíaDelTestimonio, RazonamientoProbatorio, SCJN, SistemaIntegralDeJusticiaPenal, SupremaCorteDeJusticia, UniversidadAnáhuac, UniversidadDeGirona
+Tags Propósito: Bienestar social, Constitución, Derechos humanos, Empatía, Estado de derecho, Humanismo, Impacto social, Imparcialidad, Independencia, Justicia accesible, Justicia alternativa, Justicia humana, Justicia pronta, Justicia transparente, Leyes, Reparación del daño, Resolución de conflictos, Responsabilidad., Tratados internacionales, Víctimas
+
+
+## Descripción del Candidato 
+
+MARIA DE JESUS LOPEZ GUZMAN es candidata a Jueza/es de Distrito en Chiapas, postulada por el Poder Ejecutivo Federal. Cuenta con un doctorado y una trayectoria académica en Derecho, con especialización en Juicios Orales y Justicia para Adolescentes. Su motivación para buscar el cargo público se centra en el servicio público y el respeto a los derechos humanos.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la humanidad, imparcialidad, independencia y profesionalismo, así como el acceso universal a una justicia pronta, completa e imparcial. Sus propuestas incluyen la promoción de la justicia alternativa, el logro de una reparación efectiva del daño a las víctimas y la visibilización de las personas involucradas en asuntos penales con un enfoque humanista y empático.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://account.microsoft.com/profile/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/mariadejesus.lopez.104
+- https://www.instagram.com/mj_lopezguzman/
+- https://www.tiktok.com/@mj_lopezguzman
+
+
+## Cursos
+
+- Curso La PruebaTestifical desde el Razonamiento Probatorio y la Psicología del Testimonio, Universidad de Girona, España,Diplomado Especialización en el Sistema Integral de Justicia Penal para Adolescentes, Instituto Judicatura Federal,Curso Fortalecimiento de la impartición de justicia con perspectiva de género e interculturalidad, SCJN, CJF, ONU, INMUJ,Diplomado sobre el Juicio de Amparo, Suprema Corte de Justicia de la Nación,Diplomado en Litigación en el Proceso Penal, Universidad Anáhuac, Consejo de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54177/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho; maestra en Juicios Orales; especialista Justicia para Adolescentes y doctorante en Derechos Human
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la vocación de servicio público y mi finalidad es actuar con respeto a los derechos humanos de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Juez debe impartir justicia de manera humana, imparcial, independiente, objetiva y profesional, siempre persiguiendo resolver los conflictos que son sometidos a su consideración, bajo la interpretación y aplicación de las normas constitucionales, los Tratados Internacionales y las leyes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia accesible a todos los gobernados, sin distinción alguna; que garantice el estado de derecho y el bienestar de la sociedad; que se imparta de manera pronta, completa, imparcial y transparente; una justicia con humanismo y empatía, en la que el gobernado sometido a la potestad del Estado sea considerado como un ser humano con derechos, obligaciones y necesidades particulares.
+
+
+## Propuestas
+
+- Promover de manera eficaz la justicia alternativa, en los casos que así lo ameriten, a fin de lograr la solución del conflicto de forma efectiva. En la actualidad, existen casos que se pueden resolver pronto a través de las soluciones alternas al procedimiento, y los jueces y ministerios públicos originan obstáculos, con tintes inquisitivos, para no dar solución al conflicto, sino más bien, para castigar a las personas involucradas. Esta actitud genera gastos innecesarios para el Estado.
+- Lograr una efectiva reparación del daño a las víctimas de un delito. Los jueces, como garantes de la Constitución, de los Tratados Internacionales y de las leyes deben pugnar porque las resoluciones en la que se imponga una reparación del daño sean cumplidas de manera efectiva. Vemos que existen casos en los que se condena a la reparación del daño y los jueces no adoptan las medidas necesarias para que el responsable de un delito repare el daño, aún, conforme con sus condiciones personales.
+- Visibilizar a las personas involucradas en un asunto penal con humanismo y empatía, tanto a las personas imputadas, a las víctimas y a la sociedad en general; el juzgador debe tener la conciencia de que cada una de las resoluciones que emita tendrá un impacto en cada uno de sus ámbitos y en la sociedad en general.
+

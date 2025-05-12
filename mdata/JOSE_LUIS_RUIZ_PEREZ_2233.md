@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE LUIS RUIZ PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5525599042
+Correo Electronico: joseruizper@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Derecho Empresarial, Derecho Financiero, Derecho de Empresa, Educación Superior., Experiencia Profesional, ITAM, Posgrado, Solución de Controversias, UNAM, Universidad Panamericana
+Tags Propósito: Acceso a la justicia, Audiencias virtuales, Confianza ciudadana, Corrupción, Denuncia de irregularidades, Derecho, Eficiencia, Erradicación de prácticas indebidas., Imparcialidad, Integridad, Justicia, Legalidad, Lenguaje claro, Poder Judicial, Procesos eficientes, Puertas abiertas, Rendición de cuentas, Servicio público, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jose Luis Ruiz Perez es candidato a Jueces/es de Distrito en Ciudad de México, postulándose al Poder Legislativo Federal. Cuenta con estudios concluidos a nivel de Especialidad, incluyendo un Curso Superior de Posgrado en Derecho Financiero y diplomados en Derecho Empresarial y Medios Alternativos de Solución de Controversias, así como una Especialidad en Derecho de Empresa. Su trayectoria profesional abarca 10 años en el ámbito legal.
+
+Ruiz Perez busca el cargo público motivado por una vocación de servicio a México a través del derecho. Su visión sobre la función jurisdiccional se centra en la transparencia, rendición de cuentas y el uso eficiente de la tecnología para erradicar la corrupción, buscando un sistema accesible y libre de intereses ajenos a la ley. Sus propuestas incluyen la implementación de audiencias virtuales, un juzgado con puertas abiertas a la ciudadanía y la erradicación de prácticas indebidas en su juzgado, promoviendo la transparencia y la imparcialidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://joseluisruiz.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Joseru10/
+- https://x.com/JoseLuisRuizmx
+- https://www.instagram.com/joseluisruizmx?igsh=NTcwY20xNjJhcjVu&utm_source=qr
+- https://www.tiktok.com/@joseluisruizmx?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Curso Superior de Posgrado en Derecho Financiero, Universidad Nacional Autónoma de México (UNAM), Ciudad de México 2017,Diplomado en Derecho Empresarial, Universidad Nacional Autónoma de México (UNAM), Ciudad de México, 2017 ¿ 2018,Diplomado en Medios Alternativos de Solución de Controversias, Instituto Tecnológico Autónomo de México (ITAM),Especialidad en Derecho de Empresa, Universidad Panamericana (UP), Ciudad de México Febrero 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54386/11
+
+
+## Trayectoria Academica
+
+- Abogado por la UNAM con posgrados en Universidades Públicas y Privadas y 10 años de sólida experiencia profesional
+
+
+## Motivo para buscar el Cargo Publico
+
+Desde niño soñé con servir a México a través del derecho; el litigio fue mi camino, pero ser juez es mi vocación y forma
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como un ejercicio técnico, ético e independiente, donde la transparencia, la rendición de cuentas y el uso eficiente de la tecnología sean herramientas reales para erradicar la corrupción. Mi visión es impartir justicia con imparcialidad, eficiencia, trato digno y sin privilegios, fortaleciendo la confianza ciudadana en un Poder Judicial moderno, accesible y libre de intereses ajenos a la ley. El juzgado debe ser ejemplo de integridad y servicio público.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser cercana, transparente y libre de corrupción. Mi visión es construir un sistema accesible, ágil y humano, donde las personas reciban respuestas claras, oportunas y justas. Creo en una justicia imparcial, con uso intensivo de la tecnología, lenguaje claro, procesos eficientes y criterios uniformes. El juzgado debe ser un espacio de legalidad, integridad y confianza, donde prevalezca la ley sobre cualquier interés o privilegio.
+
+
+## Propuestas
+
+- Implementaré el uso de audiencias virtuales en todos los casos donde la ley lo permita, reduciendo tiempos, costos y facilitando la participación de las partes sin necesidad de traslados, especialmente en beneficio de personas en situación vulnerable o fuera de la Ciudad de México.
+- Me comprometo a tener un juzgado con puertas abiertas, donde cualquier persona pueda ser escuchada con respeto, claridad y sin intermediarios. La justicia debe ser cercana, comprensible y con lenguaje claro, sin formalismos innecesarios que alejan al ciudadano.
+- Voy a erradicar cualquier práctica indebida dentro del juzgado. No habrá privilegios, ni tratos preferenciales. Habrá transparencia total en las actuaciones y canales para denunciar irregularidades. La justicia debe ser limpia, imparcial y ejemplar.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: ARTURO MANUEL FERNANDEZ ABUNDIS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: contacto@fernandezabundis.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Derecho Civil, Derecho Financiero, Especialización Judicial., Función Jurisdiccional, Instituto de la Judicatura Federal, Justicia Penal Acusatorio, Licenciatura, Maestría, SCJN, Universidad de Guadalajara
+Tags Propósito: Acceso a la justicia, Capacitación continua., Confianza institucional, Contexto social, Derechos humanos, Eficiencia, Gestión judicial, Herramientas digitales, Humanidad, Imparcialidad, Independencia judicial, Justicia, Justicia cercana, Modernización, Profesionalización, Protección derechos fundamentales, Resolución clara, Simplificación trámites, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+ARTURO MANUEL FERNANDEZ ABUNDIS es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para el estado de SINALOA. Cuenta con Maestría en Derecho Civil y Financiero, así como Licenciatura en Derecho por la Universidad de Guadalajara, y ha realizado diversos diplomados en materia de justicia, incluyendo el Nuevo Juicio de Amparo y el Sistema de Justicia Penal Acusatorio.
+
+Su motivación para buscar el cargo se centra en impartir justicia imparcial y humana, privilegiando el acceso a un magistrado que comprenda las necesidades de las personas. Su visión de la función jurisdiccional se basa en la especialización, imparcialidad y humanidad, enfatizando el acceso gratuito y eficaz a la justicia, así como una interpretación de la ley acorde a los derechos humanos. Sus propuestas incluyen la profesionalización y eficiencia de la justicia con apoyo tecnológico, la optimización de sistemas de gestión judicial y el fomento de resoluciones claras y accesibles para fortalecer el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://fernandezabundis.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/LicArturoAbundis
+- https://www.instagram.com/licabundis
+- https://www.youtube.com/@licabundis
+- https://www.tiktok.com/@licabundis
+
+
+## Cursos
+
+- Diplomado del Nuevo Juicio de Amparo, Instituto de la Judicatura Federal,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México desde la Perspectiva Constitucional, SCJN,Diplomado El Nuevo Sistema de Justicia Penal Acusatorio de Frente a la Sociedad, Instituto de la Judicatura Federal,Diplomado en Introducción a la Función Jurisdiccional, Instituto de la Judicatura Federal,Curso de Especialización Judicial, Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53040/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Civil y Financiero; y Licenciatura en Derecho por la Universidad de Guadalajara
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo impartir justicia imparcial y humana, con acceso pleno a un magistrado que escuche y comprenda a las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como labor jurídica especializada, imparcial y humana, debiéndose privilegiar el acceso gratuito y eficaz a la justicia. Un magistrado debe tener amplia experiencia del derecho y su aplicación a partir de la comprensión del contexto social de cada caso que resuelva. La aplicación de la ley debe partir de una interpretación acorde a los derechos humanos, orientada a la verdad procesal, para lograr la protección de los derechos fundamentales de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una justicia cercana, accesible y confiable. Impartir justicia no es solo resolver conflictos legales, sino también restaurar la confianza de las personas en las instituciones. La ciudadanía merece jueces preparados, éticos y sensibles a la realidad. Mi compromiso es actuar con independencia, transparencia y trato digno para todas las personas que acuden a los tribunales.
+
+
+## Propuestas
+
+- Impulsar una justicia más eficiente, transparente y profesionalizada. La función jurisdiccional en México debe evolucionar hacia un modelo que combine eficiencia procesal con altos estándares éticos y técnicos, sin comprometer la independencia judicial. Esto implica aprovechar herramientas digitales, fortalecer la capacitación continua y simplificar trámites sin perder rigor jurídico.
+- Optimizar los sistemas de gestión judicial con apoyo tecnológico. Es necesario modernizar los sistemas de administración de justicia mediante herramientas digitales que permitan agilizar la tramitación de expedientes, programación de audiencias y control de plazos procesales. Esto reduciría cargas de trabajo, evitaría retrasos injustificados y mejoraría la atención a las partes.
+- Fomentar la claridad en las resoluciones para fortalecer el acceso a la justicia. Proponer criterios para que las sentencias sean más comprensibles para las partes, sin dejar de ser técnicamente precisas. Esto permite que las personas conozcan las razones de fondo de las decisiones judiciales y refuerza el carácter público, transparente y pedagógico de la justicia.
+

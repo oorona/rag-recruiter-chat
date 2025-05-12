@@ -1,0 +1,74 @@
+Nombre Candidato: ANGEL DE JESUS VARGAS AGUIRRE
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2294360115
+Correo Electronico: lawyervargas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarial, Amparo, Cambio Climático, Derecho, Derecho Constitucional, Derechos Humanos, Diplomado, Excelencia Académica, Formación, Justicia Laboral, Medio Ambiente, Poder Judicial de la Federación, Secretarios, Violencia.
+Tags Propósito: Acceso a la justicia, Cambio, Claridad, Dedicación, Disciplina, Eficiencia, Equidad, Esfuerzo, Excelencia, Honestidad, Imparcialidad, Injusticias, Justicia, Preparación, Profesionalismo, Protección, Resolución, Responsabilidad, Rezago, Sentencias, Simplificación, Transparencia, Ética, Órganos jurisdiccionales.
+
+
+## Descripción del Candidato 
+
+ÁNGEL DE JESUS VARGAS AGUIRRE es candidato a Jueces/as de Distrito en Veracruz, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho Constitucional y Amparo, además de una cédula profesional. Su formación incluye diversos cursos relacionados con la función judicial, el medio ambiente, la justicia laboral y la prevención de la violencia.
+
+Vargas Aguirre manifiesta su motivación para el cargo en su deseo de servir a México con honestidad, profesionalismo y en pro de la justicia. Su visión se centra en mejorar la función jurisdiccional y la impartición de justicia, proponiendo estrategias para garantizar la pronta resolución de casos, erradicar el rezago judicial y asegurar la claridad y comprensibilidad de las sentencias. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://facebook.com/AngeelVargas
+- https://www.x.com/AngelVargasDice
+- https://www.instagram.com/angelvargasa
+- https://tiktok.com/angelvargas.a
+
+
+## Cursos
+
+- Curso Básico de Preparación y Formación para Secretarios del Poder Judicial de la Federación,Diplomado Medio Ambiente, Cambio Climático y Derechos Humanos,Curso de Formación para personas Actuarias del Poder Judicial de la Federación,Curso para Generar Espacios Libres de Violencia,Curso de Especialización Sobre la Reforma en materia de Justicia Laboral Séptima Generación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55215/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Maestro en Derecho Constitucional y Amparo, ambos grados obtenidos con excelencia académica
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo firmemente que es un área para servir a mi país, con honestidad, profesionalismo, excelencia e imparcialidad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+México requiere un cambio, hoy se nos presenta la oportunidad de formar parte de quienes tienen la encomienda de proteger al pueblo de las injusticias y estoy seguro de que con esfuerzo, dedicación, preparación, disciplina, honestidad, ética y responsabilidad, se pueden superar las barreras que se le presentan a la sociedad para cumplir sus proyectos de vida.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es de vital importancia externar con la mayor claridad posible, el resultado de un trabajo de excelencia para que todas las personas puedan comprender al primer contacto, cual es el destino de sus vidas y que no necesiten habilidades adicionales para descifrar una resolución; por el contrario, parte de mi compromiso con la sociedad es garantizar que mis resoluciones resulten además de justas y equitativas, tambien claras y entendibles para toda persona.
+
+
+## Propuestas
+
+- Garantizar la pronta impartición de justicia a través de mecanismos estratégicos efectivos. La justicia requiere presencia en cada paso del proceso y mi compromiso con ello, es vigilar e impulsar en forma activa cada paso para que la sociedad obtenga un trato digno, profesional y de excelencia, así como un resultado efectivo.
+- Erradicar el rezago. Un gran reto lo constituye el cúmulo de asuntos que aún no han sido resueltos por los órganos jurisdiccionales, por ello, sin dejar de ser exhaustivos, mis resoluciones se consolidarán bajo un esquema de simplificación que abandone textos que contaminen el resultado de las sentencias, optimizando así el tiempo en que la sociedad verá resuelto su asunto.
+- Claridad en las sentencias. Es de vital importancia externar con la mayor claridad posible, el resultado del análisis jurídico que se desarrolla en las sentencias, para que todas las personas, sin excepción alguna, puedan comprender al primer contacto por qué les asiste, o no la razón.
+

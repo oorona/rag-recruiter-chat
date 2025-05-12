@@ -1,0 +1,76 @@
+Nombre Candidato: JOSE CARLOS MEDINA ARMENDARIZ
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6142358599
+Correo Electronico: josem00@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización Fiscal., Amparo, Contadores Públicos, Derecho, Doctorado, Doscencia, Intercambio, Litigación Oral, Maestría, Previsión Social, Rotario Internacional, Seguridad Social
+Tags Propósito: acceso a la justicia, autoridad, ayuda, confianza, corrupción, eficiencia, errores, especialización judicial, formalismos, justicia, necesidades, protección, rezago., sensibilidad social, transparencia
+
+
+## Descripción del Candidato 
+
+Jose Carlos Medina Armendariz es candidato a Jueces/es de Distrito en Chihuahua, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho y actualmente cursa un Doctorado, además de ser docente en Licenciatura y Maestría. Su trayectoria incluye participación en cursos y seminarios sobre derecho laboral, fiscal y litigación oral.
+
+Su motivación para buscar el cargo público es el deseo de ayudar a la gente. Su visión de la función jurisdiccional se centra en recuperar la confianza en los jueces, enfocándose en la defensa de los problemas de la sociedad. Propone una impartición de justicia que combata la corrupción y la insensibilidad, recibiendo a los usuarios para comprender sus situaciones personales, especializar los juzgados por materia y eliminar el rezago y los formalismos innecesarios.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JoseCarlosMedinaA
+- https://www.instagram.com/josecarlosmedinaa/
+
+
+## Cursos
+
+- Asamblea Nacional del Derecho del Trabajo y Previsión Social Ponente en la 48ª Asamblea Nacional del Trabajo y Previsió,Instituto y Colegio de Contadores Públicos de Chihuahua, S
+- C
+- Seminario de Seguridad Social 2011,Manuel Nevarez y Asociados, S
+- C
+- Curso de Actualización Fiscal 2014,Alianza Estatal CWAG ¿ Conference  Western Attorneys  Seminario de Técnicas de Litigación Oral, Agosto 2012,de intercambio, adscrito al programa YEP del Club Rotario Internacional, Distrito 4540, Ribeirão Preto, São
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53977/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho Maestro en Amparo Actualmente cursando Doctorado Docente en Licenciatura y Maestria
+
+
+## Motivo para buscar el Cargo Publico
+
+Por que me gustaria tener el poder de ayudar a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Devolver la confianza que la gente debe de tener en un juez como una persona honorable, sensible a los problemas de la sociedad, y que sea este quien los defienda y proteja
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ayudar a combatir la corrupcion, la indolencia y la falta de sensibilidad a los problemas de los mas necesitados, en sus necesidades mas inmediatas, corrigiendo los errores y atropellos de demas autoridades, incluso los propios jueces del fuero comun.
+
+
+## Propuestas
+
+- Siempre recibir a todos los usuarios en el juzgado y escuchar su situacion personal, y asi poder conocer de primera mano todo lo que el expediente no nos dice
+- Hacer la propuesta ante el nuevo Órgano de Administración Judicial, especialice a los juzgados por materia.
+- Eliminar el rezago, y desterrar los formalismos inutiles que entorpecen la justicia.
+

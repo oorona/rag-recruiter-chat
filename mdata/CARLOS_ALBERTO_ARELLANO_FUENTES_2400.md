@@ -1,0 +1,78 @@
+Nombre Candidato: CARLOS ALBERTO ARELLANO FUENTES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: carlosarellano27@hotmail.comh
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho Colectivo del Trabajo, Derecho Internacional del Trabajo, Derecho Laboral, Derecho Procesal del Trabajo, Facultad de Estudios Superiores Aragón., Formación por Competencias, Justicia Laboral, Licenciatura, Maestría, Método de Caso, Universidad Autónoma de México
+Tags Propósito: Agilidad, Capacitación, Ciudadanía, Derechos laborales, Dignidad laboral, Empatía, Equidad, Gestión procesal, Humanismo, Instituciones, Justicia, Justicia social, Lenguaje accesible, Ley, Resolución de conflictos, Sentencias claras., Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Arellano Fuentes es candidato a Juez/a de Distrito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría y Licenciatura por la Universidad Autónoma de México, Facultad de Estudios Superiores Aragón, y ha realizado diversos cursos en materia de derecho laboral, incluyendo formación por competencias en justicia laboral.
+
+Su motivación para buscar el cargo público se basa en su compromiso con el servicio a la ciudadanía y en su deseo de ser un juez que escucha y entiende. Su visión de la función jurisdiccional implica una interpretación de la ley que considere la realidad y busque la equidad, con especial atención al impacto de las decisiones en la vida de las personas. Sus propuestas incluyen agilizar y transparentar los juicios laborales, utilizar un lenguaje accesible en las resoluciones y fomentar la capacitación continua y el enfoque humanista en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Carlos Arellano
+- https://www.x.com/CarlosArel51732
+- https://www.instagram.com/carlos_arellano_candidato
+- https://www.tiktok.com/carlosarellano_candidato
+
+
+## Cursos
+
+- CURSO: Preparación previa para justicia laboral
+- Derecho Internacional del Trabajo,CURSO: Trayecto formativo de la reforma laboral
+- Derecho Colectivo del Trabajo,CURSO: elementos fundamentales en derecho del trabajo,CURSO: Preparación previa para justicia laboral
+- Derecho Procesal del Trabajo
+- ,CLÍNICA LABORAL: Formación por Competencias para la Justicia Laboral con base en el Método de Caso
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52299/11
+
+
+## Trayectoria Academica
+
+- Licenciatura y Maestría en la Universidad Autónoma de México, Facultad de Estudios Superiores Aragón
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo en el servicio a la ciudadanía con compromiso a la verdad y la ley. Quiero ser Juez que escucha y entiende.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No es solo aplicar la ley, es interpretar la realidad a la luz de la norma y resolver con equidad. Un juez laboral debe tener plena conciencia del peso que tiene cada decisión en la vida de una trabajadora, en empleado, una empresa o una familia. Cada caso es único y merece ser tratado con seriedad, sin sesgos y con profundo respeto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es también construir confianza en las instituciones. Se trata de hacer que la ciudadanía crea que la ley no es solo un papel, sino una herramienta viva que protege sus derechos y da respuesta oportuna a sus conflictos. En la materia laboral, he encontrado un campo profundamente humano, donde se ponen en juego la dignidad del trabajo, la estabilidad familiar y la justicia social. Estoy convencido de que es allí, donde se necesita una mirada comprometida, sensible y técnica
+
+
+## Propuestas
+
+- Juicios laborales más agiles y transparentes: Implementar criterios de gestión que optimicen los tiempos procesales, sin sacrificar la calidad jurídica, para evitar que los juicios se prolonguen de forma innecesaria
+- Lenguaje accesible en las resoluciones: Promover el uso de lenguaje claro en las sentencias, para que cualquier persona, sin necesidad de conocimientos técnicos, pueda entender el contenido y sentido de los que se resolvió
+- Capacitación constante y enfoque humanista: Fomentar la actualización profesional continua y el desarrollo de habilidades sociales para que los jueces no solo sean técnicos del derecho, sino también personas empáticas, conscientes del contexto de quienes comparecen ante ellos.
+

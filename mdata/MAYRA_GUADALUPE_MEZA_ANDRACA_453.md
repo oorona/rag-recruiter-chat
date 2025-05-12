@@ -1,0 +1,75 @@
+Nombre Candidato: MAYRA GUADALUPE MEZA ANDRACA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5573919103
+Correo Electronico: mayrandraca@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho Fiscal, Licenciatura., U.Panamericana, Universidad de las Américas Puebla
+Tags Propósito: Accesibilidad, Amparo del Estado, Análisis Humanista, Derechos Fundamentales, Eficiencia, Empatía, Formalismos, Grupos Vulnerables, Honestidad, Impacto Social, Imparcialidad, Independencia, Justicia Social, Objetividad, Paz Social, Profesionalismo, Protección Social, Protección., Sensibilidad, Sentencias Claras, Sistema de Justicia Federal, Transparencia
+
+
+## Descripción del Candidato 
+
+Mayra Guadalupe Meza Andraca es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho por la Universidad de las Américas Puebla y una especialidad en Derecho Fiscal por la Universidad Panamericana. Su motivación para buscar el cargo es fortalecer y transformar el Sistema de Justicia Federal, haciéndolo más transparente, accesible y eficiente.
+
+Su visión de la función jurisdiccional se centra en la protección de los derechos fundamentales, especialmente para grupos vulnerables. Propone principios de transparencia, sentencias claras y sencillas, y una justicia social que priorice a los más necesitados.  Considera que la impartición de justicia debe ser humanista, atendiendo a las necesidades jurídicas y su impacto social, moral y económico. Su curriculum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/mayramezaandraca
+- https://www.instagram.com/mayramezaandraca/
+- https://www.tiktok.com/@mayramezaandraca
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53998/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la Universidad de las Américas Puebla, con especialidad en Derecho Fiscal por la U
+- Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Fortalecer y transformar el Sistema de Justicia Federal, para ser más transparente, accesible y eficiente para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Implica un compromiso con la protección de los derechos fundamentales en especial grupos vulnerables, como personas mayores, personas en situación de discapacidad, las infancias y la comunidad LGBTTTIQ+. Estoy consciente de la responsabilidad que conlleva, cada resolución se apegue a los principios de honestidad, imparcialidad, profesionalismo, independencia y objetividad. Además de una plena conciencia social garantizando que quienes menos tienen reciban la protección y el amparo del Estado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es garantizar la paz social a través de un análisis humanista, atendiendo las necesidades jurídicas presentes, pero también dimensionando su impacto en el ámbito social, moral, religioso, económico y de salud de quienes acuden en busca de ella. Un buen juzgador es quien actúa con sensibilidad, conciencia y empatía ante las necesidades de la sociedad, comprendiendo que detrás de cada caso hay una persona cuya vida, libertad, patrimonio, salud o familia están en juego.
+
+
+## Propuestas
+
+- Principios fundamentales del Sistema de Justicia Transparencia: abierto para que la ciudadanía pueda conocer y comprender el proceso de impartición de justicia. Sentencias Claras y Sencillas: que sean redactadas en un lenguaje accesible para que todas las personas entiendan sus efectos y contenido. Justicia Social: con un enfoque que priorice a los grupos vulnerables y garantice una justicia más cercana a la gente, con menos formalismos y más protección para quienes más lo necesitan.
+- No proporcionó
+- No proporcionó
+

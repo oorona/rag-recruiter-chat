@@ -1,0 +1,78 @@
+Nombre Candidato: LEONARDO GONZALEZ MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: 4493455448
+Correo Electronico: leonardogonzalezmtz2025@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización Profesional., Amparo Penal, Argumentación Jurídica, Derecho, Derecho Administrativo, Derecho Constitucional, Derechos Humanos, Docencia, Justicia para Adolescentes, Libertad de Expresión, Protección de Periodistas, Sistema de Justicia Penal
+Tags Propósito: Abusos de Poder., Armonía, Calidad del Servicio, Carrera Judicial, Combate a la Corrupción, Constitución, Control Judicial, Denuncia Pública, Derechos, Eficiencia, Estado de Derecho, Imparcialidad, Independencia Judicial, Justicia, Marco Interpretativo, Participación Ciudadana, Servicio Público, Tolerancia, Transparencia
+
+
+## Descripción del Candidato 
+
+Leonardo Gonzalez Martinez postula a Magistraturas de Tribunales Colegiados de Circuito en Aguascalientes, en la función de En Funciones. Cuenta con Maestría en Derecho Constitucional y Administrativo, así como diversos cursos de actualización en áreas como argumentación jurídica, derechos humanos, justicia para adolescentes y libertad de expresión. Su trayectoria incluye experiencia docente.
+
+Gonzalez Martinez motiva su búsqueda del cargo en la reconstrucción de la Carrera Judicial con jueces independientes. Su visión de la función jurisdiccional se centra en un servicio imparcial, eficaz, transparente y altamente capacitado, que proteja los derechos y se base en la Constitución. Sus propuestas clave incluyen la transparencia y combate a la corrupción en la carrera judicial, el fortalecimiento del vínculo con la sociedad y la mejora continua del servicio a través de mecanismos de control y análisis de fallos.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://leonardogonzalez.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16AjVGeMnQ/?mibextid=wwXIfr
+- https://x.com/Leonardoglz25
+- https://www.instagram.com/leonardoglz2025
+- https://www.tiktok.com/@leonardo_gonzalez25
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica y Ampliación de los Estándares Internacionales de Derechos Humanos y Perspectiva,Curso de Especialización en Justicia para Adolescentes,Curso Marco Jurídico Internacional de la Libertad de Expresión y Protección de Periodistas,Jornadas Las Mujeres Frente al Sistema de Justicia Penal,Programa de Actualización en el Sist
+- Penal Acusatorio, dirigido a Magistrados de Circuito, competencia en Amparo Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53444/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Maestría en Derecho Constitucional y Administrativo
+- Diversos cursos de actualizacion
+- Docente
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la firme intención de participar algún día en la reconstrucción de la Carrera Judicial con jueces independientes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser un servicio imparcial, eficaz, eficiente y transparente, con personal altamente capacitado y experiencia probada. Su objetivo es dotar sentido a todo el orden jurídico, someter a todos a la Constitución, tutelar en forma efectiva derechos, mediante marcos de interpretación correctiva, inclusiva, racional y proporcional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La Justicia es independiente o no es Justicia; la Justicia tutela en forma efectiva los derechos, sino, sólo sirve para oprimir y lesionar a los gobernados. La Justicia se comparte y se defiende por todos, su mayor beneficio es construir tolerancia, armonía. La Justicia sirve para todos o nos perjudica a todos.
+
+
+## Propuestas
+
+- Transparencia y combate a la corrupción: Reconstruir la carrera judicial con concursos transparentes para el acceso a cada categoría, promoviendo la denuncia pública de abusos de poder y erradicando la corrupción dentro y fuera del Poder Judicial de la Federación.
+- Aproximación con la sociedad: Fortalecer el vínculo con justiciables, abogados y la sociedad, garantizando su participación en los procesos jurisdiccionales y reforzando la independencia judicial.
+- Mejora continua del servicio: Implementar mecanismos de control mediante encuestas de servicio, para realizar análisis  de los fallos y determinar si los problemas son sustantivos o estructurales, con el fin de optimizar la calidad del servicio.
+

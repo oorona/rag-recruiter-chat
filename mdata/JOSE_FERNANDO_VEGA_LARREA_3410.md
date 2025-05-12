@@ -1,0 +1,80 @@
+Nombre Candidato: JOSE FERNANDO VEGA LARREA
+Cargo: Juezas/es de Distrito
+Entidad: ZACATECAS
+Sexo: HOMBRE
+Telefono: 3315202015
+Correo Electronico: fernando_vega777@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Código Nacional de Procedimientos Civiles y Familiares, Derecho Electoral, Derechos Humanos, Derechos Socioeconómicos, Formación Judicial, Igualdad de Género, Juicio de Amparo, Justicia Constitucional, Maestría en Derecho, Suprema Corte de Justicia de la Nación, Teoría del Derecho, Universidad Salamanca.
+Tags Propósito: Acceso a la justicia, Calidad humana., Derechos humanos, Excelencia, Grupos vulnerables, Impartición de justicia, Justicia, Juzgador constitucional, Metodología, Nepotismo, Oposición, Perfiles, Principios constitucionales, Profesionalismo, Resolución de fondo, Rezago judicial, Seguridad jurídica, Servicio público, Transparencia, Vulnerabilidad, Zacatecano
+
+
+## Descripción del Candidato 
+
+José Fernando Vega Larrea es candidato a Jueces/as de Distrito en Zacatecas, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría en Derecho y actualmente cursa una segunda maestría en Teoría del Derecho y Argumentación Jurídica en la Universidad de Salamanca, España. Su trayectoria académica y profesional se centra en el Poder Judicial de la Federación (PJF) desde hace más de 10 años, con formación continua en áreas como Derechos Humanos, Justicia Constitucional y Derecho Electoral.
+
+Vega Larrea busca el cargo con el objetivo de ser un juzgador constitucional reconocido por su humanidad y servicio público. Su visión de la función jurisdiccional se enfoca en la transformación del derecho en una herramienta para mejorar vidas, con especial atención a grupos vulnerables. Sus propuestas incluyen simplificar la resolución de juicios, abatir el rezago priorizando la resolución de fondo y eliminar el nepotismo en su futuro espacio de trabajo, promoviendo la selección de personal basada en méritos y capacidades.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1B9ByHbVUE/?mibextid=wwXIfr
+- https://www.instagram.com/fernandovegalarrea777?igsh=MTBiNjRpdms0Z2hxaA==
+- https://www.tiktok.com/@fernando.vega.lar6?_t=ZM-8v0x4xhd0lC&_r=1
+
+
+## Cursos
+
+- Cursos y diplomados en materia de Derechos Humanos, Justicia Constitucional, Juicio de Amparo y Derecho Electoral
+- ,Curso Género como Herramienta para la Igualdad, Escuela Federal de Formación Judicial (2022),Curso derechos socioeconómicos: contenido y aplicación
+- Escuela Federal de Formación Judicial (2022)
+- ,Diplomado sobre el Código Nacional de Procedimientos Civiles y Familiares
+- Esc de Formación y Espec
+- Judicial (PJEZ)2024,Diplomado la Suprema Corte y los Derechos Humanos
+- Suprema Corte de Justicia de la Nación (2022)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54762/11
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho y estudiante de la maestría en Teoría del Derecho y Argumentación Jurídica, Univ
+- Salamanca, España
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser un juzgador constitucional reconocido en México como figura positiva, humana y al servicio de todas y todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi quehacer en la función judicial, es para mí, un espacio privilegiado donde puedo convertir el derecho en una verdadera herramienta que transforme vidas. Mi obligación es ejercer un escrutinio estricto, cobre todo en los asuntos en que se involucren personas de grupos vulnerables (mujeres, niñas y niños, personas originarias, con algún tipo de discapacidad, comunidad LGTBIQ+). Me inspira prepararme arduamente y con el mayor profesionalismo y excelencia, en beneficio del pueblo zacatecano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desde que tengo uso de la memoria, siento una sensación de enojo, desaprobación y animadversión en mi estomago cada vez que observo alguna situación injusta o que menoscábelos derechos humanos de las personas. Ingrese a hace más de 10 años al PJF, con la firme convicción de aportar a loa derechos fundamentales de seguridad jurídica e impartición de justicia; por lo mismo, para convertirme en el juzgador más culto jurídicamente, pero también con una gran calidad calidad humana.
+
+
+## Propuestas
+
+- Simplificar la solución de los juicios de mi conocimiento a través de una metodología que nos permita avanzar en la búsqueda de la justicia y evitar que existan obstáculos elitistas para las personas justiciables no abogadas.
+- Abatir el rezago de asuntos, privilegiado la resolución de su fondo, de acuerdo con los principios y derechos humanos reconocidos en los artículos 17 constitucional y 18 de la Convención Americana sobre Derechos Humanos.
+- Eliminar el nepotismo en mi futuro espacio, donde no haya cabida de que los puestos de servicio público estén ocupados por familias o algún tipo de relación personal y no por la preparación o capacidad de la persona, buscando integrar a los mejores perfiles a través de exámenes internos de oposición.
+

@@ -1,0 +1,72 @@
+Nombre Candidato: GERARDO MAURICIO GOMEZ MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5553249020
+Correo Electronico: lic.mauricio.gomez.mtz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Procesal Civil, Derecho Procesal Penal, Ejecución Penal, Investigación Criminal, Juicios Orales, Juicios Orales Penales, Justicia Penal Adolescente, Licenciatura en Derecho, Maestría.
+Tags Propósito: Accesibilidad, Capacitación judicial, Confianza ciudadana, Constitución, Derechos humanos, Digitalización, Eficacia, Eficiencia, Equidad, Estado de derecho, Excelencia, Género, Igualdad ante la ley., Imparcialidad, Independencia judicial, Integridad, Justicia, Paz social, Seguridad jurídica, Tecnología, Transparencia, Vulnerables, Ética
+
+
+## Descripción del Candidato 
+
+GERARDO MAURICIO GOMEZ MARTINEZ es candidato a las Magistraturas de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal. Es Licenciado en Derecho con Especialidad en Juicios Orales y cuenta con Maestría en Derecho Procesal Penal, respaldado por una cédula profesional. Ha complementado su formación con diplomados en Juicios Orales Penales, Derecho Procesal Civil, investigación criminal y justicia penal especializada, incluyendo la atención a adolescentes.
+
+Su motivación para buscar el cargo se centra en garantizar justicia con integridad y excelencia, fortaleciendo el Estado de derecho en México. Su visión de la función jurisdiccional y la impartición de justicia se basa en la garantía de justicia pronta, completa, imparcial, accesible, eficaz y con respeto a los derechos humanos. Sus propuestas incluyen mayor transparencia y acceso a la justicia, capacitación continua para el personal jurisdiccional y la implementación de tecnología para agilizar los procesos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/germaugo/
+- https://www.instagram.com/germaugo/
+
+
+## Cursos
+
+- Diplomado en Juicios Orales Penales,Diplomado en Derecho Procesal Civil,Taller ¿Investigación Criminal Conjunta: Ministerio Público, Peritos y Policia¿,Curso Defensa Especializada en Ejecución Penal,Curso Justicia Penal para adolescentes
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53085/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, con Especialidad en Juicios Orales y Maestría en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco garantizar justicia con integridad y excelencia, fortaleciendo el Estado de derecho en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia pronta, completa e imparcial, basada en la Constitución y los derechos humanos. Debe ser un pilar del Estado de derecho, resolviendo conflictos con legalidad, ética y equidad. A través de sentencias fundamentadas y con perspectiva de derechos, se fortalece la confianza ciudadana en el Poder Judicial, contribuyendo a la paz social y la seguridad jurídica en beneficio de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser independiente, accesible y eficaz, garantizando resoluciones justas, oportunas y fundamentadas en la Constitución y los derechos humanos. Debe asegurar igualdad ante la ley, proteger a los más vulnerables y fortalecer el Estado de derecho. Con transparencia y ética, se fomenta la confianza ciudadana en el Poder Judicial, contribuyendo a una sociedad más justa, pacífica y con seguridad jurídica.
+
+
+## Propuestas
+
+- Mayor transparencia y acceso a la justicia: Fomentar la publicación clara de criterios judiciales y garantizar mecanismos accesibles para que la ciudadanía comprenda y confíe en el sistema judicial.
+- Capacitación continua: Fortalecer la formación de jueces y personal jurisdiccional en derechos humanos, perspectiva de género y nuevas tendencias jurídicas para mejorar la calidad de las resoluciones.
+- Uso de tecnología para agilizar procesos: Implementar herramientas digitales y sistemas de gestión judicial para reducir tiempos de resolución y hacer más eficiente la tramitación de asuntos.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: JAIME SALVADOR GARCIA GONZALEZ
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jaime.garcia.mx.2709@gmail.com
+Numero de lista en boleta: 45
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, CAM, CONDUSEF, Certificación, Ciudad de México, Conciliador, Concursos Mercantiles, Corredor público, Fe Pública., Habilitación, Mediador, Perito traductor, Registro, Árbitro
+Tags Propósito: Adultos Mayores, Autonomía Judicial, Comunidad LGBTTTI, Derechos Humanos, Función Jurisdiccional, Grupos Vulnerables, Igualdad Jurídica, Igualdad de Género, Impunidad, Justicia Social, Menores de Edad, Necesidades Poblacionales, Problemas Sociales., Pueblos Indígenas, Realidad Social, Resolución de Fondo, Seguridad, Sensibilidad Social, Visitas Judiciales
+
+
+## Descripción del Candidato 
+
+JAIME SALVADOR GARCIA GONZALEZ es candidato a un cargo en la Suprema Corte de Justicia de la Nación, postulándose a través del Poder Judicial de la Federación y el Poder Legislativo Federal. Abogado con cédula profesional, cuenta con amplia formación en áreas como mediación, peritaje, arbitraje y corredor público. Su trayectoria se centra en el ámbito legal, sin militancia en partidos políticos.
+
+Su motivación para buscar el cargo público radica en el respeto a los derechos humanos y la igualdad jurídica. Propone una visión de la justicia que además de distributiva y conmutativa, busque la justicia social, priorizando la resolución de fondo sobre formalismos y manteniendo la autonomía del Poder Judicial. Sus propuestas incluyen la participación ocasional del Presidente de la Suprema Corte en reuniones del Gabinete de Seguridad, visitas a las Fiscalías y autoridades para conocer la realidad del país, y un mayor acercamiento a la población para atender sus problemáticas más frecuentes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.youtube.com/@JaimeSalvadorGarcC3ADaGonzC3A1lez
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573739365527&locale=es_LA
+- https://x.com/Jaime_Garciamx
+- https://www.instagram.com/jaime.garcia.mx.2709/
+- https://www.youtube.com/@JaimeSalvadorGarcC3ADaGonzC3A1lez
+- https://www.tiktok.com/@jaime_garcia_gonzalez
+
+
+## Cursos
+
+- 2015, Árbitro Independiente ante la CONDUSEF y en 2017, Registro como Árbitro en el Centro de Arbitraje de México (CAM),2018, Registro como Perito Traductor en idioma Inglés del Tribunal Superior de Justicia de la Ciudad de México
+- ,2018, Certificación como Mediador Privado 253 con Fe Pública de la Ciudad de México
+- ,2020, Conciliador en el Instituto Federal de Especialistas en Concursos Mercantiles, cargo que dejé de ejercer en 2024
+- ,2004, Habilitación como Corredor Público 61 de la Ciudad de México (publicado en el DOF el 10 de diciembre de 2004)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53/6
+
+
+## Trayectoria Academica
+
+- Abogado, titulado en 1999, Corredor Público, Mediador certificado y Perito traductor, NO MILITO EN UN PARTIDO POLÍTICO
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco que se respeten siempre los derechos humanos, con una igualdad jurídica de TODAS, TODAS Y TODXS sin excepción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los Tribunales, empezando por la Suprema Corte, no solo deben aplicar justicia distributiva y justicia conmutativa de corte, sino también procurar por una JUSTICIA SOCIAL. Los formalismos no deben de prevalecer sobre la RESOLUCIÓN DE FONDO en los juicios. Debe mantenerse la AUTONOMÍA DEL PODER JUDICIAL, reconociendo la cooperación y colaboración con los Poderes Ejecutivo y Legislativo, así como los Órganos Autónomos, manteniendo una cercanía con la población.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe atender los problemas inmediatos de la población, protegiendo a los grupos vulnerables: pueblos y comunidades indígenas y grupos afromexicanos, los integrantes de la comunidad LGBTTTI, los menores de edad, en particular los que son víctimas de abandono o abuso, y la defensa de la igualdad sustantiva de las mujeres debe ser una prioridad, aplicando una perspectiva de género en sus problemas. Los adultos mayores merecen también una tutela especial.
+
+
+## Propuestas
+
+- Respetando la autonomía del Poder Judicial de la Federación, sería positivo que quien presida la Suprema Corte participe ocasionalmente en las reuniones del Gabinete de Seguridad, sin que ello comprometa su imparcialidad, no enterándose de operativos que puedan derivan en juicios, pero sí conocer y opinar sobre la problemática entorno a la delincuencia que existe en varias zonas del país. Sugerir respetuosamente medidas que salvaguarden la protección de los derechos humanos de todas y todos.
+- Todas y todos los juzgadores, incluyendo a los Ministros de la Suprema Corte, deben CONOCER LA REALIDAD de la situación que impera en México. Es inadmisible pensar en juzgadores que no realizan visitas, en conjunto con las Fiscalías y las autoridades encargadas de la investigación de los delitos. Se requiere SABER LAS NECESIDADES Y PROBLEMÁTICAS que enfrentan víctimas u ofendidos, los indiciados, testigos y las autoridades de la materia, para acabar con la impunidad existente en México.
+- Debe procurarse un mayor acercamiento con la población, para atender los problemas más frecuentes, acudiendo a las causas que son motivo de muchas injusticias. No basta el conocimiento técnico y profundo del orden jurídico, debe haber SENSIBILIDAD SOCIAL respecto los múltiples problemas que enfrentan quienes sufren una injusticia. Las violaciones a los derechos humanos, sin excepción, deben ser corregidas y castigados los responsables. La función jurisdiccional debe buscar siempre la justicia.
+

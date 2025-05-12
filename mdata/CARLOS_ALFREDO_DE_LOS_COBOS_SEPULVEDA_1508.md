@@ -1,0 +1,79 @@
+Nombre Candidato: CARLOS ALFREDO DE LOS COBOS SEPULVEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: 4423971411
+Correo Electronico: CARLOSDELOSCOBOS7@GMAIL.COM
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho Constitucional, Derecho Electoral., Derechos Políticos, Docencia, Doctorado en Derecho, Garantías, Humanidades, Investigación, Justicia Electoral, Posgrado
+Tags Propósito: Acceso a la Justicia, Argumentación Jurídica, Derechos Fundamentales, Derechos Humanos, Estabilidad Social, Estado de Derecho, Garantías Constitucionales, Jurisdicción, Jurisprudencia, Justicia, Lenguaje Ciudadano., Orden Constitucional, Paz, Resolución de Conflictos, Rezago Judicial, Tutela Judicial
+
+
+## Descripción del Candidato 
+
+Carlos Alfredo de los Cobos Sepúlveda es candidato a Magistratura de Tribunales Colegiados de Circuito por Querétaro, postulándose a través del Poder Legislativo Federal. Cuenta con doctorado en Derecho y una amplia trayectoria académica, incluyendo especialidades y diplomados en derecho constitucional, amparo y justicia electoral. Su motivación para buscar el cargo público es contribuir a la paz y la estabilidad social a través de una impartición de justicia pronta y efectiva.
+
+Su visión se centra en consolidar el Estado Constitucional y Democrático de Derecho, ofreciendo una justicia cercana a la gente que resuelva los problemas de manera integral y abata el rezago judicial. Sus propuestas incluyen la resolución expedita de casos a través de un estudio detallado, el empleo de un lenguaje ciudadano en las resoluciones con enfoque de derechos humanos, y la tutela de los derechos fundamentales con una interpretación jurídica vanguardista.  Puede ser contactado a través de su correo electrónico CARLOSDELOSCOBOS7@GMAIL.COM y sus perfiles en diversas redes sociales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://www.facebook.com/Carlos De los Cobos
+- http://www.x.com/@Cdeloscobos7
+- http://www.instagram.com/carlosdeloc
+- http://www.tiktok.com/@carlosdeloscobos7
+- http://www.linkedin.com/Dr.CarlosdelosCobos
+
+
+## Cursos
+
+- Especialidad en derecho constitucional y amparo,Diplomado en humanidades
+- (UP),Especialidad en justicia electoral
+- Centro de Capacitación Judicial Electoral,Especialidad y master en protección constitucional de derechos políticos y garantías
+- Toledo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52728/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho, con diversos posgrados en derecho constitucional y electoral
+- Autor, docente e investigador
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia pronta en un país que requiere urgentemente lograr la paz y la estabilidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional requiere de preparación, de interpretación y argumentación jurídica para solucionar los casos de forma pronta y expedita, para lograr paz y estabilidad social; la judicatura federal tiene el enorme reto consolidar el Estado Constitucional y Democrático de Derecho con criterios y sentencias coherentes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia cercana a la gente que permita resolver de manera integral los problemas sometidos a su tutela. Abatir el rezago judicial. Proteger los derechos fundamentales de las partes y ser garante del orden constitucional mexicano.
+
+
+## Propuestas
+
+- Resolver los problemas jurídicos sometidos en breve tiempo, a partir del estudio amplio y detallado de los casos y la jurisprudencia.
+- Emplear lenguaje ciudadano en las resoluciones con un enfoque de derechos humanos, respetando en todo momento las instituciones jurídicas base del sistema constitucional.
+- Tutelar los derechos fundamentales de los justiciables con una interpretación y argumentación jurídica de vanguardia, con un espectro amplio de garantías que garanticen equilibrios constitucionales.
+

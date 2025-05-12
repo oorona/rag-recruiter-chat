@@ -1,0 +1,71 @@
+Nombre Candidato: LANDY ROSALIA PAMPLONA PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó texto.
+Tags Propósito: ausencia, desconocimiento, falta de propuesta, inexistencia, inexistente, nulo, nulo., silencio, sin contenido, vacío
+
+
+## Descripción del Candidato 
+
+LANDY ROSALIA PAMPLONA PEREZ es candidata a Jueza/es de Distrito en Quintana Roo, postulada por el Poder Ejecutivo Federal. No se dispone de información sobre su formación académica, trayectoria profesional, motivaciones para buscar el cargo público, ni sus propuestas en materia jurisdiccional o de impartición de justicia.
+
+El estatus de captura de su información es "Sin captura", lo que indica que no se ha registrado la información requerida en el sistema.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

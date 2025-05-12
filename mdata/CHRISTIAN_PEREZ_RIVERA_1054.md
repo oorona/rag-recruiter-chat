@@ -1,0 +1,73 @@
+Nombre Candidato: CHRISTIAN PEREZ RIVERA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3316056920
+Correo Electronico: candidatomagistradociviljal2@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogacía, Derecho, Derecho procesal, Experiencia profesional, Formación continua., IJA, ITESM, Investigación social, Juez, Materia civil, Métodos alternos de resolución de conflictos, No discriminación, Procedimientos civiles, Procedimientos familiares, UNAM, Universidad de Guadalajara
+Tags Propósito: Aplicación de la Ley., Cohesión Social, Derechos Humanos, Dignidad, Enfoque Pro Persona, Equidad, Inclusión, Infancia, Justicia, Justicia Cercana, Justicia Pronta, Justicia Social, Perspectiva de Género, Prevención, Reparación, Resolución de Conflictos, Transformación, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+CHRISTIAN PEREZ RIVERA es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulado por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho, cédula profesional y 19 años de experiencia como Juez de Primera instancia en materia civil. Su motivación para buscar el cargo es su capacidad y experiencia para contribuir a la justicia en México.
+
+Su visión de la función jurisdiccional y la impartición de justicia se centra en garantizar equidad, inclusión y dignidad, con especial atención a grupos vulnerables y un enfoque de derechos humanos, perspectiva de género e infancia. Sus propuestas incluyen la aplicación de la ley con un enfoque pro persona, el cumplimiento de plazos para una justicia pronta y completa, y un compromiso de atención personal a los justiciables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18eQRyB5w5/?mibextid=wwXIfr
+- https://x.com/christianp38737?s=11
+- https://www.instagram.com/christianperezriv?igsh=MThrMTViYjJyMG05bA3D3D&utm_source=qr
+
+
+## Cursos
+
+- Diplomado teórico, práctico, sobre el Codigo Nacional de Procedimientos, civiles y familiares, por la UNAM,Taller especializado en herramientas y técnica de los métodos alrternos para juezas y jueces, por el IJA,Introducción a la teoría y práctica de la investigación social por la U de G,Diplomado sobre el derecho a la no discriminación por el Instituto de Investigaciones Jurídica de la UNAM,Diplomado  Nacional de Procedimientos Civiles y Familiares por el ITESM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54041/10
+
+
+## Trayectoria Academica
+
+- Abogado egresado de la Universidad de Guadalajara, 19 años de experiencia, Juez de Primera instancia en materia civil
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con capacidad y experiencia para desempeñar el cargo y puedo aportar para logar la justicia que México demanda.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdicciónal es aquella en la que el sistema de justicia garantiza equidad, inclusión y dignidad para todas las personas, con especial atención a los grupos históricamente vulnerados. Una justicia que no solo resuelve conflictos, sino que transforma realidades, erradica desigualdades y promueve la cohesión social desde un enfoque de derechos humanos, perspectiva de género e infancia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Seré juzgador que actúe como equilibrador social garantizando equidad, inclusión y dignidad, mediante decisiones que armonicen la ley con los principios de justicia social, derechos humanos, perspectiva de género e infancia. Una justicia que no solo interprete normas, sino que integre las realidades diversas, para transformar conflictos en oportunidades de reparación, prevención y cohesión comunitaria.
+
+
+## Propuestas
+
+- Derechos humanos. Aplicación de la ley con un enfoque pro persona, privilegiando el espíritu sobre la literalidad cuando existan contradicciones con derechos humanos.
+- Justicia pronta. Cumplir los términos establecidos en el dictado de resoluciones para cumplir el mandato consticional de una justicia pronta y completa.
+- Justicia cercana. Nunca más un juzgador que no atienda a las partes, compromiso de dar atención personal a cada uno de los justiciables que lo solicite
+

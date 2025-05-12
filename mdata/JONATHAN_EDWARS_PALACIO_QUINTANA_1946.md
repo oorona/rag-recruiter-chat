@@ -1,0 +1,71 @@
+Nombre Candidato: JONATHAN EDWARS PALACIO QUINTANA
+Cargo: Juezas/es de Distrito
+Entidad: CAMPECHE
+Sexo: HOMBRE
+Telefono: 9911187164
+Correo Electronico: jonathanedwarspalacioquintana@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Decisiones Judiciales, Derecho Penal, Derechos Humanos, Experiencia Judicial., Función Secretarial Judicial, Perspectiva de Género, Prevención Violencia, Razonamiento Probatorio, Servidor Público
+Tags Propósito: Análisis integral, Atención directa, Celeridad, Derechos., Eficacia, Eficiencia, Formalismos jurídicos, Justicia, Justicia cercana, Necesidades ciudadanas, Organización, Resolución de conflictos, Servidores públicos, Tiempo, Transparencia
+
+
+## Descripción del Candidato 
+
+Jonathan Edwards Palacio Quintana es candidato a Juez/a de Distrito por el Poder Legislativo Federal en Campeche. Cuenta con 7 años de experiencia como servidor público judicial y posee una especialización en función secretarial judicial y derecho penal. Su formación incluye especializaciones en razonamiento probatorio, técnicas de interpretación judicial, prevención de violencias y abusos de poder, perspectiva de género y derechos humanos.
+
+Su motivación para buscar el cargo es servir a la ciudadanía con justicia, eficiencia y eficacia. Propone un análisis integral de los conflictos, la reducción de formalismos jurídicos enfocándose en las necesidades de las personas, y agilizar los procesos para lograr una justicia oportuna y transparente. Su visión se centra en un servicio público cercano a la población, con atención directa y decisiones apegadas a derecho.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/JonathanEPQ
+
+
+## Cursos
+
+- Especialización en Bases del Razonamiento Probatorio Universidad de Girona,Especialización en Técnicas de Interpretación y Motivación de las Decisiones Judiciales Universidad de Girona,Diplomado Prevención de las Violencias y el Abuso de Poder desde el Enfoque de Derechos Humanos,Diplomado Juzgar con Perspectiva de Género,Diplomado Transversalización del Enfoque de Derechos Humanos en las Empresas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54511/11
+
+
+## Trayectoria Academica
+
+- Especialista en función secretarial judicial y derecho penal; servidor público judicial con 7 años de experiencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la ciudadanía con la mayor eficiencia, eficacia, pero, sobre todo, justicia real
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Servidores públicos listos para atender a las personas; con acercamientos y nunca con silencios. Atención directa, sin intermediarios y con verdadero interés en solucionar las controversias de la manera más justa posible.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia cercana a la población, con la mayor celeridad posible y con decisiones apegadas a derecho y transparentes. Atención en todo momento y sin tapujos. Justicia para todos.
+
+
+## Propuestas
+
+- Análisis integral de los conflictos de las personas. Cada juicio amerita tanta atención como sea necesaria, de modo que ninguno puede salir   sino como los casos particulares que son.
+- Reducir los formalismos jurídicos y aumentar la visión de la realidad de las personas. Son justiciables con necesidades, no números de expediente.
+- Celeridad. No solamente se trata de impartir justicia, sino de hacerlo en tiempo. Las medidas organizacionales correctas permitirán que la justicia se obtenta aquí y ahora.
+

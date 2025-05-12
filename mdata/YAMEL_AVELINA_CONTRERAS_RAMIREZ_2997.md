@@ -1,0 +1,76 @@
+Nombre Candidato: YAMEL AVELINA CONTRERAS RAMIREZ
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2225988116
+Correo Electronico: contrerasyamel10@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, BUAP, Bienestar Social, Casa de la Cultura Jurídica, Derecho Administrativo, Derecho Fiscal, Derecho Procesal Acusatorio, Desarrollo Incluyente, Educación Continua., Justicia Contenciosa Administrativa, Licenciatura en Derecho, Posgrado, Reforma Hacienda Pública, Reformas Constitucionales, UNAM
+Tags Propósito: Acceso a la justicia, Bienestar social, Conciliación, Corrupción, Derechos, Derechos humanos, Digitalización, Eficiencia, Equidad, Formación continua, Integridad, Justicia, Lenguaje claro, Mediación, Privacidad, Protección de datos., Rendición de cuentas, Sectores vulnerables, Simplificación procesos, Sistema judicial, Tecnologías, Transparencia, Ética judicial
+
+
+## Descripción del Candidato 
+
+YAMEL AVELINA CONTRERAS RAMIREZ es candidata a Jueza/es de Distrito en Puebla, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho y una trayectoria académica que incluye estudios en Derecho Procesal Acusatorio y Derecho Fiscal. Su motivación para buscar el cargo público se centra en contribuir al bienestar social, mejorar el sistema judicial y defender derechos.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la transparencia, eficiencia, accesibilidad y respeto a los derechos humanos, especialmente para los sectores vulnerables. Sus propuestas incluyen la redacción de sentencias en lenguaje claro, el fortalecimiento de la lucha contra la corrupción mediante la transparencia y el fomento del uso de tecnologías en los procesos judiciales para mejorar la eficiencia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1B61m42Bi7/
+- https://www.instagram.com/yamelavelinacontreras?igsh=MW4ydjJ5N2k4MzN6dg==
+- https://tiktok.com/@yamelavelinacontr
+
+
+## Cursos
+
+- Curso internacional de actualización en Derecho Administrativo, UNAM, 22  agosto 2013
+- ,Seminario internacional sobre desarrollo incluyente, bienestar social y reforma de la hacienda pública, UNAM, junio 2013,Diplomado en reformas constitucionales en amparo, Casa de la Cultura Jurídica, Puebla,  2012
+- ,Diplomado en Derecho Fiscal, BUAP, Facultad de Derecho, 27 nov 2008   24 ene 2009
+- ,Congreso Internacional de Justicia Contenciosa Administrativa, BUAP, Facultad de Derecho,  mayo 2008
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52612/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Procesal Acusatorio  Maestría en Derecho Fiscal  Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ocupar un cargo público para contribuir al bienestar social, mejorar el sistema judicial y defender derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es clave para resolver controversias de manera justa y equitativa, protegiendo los derechos de todos, especialmente de los sectores vulnerables. Debe ser transparente, eficiente y enfocada en la integridad del proceso, buscando resolver los conflictos sin demoras innecesarias. Además, es esencial erradicar prácticas inadecuadas que dificultan el acceso a la justicia, con el objetivo de restaurar la confianza de la sociedad en el sistema judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe aplicar las normas con equidad, respeto a los derechos humanos y dignidad. La justicia debe ser accesible y comprensible para todos, sin importar su condición social, económica o cultural. Debe ser eficaz, eficiente y no burocrática ni costosa. Es esencial garantizar que los sectores vulnerables tengan pleno acceso a la justicia, asegurando un proceso inclusivo, imparcial y respetuoso de los principios constitucionales.
+
+
+## Propuestas
+
+- Una propuesta es redactar las sentencias con un lenguaje claro y accesible, eliminando tecnicismos que dificulten su comprensión, especialmente para personas vulnerables. Además, se debe implementar un sistema que identifique a estas personas y garantice que reciban atención adecuada. Es crucial simplificar los procedimientos legales y ofrecer mecanismos de mediación y conciliación accesibles, eliminando barreras económicas, sociales y geográficas, para asegurar un acceso efectivo a la justicia.
+- Una mejora para el Poder Judicial es fortalecer la lucha contra la corrupción con medidas de transparencia, como la publicación de decisiones, procesos y la rendición de cuentas. Además, se debe fomentar la ética judicial mediante programas de formación continua, asegurando que jueces y magistrados mantengan altos estándares de imparcialidad. Estas acciones restaurarán la confianza pública en el sistema judicial y garantizarán una justicia más justa y transparente.
+- Fomentar la tecnologías en los procesos judiciales mejoraría la eficiencia y agilidad de los procedimientos. El uso de plataformas digitales para presentación de pruebas, audiencias virtuales y gestión de expedientes reduciría tiempos de espera y mejoraría la comunicación.. Sin embargo, es fundamental que estas herramientas respeten la privacidad y protección de datos.
+

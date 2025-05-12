@@ -1,0 +1,81 @@
+Nombre Candidato: SAMUEL RODRIGO FIGUEROA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: 4427382153
+Correo Electronico: samuelfigueroahdz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencia Jurisdiccional, Competencia Ordinaria., Derecho Sanitario, Derechos Humanos, Formación Judicial, Juicio de Amparo, Licenciado en Derecho, Maestro en Competencia Constitucional, Maestro en Derecho Civil, Propiedad Intelectual, Suprema Corte de Justicia de la Nación, Universidad Nacional Autónoma de México
+Tags Propósito: Academia, Acceso a la justicia, Administración de justicia, Audiencias constitucionales, Cargas de trabajo., Cercanía, Comunicación, Derechos humanos, Eficiencia, Enfoque constitucional, Grupos vulnerables, Humanismo, Justicia social, Normas, Reforma constitucional, Rendición de cuentas, Seguridad jurídica, Simplificación de procesos, Transparencia
+
+
+## Descripción del Candidato 
+
+Samuel Rodrigo Figueroa Hernandez es candidato a Juez/a de Distrito en Querétaro, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Civil y en Competencia Constitucional y Ordinaria, además de diversas especializaciones a través de cursos y diplomados en áreas como juicio de amparo, derechos humanos y propiedad intelectual.
+
+Su motivación para buscar el cargo se centra en mejoras en derechos humanos, simplificación de procesos, cercanía con la sociedad, autolimitación y congruencia. Propone abrir los órganos jurisdiccionales a la ciudadanía, emitir sentencias con un enfoque de justicia constitucional humanista que proteja a grupos vulnerables, y fomentar el acercamiento con la sociedad y sus representantes para mejorar las normas y reducir la carga de trabajo en los tribunales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+http://www.samuelfigueroahernandez.com.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/SamuelFigueroaHdz/
+- https://x.com/SamuelFigHdz
+- https://www.instagram.com/samuelfigueroahdz
+- https://www.tiktok.com/@samuelfigueroahdz
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo, Edición 2021, Suprema Corte de Justicia de la Nación
+- ,Diplomado Derechos Humanos a la luz del Artículo Primero Constitucional, 2024
+- Escuela Federal de Formación Judicial
+- ,Simposio, El Papel de la Ciencia en la Actividad Jurisdiccional, Academia Judicial Internacional (IJA capítulo México),Seminario, Temas Selectos de Propiedad Intelectual, Barra Mexicana Colegio de Abogados
+- ,Primeras Jornadas de Derecho Sanitario, Facultad de Derecho de la Universidad Nacional Autónoma de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53058/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Maestro en Derecho Civil
+- Maestro en Competencia Constitucional y Ordinaria
+
+
+## Motivo para buscar el Cargo Publico
+
+Lograr mejoras en derechos humanos, simplificación de procesos, cercanía, autolimitación y congruencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional requiere de forma histórica de preparación técnica especializada en las diversas áreas del derecho e incluso en administración de recursos humanos y públicos de forma transparente y eficiente. Lo cual debe complementarse con asignaturas pendientes que motivaron la reforma constitucional, en especial, cercanía a la sociedad, simplificación de procesos, rendición de cuentas y respeto por derechos de los usuarios y trabajadores de los Tribunales de la Nación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad requiere avances en materia de impartición de justicia tanto en calidad técnica como en sensibilidad social. Las sentencias de amparo deben dar plena vigencia al artículo 1 constitucional, es decir, efectuarse bajo el respeto irrestricto de los derechos humanos, lo que se traduce en lograr una función con un enfoque constitucional humanista protector de grupos históricamente en desventaja sin que ello implique la pérdida de seguridad jurídica.
+
+
+## Propuestas
+
+- Una de las formas de lograr cercanía con la sociedad es abrir las puertas de los órganos jurisdiccionales a la sociedad ¿De qué forma? entre otras, tener políticas de administración internas que permitan que las audiencias constitucionales no existan solo en papel, sino que los jueces y su equipo fomenten y llamen a la ciudadanía a acudir para que todos los usuarios y no solo los abogados puedan conocer sus reglas, finalidad y consecuencias.
+- Emitir sentencias con enfoque de justicia constitucional humanista. De forma que dichos documentos además de ser de fácil acceso y lectura, deberán contar con el rigor técnico requerido para dar seguridad jurídica a las partes, pero además deben dotar de plena vigencia a los derechos humanos, circunstancia que se traduce en proteger a los grupos históricamente vulnerables a que alude el artículo 1 de nuestra Constitución Política.
+- Es deseable tener acercamiento a través de actividades académicas no solo con el foro jurídico, sino con la sociedad y sus representantes, lo que sin duda abonaría a generar mejores normas y menores cargas de trabajo según la experiencia de los tribunales y las necesidades colectivas, de forma que, de ser designado, buscaré tener estos canales de comunicación siempre bajo las normas vigentes que correspondan según el caso.
+

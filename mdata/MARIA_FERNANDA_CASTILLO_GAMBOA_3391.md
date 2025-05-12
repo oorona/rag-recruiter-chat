@@ -1,0 +1,73 @@
+Nombre Candidato: MARIA FERNANDA CASTILLO GAMBOA
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: mafercast07@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Coloquio Internacional., Derecho Constitucional, Derecho Familiar, Evidencia Digital, Formación Académica, Justicia Penal, Proceso Penal, Propiedad Intelectual
+Tags Propósito: acceso a expedientes, confianza en la justicia, derechos humanos, dignidad humana, eficiencia, equidad, equilibrio social, formación continua, gestión judicial, grupos vulnerables, herramientas digitales, impacto social, imparcialidad, justicia accesible, legalidad., perspectiva de género, transparencia
+
+
+## Descripción del Candidato 
+
+MARIA FERNANDA CASTILLO GAMBOA es candidata a Jueza/es de Distrito en YUCATÁN, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo, y ha cursado formación especializada en propiedad intelectual, justicia penal y derecho familiar. Su motivación para buscar el cargo público es garantizar una justicia accesible, imparcial y eficiente.
+
+Su visión se centra en fortalecer la confianza en el sistema de justicia, priorizando la equidad, transparencia y dignidad humana. Sus propuestas incluyen la optimización de la gestión judicial con herramientas digitales, la consideración del impacto humano en las resoluciones y el impulso de la formación continua en derechos humanos y perspectiva de género para los operadores del sistema.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1GZD7xeazu/?mibextid=wwXIfr
+- https://www.instagram.com/mafercastillog_?igsh=MWwxZTNraHA0N2FqcA3D3D&utm_source=qr
+- https://www.tiktok.com/@mafercastillog_?_t=ZS-8v1NDy9ws56&_r=1
+
+
+## Cursos
+
+- CURSO GENERAL DE PROPIEDAD INTELECTUAL,CURSO  DEL PROCESO ORAL FAMILIAR,COLOQUIO INTERNACIONAL LOS NUEVOS RETOS DE LA JUSTICIA PENAL EN MÉXICO,CURSO IMPACTO DE LA EVIDENCIA DIGITAL EN EL DERECHO PENAL Y DERECHO PROCESO PENAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52645/11
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho Constitucional y Amparo, con formación en propiedad intelectual, justicia penal y derecho familiar
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar una justicia accesible, imparcial y eficiente que realmente beneficie a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una función jurisdiccional eficaz debe ser accesible, imparcial y ágil. Mi objetivo es fortalecer la confianza en el sistema de justicia, asegurando que cada caso sea tratado con profesionalismo, empatía y apego a la legalidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser una herramienta de equilibrio social, protegiendo los derechos de todos sin distinción. Mi visión es una impartición de justicia basada en la equidad, la transparencia y el respeto a la dignidad humana.
+
+
+## Propuestas
+
+- Optimizar la gestión judicial mediante herramientas digitales que faciliten el acceso a expedientes, agilicen trámites y reduzcan la burocracia en los procesos.
+- Garantizar que cada resolución tenga una visión integral, considerando no solo la aplicación de la ley, sino también el impacto en la vida de las personas involucradas.
+- Impulsar la formación constante de jueces, abogados y servidores públicos en temas de derechos humanos, perspectiva de género y protección de grupos vulnerables para una justicia más justa y equitativa.
+

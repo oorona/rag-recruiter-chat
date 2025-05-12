@@ -1,0 +1,74 @@
+Nombre Candidato: GLADIOLA LIZZETTE ENRIQUEZ CEDILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8341263585
+Correo Electronico: gladyz7402@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Derecho Procesal Constitucional, Desarrollo Humano, Lectura Veloz, Licenciatura en Derecho, Maestría en Derecho Procesal Penal., Memoria, Perspectiva de Género, Poder Judicial, Retórica Jurídica, Suprema Corte de Justicia, Universidad Autónoma de Tamaulipas, Universidad Iberoamericana, Universidad de las Américas Puebla
+Tags Propósito: Accesibilidad, Agilidad, Capacitación, Cercanía, Ciudadanía, Confianza, Eficiencia, Honestidad, Humanismo, Impartición de Justicia, Justicia, Paz Social, Procedimientos, Pueblo, Transparencia, Valores Humanos.
+
+
+## Descripción del Candidato 
+
+GLADIOLA LIZZETTE ENRIQUEZ CEDILLO es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal para el estado de Tamaulipas. Cuenta con licenciatura en Derecho, maestría en Derecho Procesal Penal y diversos diplomados en áreas como derecho procesal constitucional, argumentación jurídica, desarrollo del factor humano en el poder judicial y perspectiva de género.
+
+Su motivación para buscar el cargo público es contribuir a un mejor país, aplicando la justicia con humanismo y transparencia.  Su visión de la función jurisdiccional y la impartición de justicia se centra en acercar el sistema judicial a la ciudadanía, priorizando la eficiencia, la accesibilidad, la transparencia y un enfoque humanista, buscando una justicia pronta, expedita y cercana al pueblo.  Sus propuestas incluyen procedimientos más ágiles, una mayor cercanía de jueces y magistrados con la ciudadanía, y la capacitación del personal judicial en valores humanísticos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share1EM62khKH9/?mibextid=wwXlfr
+- https://www.x.com/GladiolaEnrque1
+- https://www.instagram.com/GladysEnríquez
+- https://www.tiktok.com/gladyseneiquez3
+
+
+## Cursos
+
+- DIPLOMADO EN DERECHO PROCESAL CONSTITUCIONAL, IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN,DIPLOMADO EN ARGUMENTACIÓN Y RETÓRICA JURÍDICA, IMPARTIDO POR LA UNIVERSIDAD IBEROAMERICANA,DIPLOMADO EN DESARROLLO DEL FACTOR HUMANO Y ORGANIZACIONAL EN EL PODER JUDICIAL DE LA FEDERACIÓN,DIPLOMADO JUZGAR BAJO PERSPECTIVA DE GÉNERO, IMPARTIDO POR LA UNIVERSIDAD DE LAS AMÉRICAS DE PUEBLA,DIPLOMADO SOBRE FORTALECIMIENTO DE LA MEMORIA Y LECTURA VELOZ, IMPARTIDO POR LA UNIVERSIDAD IBERO AMERICANA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53131/10
+
+
+## Trayectoria Academica
+
+- LICENCIADA EN DERECHO POR LA UNIVERSIDAD AUTÓNOMA DE TAMAULIPAS Y MAESTRÍA EN DERECHO PROCESAL PENAL
+
+
+## Motivo para buscar el Cargo Publico
+
+DESEO CONTRIBUÍR A DEJAR UN MEJOR PAÍS PARA MIS HIJOS, DONDE SE APLIQUE LA JUSTICIA CON HUMANISMO Y TRANSPARENCIA.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+MI VISIÓN SOBRE LA FUNCIÓN JURISDICCIONAL, ES QUE LAS PERSONAS JUZGADORAS SE ACERQUEN MÁS AL PUEBLO QUE RECLAMA PROCEDIMIENTOS SENCILLOS Y EFICACES, EN LOS CUALES NO SE TENGA A LA FIGURA DEL JUEZ COMO UNA PERSONA QUE NO ESTÁ DISPONIBLE PARA ESUCHAR, SINO QUE EL JUSTICIABLE SIEMPRE ENCUENTRE LAS PUERTAS ABIERTAS DE LOS PRIVADOS DE LOS JUECES QUIENES SIEMPRE DEBEN ESTAR PRESTOS PARA ESCUCHAR EL SENTIR DEL PUEBLO Y APLICAR LA JUSTICIA DE UNA MANERA HUMANISTA.
+
+
+## Vision sobre la Imparticion de Justicia
+
+MI VISIÓN ES CONTRIBUIR A LA PAZ SOCIAL MEDIANTE LA IMPARTICIÓN DE UNA JUSTICIA HUMANISTA Y CERCANA AL PUEBLO, DONDE TODO SE DESARROLLE EN TOTAL TRANSPARENCIA HACIA EL JUSTICIABLE PARA GENERAR CONFIANZA EN LA CIUDADANÍA, FOMENTANDO PRIVILEGIAR MÁS A LA JUSTICIA, SOBRE LA APLICACIÓN IRRESTRICTA DE LA LEY, GENERANDO MECANISMOS SENCILLOS Y EFICACES PARA QUE LA IMPARTICIÓN DE JUSTICIA SEA MÁS PRONTA Y EXPEDITA Y QUE TODAS LAS PERSONAS SE SIENTAN ESCUCHADAS POR LOS JUECES Y MAGISTRADOS.
+
+
+## Propuestas
+
+- PROCEDIMIENTOS MÁS ÁGILES Y SENCILLOS, EN LOS QUE EL PUEBLO NO SE ENCUENTRE CON LAS PUERTAS CERRADAS DE LOS ÓRGANOS JURISDICCIONALES
+- CERCANÍA CON EL PUEBLO, QUE EL JUSTICIABLE NO VEA A LOS JUECES Y MAGISTRADOS COMO PERSONAS FRIAS Y LEJANAS A LA REALIDAD QUE IMPERA EN NUESTRO PAÍS, QUE LOS VEA COMO PERSONAS ACCESIBLES, HONESTAS Y TRANSPARENTES, BUSCANDO SIEMPRE LA MEJOR SOLUCIÓN A LOS PROBLEMAS DE LA CIUDADANÍA.
+- CAPACITACIÓN A TODO EL PERSONAL DE LOS ÓRGANOS JURISDICCIONALES, EN LOS QUE DEBA PRIVILEGIARSE EL HUMANISMO EN LA IMPARTICIÓN DE JUSTICIA, ENALTECIENDO SIEMPRE LOS VALORES QUE CARACTERIZAN A LOS BUENOS SERES HUMANOS.
+

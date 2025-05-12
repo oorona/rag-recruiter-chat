@@ -1,0 +1,76 @@
+Nombre Candidato: GIGLIOLA TAIDE BERNAL ROSALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 7206477941
+Correo Electronico: consmar2128@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Público., Dogmática, Ejecución Penal, Función Secretarial, Género, Igualdad, Justicia Penal, Legislación, Maestría, Materia Penal, Secuestro, Universidad Autónoma del Estado de México, Violencia
+Tags Propósito: acceso a la justicia, confianza ciudadana., democracia, derechos humanos, desigualdad, dignidad humana, diálogo ciudadano, empatía, función jurisdiccional, impacto social, integridad, justicia, lenguaje claro, perspectiva de género, rendición de cuentas, responsabilidad pública, transparencia
+
+
+## Descripción del Candidato 
+
+Gigliola Taide Bernal Rosales es candidata a Magistratura de Tribunales Colegiados de Circuito en México. Licenciada en Derecho por la Universidad Autónoma del Estado de México y actualmente cursando la Maestría en Derecho Público, cuenta con formación en actualización legislativa, materia penal, derechos humanos y perspectiva de género, avalada por diversos cursos especializados.
+
+Su motivación para buscar el cargo es contribuir a un Poder Judicial renovado y empático con los desafíos democráticos del país. Su visión de la función jurisdiccional y la impartición de justicia se centra en una justicia ética, humana y con impacto social, priorizando el enfoque de derechos y la transparencia. Sus propuestas incluyen la elaboración de resoluciones judiciales en lenguaje ciudadano, ejercicios de rendición de cuentas abiertos a la sociedad y la creación de espacios de diálogo con colectivos ciudadanos.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AU6Ha4CTV/?mibextid=wwXIfr
+- https://instagram.com/gigliolabernal
+- https://tiktok.com/@gigliola025
+
+
+## Cursos
+
+- Curso de Actualización Legislativa
+- Módulo Materia Penal
+- Análisis Dogmático de la Nueva Regulación del Secuestro
+- ,Curso Responsabilidades de la Función Secretarial ¿ IV,Curso Para Generar Espacios Libres de Violencia,Curso Género como Herramienta para la Igualdad,Curso Instrumentación del Subsistema de Justicia de Ejecución Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52458/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad Autónoma del Estado de México Cursante de la Maestría en Derecho Público
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a que el renovado poder judicial responda con empatía a los desafíos democráticos de México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser más que técnica: debe ser ética, humana y consciente de su impacto social. Juzgar no es solo aplicar normas, sino escuchar contextos, reconocer desigualdades y decidir con perspectiva. Una justicia accesible, clara y con enfoque de derechos transforma no solo casos, sino vidas. Esa es la visión que nos toca construir.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la impartición de justicia como un acto de responsabilidad pública que debe ejercerse con integridad, sensibilidad y profundo compromiso con la dignidad humana. Impartir justicia no es solo resolver conflictos legales; es garantizar que cada decisión reconozca los contextos, repare desigualdades y fortalezca la confianza de la ciudadanía en sus instituciones. Mi visión apuesta por una justicia transparente, accesible, con lenguaje claro y enfoque de género.
+
+
+## Propuestas
+
+- Promover que las resoluciones judiciales incluyan un resumen ejecutivo en lenguaje ciudadano, con enfoque de derechos humanos y perspectiva de género.
+- Institucionalizar ejercicios voluntarios de rendición de cuentas abiertos a la sociedad, donde las personas juzgadoras expliquen su función, retos y avances sin entrar en detalles de casos específicos.
+- Crear espacios periódicos de escucha y diálogo entre el personal jurisdiccional y representantes de colectivos ciudadanos, mujeres, personas indígenas y otras comunidades.
+

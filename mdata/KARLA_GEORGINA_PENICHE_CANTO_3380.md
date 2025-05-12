@@ -1,0 +1,73 @@
+Nombre Candidato: KARLA GEORGINA PENICHE CANTO
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: karlapenichecanto@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Asilegal., California Western School of Law, Derechos Humanos, Escuela Judicial, Especialización, Formación, Justicia Laboral, Litigio Oral, Maestría, Poder Judicial, Procedimientos Penales, Universidad Marista
+Tags Propósito: Accesibilidad, Agilidad, Claridad, Comprensibilidad, Confianza, Derechos Humanos, Eficiencia, Herramientas, Humanidad, Imparcialidad, Justicia, Lenguaje Claro, Ley, Orientación, Procesos Penales, Reducción de Tiempos, Respeto, Seguridad, Sistema Penal Acusatorio., Sociedad Justa, Transparencia, Verdad
+
+
+## Descripción del Candidato 
+
+Karla Georgina Peniche Canto es candidata a Jueza/es de Distrito en Yucatán, postulándose a través del Poder Legislativo Federal. Cuenta con maestría y cédula profesional, con especialización en litigio oral, derechos humanos, justicia laboral y penal. Su trayectoria académica se complementa con diversos cursos y diplomados en áreas como derechos humanos, justicia laboral, litigación oral y procedimientos penales.
+
+La candidata expresa como motivación para el cargo el deseo de impartir justicia imparcial, proteger los derechos humanos y contribuir a una sociedad más justa y segura. Sus propuestas centrales incluyen la implementación de herramientas para agilizar procesos judiciales, el uso de lenguaje claro y accesible en las resoluciones, y la creación de espacios de orientación para que las personas conozcan sus derechos y los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1KfYoRkvVX/?mibextid=wwXIfr
+- https://www.instagram.com/karlageorginapenichecanto?igsh=MWpocTNheDl0ODNnaw3D3D&utm_source=qr
+- https://www.tiktok.com/@karlapenichecanto?_t=ZM-8v1CYAbmxbK&_r=1
+
+
+## Cursos
+
+- DIPLOMADO EN DERECHOS HUMANOS EN LA PRÁCTICA POR ASILEGAL JUNTO CON LA ESCUELA JUDICIAL DE GUERRERO,CURSO BÁSICO DE FORMACIÓN Y PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN,CURSO DE ESPECIALIZACIÓN SOBRE LA REFORMA EN MATERIA DE JUSTICIA LABORAL,CURSO DE DESTREZAS EN LITIGACIÓN ORAL POR CALIFORNIA WESTERN SCHOOL LAW,TALLER SOBRE EL CÓDIGO NACIONAL DE PROCEDIMIENTOS PENALES POR LA UNIVERSIDAD MARISTA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54714/11
+
+
+## Trayectoria Academica
+
+- Maestra en Litigio Oral, especializada en materia de derechos humanos, justicia laboral y penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia imparcial, proteger derechos humanos y contribuir a una sociedad más justa y segura.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser accesible y eficiente. Mi objetivo es que los procesos judiciales penales sean más claros, ágiles y comprensibles para todas las personas, asegurando que las resoluciones sean justas y con base en la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser imparcial, transparente y humana. Mi visión es un sistema de impartición de justicia que respete los derechos de todas las personas, sin distinciones ni privilegios, garantizando que cada decisión esté basada en la verdad y la ley.
+
+
+## Propuestas
+
+- Implementar herramientas para agilizar los procesos, reducir tiempos de espera y evitar retrasos injustificados en la resolución de los casos.
+- Promover el uso de lenguaje claro y accesible en las resoluciones judiciales para que cualquier persona pueda entender sus derechos y el resultado de su caso sin necesidad de tecnicismos innecesarios.
+- Abrir espacios de atención y orientación para que las personas conozcan sus derechos y los procesos judiciales, promoviendo confianza y transparencia en el sistema penal acusatorio federal.
+

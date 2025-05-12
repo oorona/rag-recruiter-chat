@@ -1,0 +1,78 @@
+Nombre Candidato: BENJAMIN RODRIGUEZ CUELLAR
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: 5664091408
+Correo Electronico: benrodcue82@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Función Secretarial, Igualdad de Género, Juicio de Amparo, Juicios Orales, Licenciatura en Derecho, Universidad del Valle de México., Violencia
+Tags Propósito: acceso a la justicia, administración de justicia, capacitación continua, cumplimiento legal, derechos humanos, eficiencia, experiencia jurisdiccional, función jurisdiccional, imparcialidad, justicia pronta y expedita, justicia social, objetividad, profesionalismo, responsabilidad social, servidor público, trato digno, vocación de servicio, ética judicial.
+
+
+## Descripción del Candidato 
+
+Benjamin Rodriguez Cuellar es candidato a Juez/a de Distrito en Querétaro, postulado por el Poder Ejecutivo Federal. Cuenta con Licenciatura en Derecho por la Universidad del Valle de México y ha realizado diversas especializaciones en áreas como Juicios Orales, Juicio de Amparo, y perspectiva de género. Su motivación para buscar el cargo es contribuir a un nuevo orden jurídico y responder a las demandas de la sociedad.
+
+Su visión de la función jurisdiccional se basa en tres ejes: jurídico, administrativo y humanista, buscando un desempeño eficiente y con enfoque en el trato al personal y a las partes. Sus propuestas incluyen el cumplimiento de la Constitución y las leyes, una administración de justicia con visión social y humana, la vocación de servicio público para garantizar acceso a la justicia, y el compromiso con la capacitación continua para un desempeño diligente, imparcial y profesional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573015987320
+- https://x.com/benrodcue82
+- https://www.instagram.com/benhas82/
+- http://www.youtube.com/@BenRodCue82
+- https://www.tiktok.com/@benjarodcue
+
+
+## Cursos
+
+- Especialidad en Juicios Orales,Curso responsabilidades de la función secretarial
+- ,Diplomado sobre Juicio de Amparo
+- ,Curso para generar espacios libres de violencia
+- ,Curso género como herramienta para la igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54406/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por parte de la Universidad del Valle de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte de este nuevo orden jurídico, para contribuir con el cambio, que la sociedad nos exige.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es muy importante y no solo es conocer de derecho y leyes, conlleva una responsabilidad que cubre a mi parecer con 3 ejes, para un buen desempeño jurisdiccional; el jurídico, los conocimientos que la práctica me ha enseñado, la administrativa, la organización del juzgado estadísticamente, organización de trabajo, estar al tanto de las necesidades del mismo, y la humanista, trato al personal, respetando sus derechos, el trato a las partes del juicio y/o procesos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia tiene que ser si o si, para todas las y los mexicanos, es un derecho humano y fundamental irrenunciables que debe siempre estar vigilado por quienes ocupan los cargos de persona juzgadora, el cual siempre tiene que ser con identidad social, dándole a cada quien lo que corresponde, respetando e inclusive alcanzando un mayor y mejor beneficio, apegado a derecho, es por eso que la persona que ocupe dicho cargo, debe contar con una experiencia amplia en ámbito jurisdiccional.
+
+
+## Propuestas
+
+- Cumplir con la Constitución y las leyes que de ella emanan, para que junto con los conocimientos adquiridos en mi vida profesional y jurisdiccional, otorgue una justicia con visión más social y humana, dejando a un lado los tecnicismos, burocracia y aquellos impedimentos que obstruyan el acceso de la justicia a toda la ciudadanía, todo conforme a las facultades y atribuciones que como persona juzgadora me permita y de esta manera ir acotando esos obstáculos que la gente no merece.
+- Ser un excelente servidor público, en el sentido que como tal, uno se debe a la sociedad, la vocación de servicio siempre debe estar por encima de todo aquel acervo jurídico, porque para desempeñar un cargo de esta naturaleza, uno debe estar consciente que va a estar para servir, no para ser servido, implementando mecanismos para que todo justiciable tenga acceso a una justicia pronta y expedita literalmente, así como con la información correspondiente y un trato digno en todo momento.
+- Comprometerme a tener una capacitación continua, con la consigna de realizar la función encomendada de la mejor manera, diligente y profesionalmente, cumplimiento en todo momento los principios que se necesita para el desarrollo del cargo conferido de manera independiente, imparcial, objetiva y profesionalmente, llevando a cabo diversos cursos y diplomados, para estar al día a día de la evolución y cambio social constante para una mejor impartición de justicia.
+

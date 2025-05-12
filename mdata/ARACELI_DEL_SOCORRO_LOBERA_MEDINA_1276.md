@@ -1,0 +1,80 @@
+Nombre Candidato: ARACELI DEL SOCORRO LOBERA MEDINA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: araceliloberamedina@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Derecho Colectivo, Derecho Laboral, Derecho del Trabajo, Diplomado, Doctorado, Escuela Federal de Formación Judicial, Especialización, Formación Judicial, Instituto de Posgrado en Derecho, Instituto de la Judicatura Federal, Justicia Laboral, Licenciatura, Maestría, Seguridad Social, Seminarios, UAEM.
+Tags Propósito: acceso a la justicia, burocracia, capacitación, derechos humanos, digitalización, humanismo, igualdad, imparcialidad, incorruptibilidad, justicia, justicia de calidad., modernización, operadores jurisdiccionales, sensibilidad, sistema de protección, transparencia, vocación de servicio
+
+
+## Descripción del Candidato 
+
+ARACELI DEL SOCORRO LOBERA MEDINA es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose para los Poderes Ejecutivo, Judicial y Legislativo Federal. Cuenta con doctorado en Derecho Laboral y una amplia formación en materia laboral y de seguridad social, incluyendo especializaciones y diplomados del Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo es contribuir al fortalecimiento de la impartición de justicia y el respeto a los derechos humanos. Sus propuestas incluyen la optimización y digitalización de los órganos jurisdiccionales, así como la capacitación continua y obligatoria de los operadores jurídicos, priorizando un enfoque de servicio y sensibilidad social para garantizar el acceso a una justicia igualitaria, transparente y humana.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AraceliLoberaMedina
+- https://x.com/LoberaAraceli
+- https://www.instagram.com/araceli_lobera_medina/
+- https://www.tiktok.com/@araceli_lobera
+
+
+## Cursos
+
+- Doctorante en Derecho Laboral por el Instituto de Posgrado en Derecho
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral por el Instituto de la Judicatura Federal
+- ,Curso de Especialización sobre la Reforma en Materia de Justicia Laboral por el Instituto de la Judicatura Federal
+- ,Diplomado en Materia de Seguridad Social por el Instituto de la Judicatura Federal
+- ,Seminarios de Amparo en Materia Laboral, Derecho Colectivo y Seguridad Social (Escuela Federal de Formación Judicial)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54134/10
+
+
+## Trayectoria Academica
+
+- Doctorante en Derecho Laboral (IPD); Especialista en Derecho del Trabajo (EFFJ); Licenciada y Maestra en Derecho (UAEM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Es la oportunidad de contribuir al fortalecimiento de la impartición de justicia y el respeto a los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Contar con juzgadores capacitados y especializados en las materias correspondientes, fortaleciendo su experiencia en el ámbito jurisdiccional y desarrollando la sensibilidad y el humanismo que se requiere para asegurar el acceso a una justicia de calidad, sensible, imparcial e incorruptible.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser igualitaria para todos los integrantes del pueblo, porque el pueblo tiene la capacidad de escoger a sus juzgadores, en ese sentido, regiré mi comportamiento jurisdiccional en función de las decisiones del pueblo, privilegiando un sistema de protección a los derechos humanos y el acceso a una justicia más humana y cercana a la gente.
+
+
+## Propuestas
+
+- Optimizar el funcionamiento de los órganos jurisdiccionales, a fin de evitar la burocratización de los asuntos, pues la impartición de justicia no debe ser retardada por cuestiones administrativas o de mero trámite que sin duda afectan a la sociedad, porque todos tenemos derecho a la impartición de justicia igualitaria, sin importar nuestro rango social.
+- Transitar a la digitalización y modernización en la impartición de justicia, promoviendo los servicios en línea y difundiendo el trabajo en los órganos jurisdiccionales para fortalecer la transparencia en su ejercicio, porque la transparencia es sinónimo de no corrupción.
+- La capacitación continua y obligatoria de todos los operadores en los órganos jurisdiccionales, promoviendo ante todo la sensibilización y vocación de servicio en la atención a toda la sociedad, sin distinción de clases sociales.
+

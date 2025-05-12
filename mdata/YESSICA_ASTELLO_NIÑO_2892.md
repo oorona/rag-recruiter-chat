@@ -1,0 +1,73 @@
+Nombre Candidato: YESSICA ASTELLO NIÑO
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8116405534
+Correo Electronico: lic.yessicaastello@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Centro de Conciliación, Certificación en Conciliación Laboral, Comunicación, Conciliación, Contaduría., Derecho Laboral, Derechos Laborales, Género, Licenciatura en Derecho, Vulnerabilidad
+Tags Propósito: Bienestar, Burocracia, Confianza, Constitución, Derechos, Empatía, Equidad, Futuro, Honestidad, Imparcialidad, Justicia, Justicia humana, Protección, Resolucion de conflictos., Respeto, Sentencias, Sistema judicial, Tecnología, Trámites
+
+
+## Descripción del Candidato 
+
+YESSSICA ASTELLO NIÑO es candidata a Jueza/es de Distrito en Nuevo León, postulada por el Poder Ejecutivo Federal. Licenciada en Derecho, cuenta con certificación en conciliación laboral y estudios en contaduría. Su motivación para buscar el cargo es garantizar un trato justo y respetuoso en la aplicación de la ley, enfatizando la empatía y el entendimiento en la función jurisdiccional.
+
+Su visión de la impartición de justicia se centra en la imparcialidad combinada con un enfoque humano, considerando todos los elementos de cada caso. Sus propuestas incluyen la simplificación de trámites a través de la tecnología para resolver conflictos laborales, y garantizar sentencias claras y basadas en principios de equidad para fomentar la confianza en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/YessicaAstelloNiño
+- https://www.instagram.com/YessicaAstelloNiño
+- https://www.tiktok.com/yessy6719
+
+
+## Cursos
+
+- Habilidades de comunicación y conciliación,Conciliación individual,El Derecho Laboral y los Derechos de las Personas Trabajadoras,El Centro de conciliación, sus procedimientos y roles,Perspectiva de Género y Grupo en situación de vulnerabilidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52372/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Certificada en Conciliación Laboral y Técnica en Contaduría
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser jueza para garantizar un trato justo, digno y respetuoso a todos, aplicando las leyes con equidad y empatía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Para mí, la función jurisdiccional es garantizar que las leyes y la Constitución se cumplan, pero también es escuchar, entender y resolver con empatía. Quiero que la justicia no sea solo un proceso frío, sino un espacio donde las personas sientan que sus derechos son respetados y protegidos. Sé lo que es velar por el bienestar de otros, y quiero llevar esa misma dedicación a la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser imparcial, pero también humana. Mi visión es tomar en cuenta todos los elementos de cada caso, escuchando a las partes involucradas, para dictar sentencias justas y equilibradas. Quiero que las personas confíen en el sistema judicial y sientan que se les trata con honestidad, equidad y respeto. Como madre, entiendo la importancia de construir un futuro más justo para las próximas generaciones.
+
+
+## Propuestas
+
+- Simplificaré trámites y usaré la tecnología para que las personas resuelvan sus conflictos laborales sin burocracia ni demoras.
+- Garantizaré que las sentencias sean claras, coherentes y basadas en principios de equidad, para que la gente confíe en el sistema judicial, con una justicia cercana y humana para todas las personas sin distinción.
+- No proporcionó
+

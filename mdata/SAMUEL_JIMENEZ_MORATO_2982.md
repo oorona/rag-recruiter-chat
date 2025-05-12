@@ -1,0 +1,75 @@
+Nombre Candidato: SAMUEL JIMENEZ MORATO
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2215845301
+Correo Electronico: licsamu88@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Centros de Justicia Penal Federal, Constancias, Derecho Civil, Derecho Penal, Despacho Judicial, Escuela Federal de Formación, Formación Judicial, Licenciatura en Derecho, Maestría, Personal Administrativo., Registro, Sistema Penal Acusatorio, Titulación
+Tags Propósito: Bienestar Social, Carga de Trabajo, Celeridad, Certeza Jurídica, Ciudadanía, Constitución, Derechos Humanos., Distribución de Personal, Eficiencia, Estado de Derecho, Imparcialidad, Justicia, Participación Ciudadana, Seguridad, Servidores Públicos, Transparencia, Órganos Jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Samuel Jimenez Morato es candidato a Juez de Distrito en Puebla, postulándose al Poder Legislativo Federal. Cuenta con Maestría en Derecho Civil y una en Derecho Penal en proceso de titulación. Su formación incluye cursos sobre el Sistema Penal Acusatorio y administración judicial.
+
+Motivado por contribuir a la disminución de la criminalidad en Puebla y agilizar los procesos, propone priorizar la solución de conflictos sobre el formalismo, mantener una cercanía con la ciudadanía y optimizar la distribución del personal judicial para mejorar la eficiencia del servicio. Su visión de la función jurisdiccional se centra en un juzgador con principios de justicia natural y conocimiento jurídico, que sea un agente de cambio para el bienestar social y la seguridad jurídica.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/samuel.jimenezmorato
+- https://x.com/Samo8831729?t=hk0zeZVcMkH_wj3Xzxmh9Q&s=09
+- https://www.instagram.com/samojm88?igsh=MWttcjcwcnh4MGd0dQ3D3D
+- https://www.tiktok.com/@sjm35732?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Inducción para Asistentes de Constancias y Registro y de Despacho Judicial, impartido por Escuela Federal de Formación,Teoría y Práctica del Sistema Penal Acusatorio a Través de los Precedentes de la SCJN, para personas Administradoras,CURSO SISTEMA PENAL ACUSATORIO
+- SITUACIÓN ACTUAL, impartido por la Escuela Federal de Formación Judicial,CURSO ESPECIALIZADO PARA PERSONAL DEL DESPACHO JUDICIAL DEL CENTRO DE JUSTICIA PENAL FEDERAL, por la Escuela de Formació,CURSO ESPECIALIZADO PARA PERSONAS ADMINISTRADORAS DE LOS CENTROS DE JUSTICIA PENAL FEDERAL, por la Escuela de Formación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53325/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho con Maestría en Derecho Civil y Maestría en Derecho Penal en trámite de titulación
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir en la disminución de los índices de criminalidad en el Estado de Puebla y procesos más rápidos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un buen juzgador debe ser en principio una persona que escuché y atienda el llamado interno del derecho natural ante un conflicto, que distinga entre lo correcto y lo injusto. Asimismo, debe tener la voluntad inquebrantable para defender aquello que la justicia determine como cabal en los asuntos que se pongan ante su conocimiento, contando desde luego con los conocimientos jurídicos
+
+
+## Vision sobre la Imparticion de Justicia
+
+Emplear la potestad y responsabilidad que el Estado otorga en algunas personas (jurisdicción), para ser un agente de cambio en el bienestar social, al brindar seguridad jurídica a las empresas, seguridad social a las personas trabajadoras, certeza en la obligatoriedad de los contratos, en aquellos actos civiles, y en el caso de la materia penal, brindarle a la ciudadanía en general, la tranquilidadd de que REALMENTE el culpable no quedará impune y no se castigará al inocente.
+
+
+## Propuestas
+
+- Privilegiar la solución del conflicto por encima de la aplicación de criterios excesivamente formalistas que solo demoran la emisión de sentencias, pues recordemos que justicia que no es expedita no es justicia. Todo lo anterior, privilegiando el artículo 17 de la Constitución Política de los Estados Unidos Mexicanos
+- Lograr una efectiva cercanía con la ciudadanía en el ejercicio de las funciones encomendadas, continuando las pláticas con foros de ciudadanos, universitarios y servidores públicos, no cerrarse más a lo que piensa y espera la sociedad de un juez, buscar mantener presente el compromiso que se adquirió con el ciudadano.
+- Mejor distribución del personal en órganos jurisdiccionales, a efecto de reforzar las áreas con mayor carga de trabajo para agilizar el trámite de los asuntos, y con ello brindar un mejor servicio público, a la ciudadanía y a méxico, pues como servidores públicos nos debemos al ciudadano
+

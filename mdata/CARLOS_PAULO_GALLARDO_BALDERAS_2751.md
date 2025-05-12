@@ -1,0 +1,73 @@
+Nombre Candidato: CARLOS PAULO GALLARDO BALDERAS
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4433301762
+Correo Electronico: pgallardobalderas@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Auditoría., Control Convencional Difuso, Derecho, Derecho Político, Gestión de Riesgos, ISO 31000, ISO 37001, ISO 9001, Justicia Administrativa, Litigación Oral, Maestría
+Tags Propósito: Acceso a la Justicia, Anticorrupción, Capacitación Judicial, Claridad., Democracia, Derechos Humanos, Eficiencia Judicial, Imparcialidad, Independencia Judicial, Jurisprudencia, Justicia, Ley, Procedimientos Legales, Protección Legal, Razonabilidad, Reducción de Tiempos, Sentencias Justas, Transparencia, Tribunales
+
+
+## Descripción del Candidato 
+
+Carlos Paulo Gallardo Balderas es candidato a Juez de Distrito en Michoacán, postulado por el Poder Ejecutivo Federal. Cuenta con una trayectoria académica en Derecho, incluyendo una especialidad en Justicia Administrativa y una Maestría en Derecho Político y Administración Pública. Su motivación para buscar el cargo se basa en su preparación y experiencia en la carrera judicial, con el objetivo de emitir sentencias justas.
+
+Su visión de la función jurisdiccional y la impartición de justicia se centra en la protección de los derechos humanos, el acceso a la justicia sin formalismos excesivos, la reducción de los tiempos en los juicios y el fortalecimiento de la imparcialidad e independencia de los jueces a través de medidas anticorrupción. Para lograrlo propone facilitar el acceso a la justicia, agilizar los procedimientos judiciales y promover un sistema judicial transparente y confiable.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://carlospaulogallardo.com/
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Diplomado de Litigación en Juicio Oral en Materia Penal,Curso de formación de auditores en Sistemas de Gestión Integral ISO 9001:15 e ISO 37001:16
+- ,Seminario Taller en Materia de Justicia Administrativa,Curso en Gestión de Riesgos ISO 31000:18 y en interpretación de los requisitos de las normas ISO 37001:16 e ISO 9001:15,Reconocimiento por impartir la conferencia  Control Convencional Difuso por el Tribunal de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53290/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, con especialidad en Justicia Administrativa y Maestría en Derecho Político y Administración Pública
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la preparación y experiencia en la carrera judicial para desempeñar el cargo de Juez y emitir sentencias justas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función del tribunal es clave para proteger los derechos humanos frente a los actos de las autoridades. Los tribunales resuelven los juicios utilizando las leyes nacionales, tratados internacionales y jurisprudencia, con el objetivo de emitir sentencias claras, razonables y justas. Esta función debe ser activa y creativa, garantizando que las decisiones sean comprensibles, razonadas y alineadas con los derechos que tienen todas las personas protegidos por la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es cuando los tribunales resuelven los problemas legales siguiendo las leyes que existen en un país democrático, asegurando que todos respeten y cumplan las reglas. Debe asegurar que se protejan los derechos de las personas y que todos los ciudadanos sin distinción tengan acceso a la justicia. Esto debe basarse en hechos claros y procedimientos legales. Los jueces deben tomar decisiones justas y sin favoritismos, siguiendo la ley de manera independiente e imparcial.
+
+
+## Propuestas
+
+- ACCESO SENCILLO A LA JUSTICIA. El acceso a la justicia de los ciudadanos deberá ser sencillo, sin formalismos jurídicos excesivos y carentes de justificación. Es fundamental que los procedimientos judiciales sean claros y comprensibles para que cualquier persona, sin importar su conocimiento legal, pueda entender y acceder a sus derechos. La burocracia innecesaria debe eliminarse, asegurando que todos puedan presentar y resolver sus casos de forma ágil y efectiva.
+- REDUCCIÓN DE TIEMPOS EN LOS JUICIOS. La temporalidad en el trámite y la sentencia de los juicios, debe reducirse. Es esencial que los procesos judiciales no se prolonguen innecesariamente, ya que el tiempo es crucial para las personas involucradas. Para mejorar la eficiencia, se deben establecer mecanismos para agilizar los trámites, optimizar los recursos de los tribunales y garantizar que las decisiones se tomen en un tiempo razonable, respetando siempre el derecho a la defensa.
+- FORTALECIMIENTO DE LA IMPARCIALIDAD E INDEPENDENCIA DE LOS JUECES, CON MEDIDAS ANTICORRUPCIÓN. Es clave para que las decisiones de los jueces no sean influenciadas por factores externos. Esto requiere implementar medidas para proteger su autonomía y establecer programas de capacitación en al ámbito académico y práctico de las personas que laboren en los juzgados. Además, deben impulsarse acciones para prevenir y sancionar la corrupción, garantizando un sistema judicial transparente y confiable.
+

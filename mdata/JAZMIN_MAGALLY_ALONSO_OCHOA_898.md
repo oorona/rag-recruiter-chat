@@ -1,0 +1,79 @@
+Nombre Candidato: JAZMIN MAGALLY ALONSO OCHOA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: alonso_ochoa_jaz@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Fiscal, Derecho Procesal, Derechos Humanos, Diversidad Sexual, Educación Continua., Formación Pública, Inclusión, Juicios Orales, No Discriminación, Política Anticorrupción, Responsabilidades Administrativas, SFP, UNAM, UTEL
+Tags Propósito: Bien Común, Capacitación, Causas Raíz., Cero Corrupción, Control Preventivo, Derechos Humanos, Expeditidad, Impunidad, Justicia Accesible, Justicia Entendible, Justicia Humana, Justicia No Onerosa, Justicia Pronta, Justicia Restaurativa, Justicia Ágil, Legalidad, Lenguaje Ciudadano, Poder Judicial, Profesionalismo, Soluciones Legales, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Jazmín Magally Alonso Ochoa es candidata a Magistratura de los Tribunales Colegiados de Circuito, postulándose por el Poder Judicial de la Federación en la Ciudad de México. Cuenta con Maestría en Derecho Procesal y Juicios Orales (UTEL) y una Especialidad en Derecho Fiscal (UNAM), además de una Licenciatura en Derecho de la UNAM. Su trayectoria académica se complementa con diversos cursos en temas de responsabilidades administrativas, derechos humanos, política anticorrupción, diversidad e inclusión, impartidos por instituciones como la SFP, la UNAM y el CONAPRED.
+
+La candidata motiva su postulación en el deseo de defender los Derechos Humanos, promoviendo un acceso a la justicia más ágil, entendible y accesible para la ciudadanía. Sus propuestas incluyen la capacitación continua de las autoridades judiciales, la transparencia en los procesos legales y sus costos, y el fortalecimiento del Poder Judicial para combatir la impunidad y la corrupción, promoviendo una justicia humana, social y restaurativa.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574204653570
+- https://x.com/JazminOchoa38
+- https://www.instagram.com/alonso_ochoa_jaz/
+- https://www.youtube.com/@JazminMagally38
+- https://www.tiktok.com/@alonso_ochoa_jaz?lang=es
+
+
+## Cursos
+
+- Curso de Responsabilidades Administrativas de las Personas Servidoras Públicas, SFP en 2022
+- ,Curso de Principios Constitucionales de los Derechos Humanos en el Servicio Público 2023
+- ,Curso del módulo de Especialidad en Política anticorrupción, UNAM en 2024
+- ,Curso en Diversidad sexual, inclusión y no discriminación por el Consejo Nacional para Prevenir la Discriminación, 2024
+- ,Curso de Formación común en la SFP, impartido por el Centro de Estudios para Prevenir la Corrupción e Impunidad en 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52236/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Especialidad en Derecho Fiscal (UNAM), y Maestría en Derecho Procesal y Juicios Orales (UTEL)
+
+
+## Motivo para buscar el Cargo Publico
+
+Trabajar cada día por una verdadera defensa de los Derechos Humanos, que sea justa, entendible, ágil, y no onerosa.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que se implementen mecanismos para que el acceso a la justicia sea más ágil y no onerosa en el bolsillo de las familias mexicanas; Promover que los procedimientos legales sean entendibles para todas y todos, y no sólo por juristas, abogados y servidores públicos; Garantizar la impartición de la justicia con una visión más humana, restaurativa y social; y Reafirmar que los integrantes del Poder Judicial son los primeros en dar el ejemplo de Cero corrupción e impunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Consolidar una verdadera defensa de los Derechos Humanos; Que la justicia sea accesible, ágil, entendible, humana, social y restaurativa para todas y todos; Garantizar la transparencia en los resultados alcanzados por la autoridad jurisdiccional y así aportar soluciones legales, justas y humanas que sumen al bien común; y Reafirmar que el Poder Judicial es fuerte y confiable para hacerle frente a la impunidad y corrupción, y así recuperar la credibilidad y confianza en la institución.
+
+
+## Propuestas
+
+- Trabajar cada día por una verdadera defensa de los Derechos Humanos: Se requiere que las autoridades impartidoras de justicia se capaciten y actualicen sus conocimientos para que resuelvan con profesionalismo, eficacia, ética, imparcialidad, legalidad, con una visión de protección más amplia en los Derechos Humanos y una justicia restaurativa, a fin de que no sea reiterativa y ociosa la revisión de una resolución o sentencia emitida propiamente por las autoridades correspondientes.
+- Luchar con responsabilidad desde mi competencia por una justicia accesible, entendible, ágil y no onerosa para todas y todos: Se requiere que se haga realidad el principio de una justicia pronta y expedita, es decir, que desde la primera autoridad o instancia a quien recurrimos responda a nuestras peticiones en la materia; así como informarle al pueblo mexicano de las etapas procesales, el costo promedio o máximo para tramitarlas y su estatus con un lenguaje ciudadano, preciso y entendible.
+- Formar parte de un Poder Judicial fuerte y determinante que represente a todas y todos para hacerle frente a la impunidad y corrupción: Se requiere que las autoridades impartidoras de justicia colaboren con equipos multidisciplinarios para que se retroalimenten respecto de las causas raíz de las problemáticas jurisdiccionales que mayormente se suscitan, a fin de establecer y gestionar mecanismos de control preventivos, correctivos y así dar soluciones legales, justas, humanas y efectivas.
+

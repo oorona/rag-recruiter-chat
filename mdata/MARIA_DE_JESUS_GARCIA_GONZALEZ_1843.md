@@ -1,0 +1,77 @@
+Nombre Candidato: MARIA DE JESUS GARCIA GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 4949493847
+Correo Electronico: mary_garcia54@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: 15 años., 23 años, Control de Convencionalidad, Declaraciones, Derecho Civil, Escuela Judicial, Jueza, Poder Judicial, Psicoanálisis, Seminario, Sistema de Justicia Penal, Tratamiento de Personas, Trayectoria Judicial, Zacatecas
+Tags Propósito: Accesibilidad, Adolescencia, Confianza institucional., Derechos fundamentales, Discapacidad, Género, Humanidad, Igualdad, Imparcialidad, Independencia, Infancia, Justicia, Normativa legal, Preparación legal, Servidores públicos
+
+
+## Descripción del Candidato 
+
+MARIA DE JESUS GARCIA GONZALEZ es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Legislativo Federal desde la entidad de Zacatecas. Cuenta con Maestría profesional y una trayectoria de 23 años en el Poder Judicial, incluyendo 15 años como Jueza y experiencia como Fiscal Especializada para la Atención de Trata de Personas.
+
+Su motivación para el cargo se basa en su experiencia y preparación para emitir sentencias justas e imparciales. Su visión de la función jurisdiccional enfatiza la importancia de la preparación en leyes nacionales e internacionales, considerando perspectivas de género, infancia y adolescencia. Entre sus propuestas destacan la accesibilidad de los tribunales para personas con discapacidad, un trato cordial y claro a los justiciables por parte de los funcionarios judiciales, y un enfoque humanista en la administración de justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Mary Garcia Gonzalez
+- https://www.instagram.com/Mary Garcia
+
+
+## Cursos
+
+- Especialidad en materia Civil, escuela Judicial del Poder Judicial del Estado de Zacatecas
+- ,Seminario Culpa, Crimen y Castigo, Psicoanálisis y mimología, impartido por el Doctor Daniel Gerber
+- ,Curso  Sistema de Justicia Penal para  Escuela Judicial del Poder Judicial del Estado de Zacatecas
+- ,Curso  de Declaraciones  impartido por la ODI
+- ,curso  Control de Convencionalidad por los jueces  Dr
+- Eduardo Ferrer  Poisot
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53668/10
+
+
+## Trayectoria Academica
+
+- Fiscal Especializada para la Atención de Trata de Personas, 23 años integrante del Poder Judicial, 15 años como Jueza
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la experiencia, preparaciòn y capacidad para asumirlo y para seguir emitiendo sentencias justas e imparciales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Para resolver los conflictos legales con imparcialidad, es necesario que quien imparte la justicia, tenga suficiente preparaciòn y conocimientos en las leyes nacionales, la normativa internacional y los protocolos nacionales e internacionales, para resolver con perspectivas entre otras, de gènero, infancia y adolescencia y asì emitir decisiones justas que protejan los derechos fundamentales de todas las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La imparticiòn de Justicia debe estar revestida de igualdad para todos; considerando las condiciones particulares de cada individuo, debe ser accesible tanto en los espacios, la informaciòn y los medios disponibles para que los intervinientes sean parte de un litigio en igualdad de condiciones; la imparticiòn de justicia debe ser ejercida con independencia e imparcialidad, debiendo solo prevalecer en la decisiòn, la convicciòn de la parte litigante a la que le asiste la razòn jurìdica.
+
+
+## Propuestas
+
+- Que todos los Tribunales tengan las condiciones necesarias para que las personas con alguna discapacidad fìsica puedan accesar, como rampas, elevadores, etc, que garantice su presencia en las audiencias y frente al Juzgador o Tribunal para que puedan expresarse en igualdad con la parte contraria.
+- Que todos los funcionarios judiciales, asumamos nuestra condiciòn de servidores pùblicos, para que el trato con los justiciables, sea fino, cordial, considerado y claro, en aras de generar confianza en las instituciones y en quienes impartimos la justicia.
+- Que se juzgue con Humanidad, toda vez que las partes de un conflicto no son nùmeros ni expedientes, sino seres humanos con vivencias y experiencias distintas.
+

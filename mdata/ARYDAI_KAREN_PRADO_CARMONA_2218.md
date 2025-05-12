@@ -1,0 +1,79 @@
+Nombre Candidato: ARYDAI KAREN PRADO CARMONA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5589361017
+Correo Electronico: pradoarydai@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Anticorrupción, Ceneval, Compliance, Cumplimiento Normativo, Derecho Civil, Derecho del Trabajo, Facultad de Derecho, Lógica Jurídica, Subcontratación Laboral, Transparencia, Universidad Nacional Autónoma de México., Universidad del Valle de México
+Tags Propósito: Compromiso, Constitución, Derecho Laboral, Derechos Humanos, Dignidad Laboral, Equidad, Integridad, Justicia Laboral, Justicia Social, Paz Social, Perspectiva de Género, Responsabilidad, Sentencias Imparciales, Subcontratación., Tecnología, Teletrabajo, Trabajo Digno, Transparencia Judicial, Ética Profesional
+
+
+## Descripción del Candidato 
+
+Arydai Karen Prado Carmona es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho, respaldada por su cédula profesional y un historial académico destacado que incluye un premio CENEVAL por desempeño sobresaliente en la Universidad del Valle de México. Ha completado diversos cursos en áreas como cumplimiento normativo, transparencia, derecho laboral y anticorrupción.
+
+Su motivación para buscar el cargo público se basa en servir al país y conectar con la ciudadanía. Su visión de la función jurisdiccional se centra en la adaptación del derecho laboral a los cambios tecnológicos y sociales, buscando una justicia laboral preparada para los nuevos retos. Sus propuestas clave incluyen dictar sentencias claras e imparciales con apego a la ley, impartir justicia con perspectiva de género, y conducirse con ética profesional, integridad y responsabilidad para contribuir a la preservación de la paz social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/arydaipradoc/
+- https://x.com/ArydaiPrado
+- https://www.instagram.com/arydaiprado?igsh=MjR0MXY5OTdqNWty
+- http://www.tiktok.com/@arydaiprado
+- https://www.linkedin.com/in/arydaikpc/
+
+
+## Cursos
+
+- Formación Integral de Oficiales de Cumplimiento Normativo, Transparencia y Anticorrupción, GIAO Parlamento Abierto
+- ,Lógica jurídica y derecho civil, Universidad del Valle de México,Taller de Formación de Especialista en Compliance de Subcontratación Laboral, GIAO Parlamento Abierto
+- ,El Nuevo Derecho del Trabajo, Centro de Estudios Jurídicos Carbonell A
+- C
+- ,Anticorrupción: Introducción a Conceptos y Perspectiva Práctica, Universidad Nacional Autónoma de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54532/11
+
+
+## Trayectoria Academica
+
+- Egresada de la Facultad de Derecho de la Universidad del Valle de México con premio CENEVAL por desempeño sobresaliente
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy consciente de las necesidades del país me sentiré honrada de ser una jueza cercana al pueblo y servir a la Patria.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El derecho laboral ha tenido varias reformas como la prohibición de la subcontratación de personal, salvo para servicios especializados u obras especiales; la propia pandemia obligó a cambios importantes en materia de teletrabajo. Siendo consciente de estos cambios en la legislación, es fundamental conocer el impacto que tienen la tecnología, así como los factores que han influido en las necesidades de los empleadores para cambiar las condiciones laborales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las nuevas tecnologías y la sociedad seguirán evolucionando y el Derecho Laboral deberá seguir adaptándose a estos cambios, salvaguardando los principios de nuestra Constitución referente al trabajo digno. Por tal razón, es importante contar con una justicia laboral preparada para enfrentar estos nuevos retos.
+
+
+## Propuestas
+
+- Uno de mis principales objetivos será generar un impacto positivo en la sociedad al dictar sentencias claras, imparciales y fundamentadas, es decir, con estricto apego a Derecho, garantizando que los trabajadores y empleadores tengan un juicio justo, asegurando el respeto a la dignidad y a los derechos humanos, pues el derecho laboral es un derecho social y está vinculado a la búsqueda de un equilibrio social.
+- Otro de mis objetivos será impartir la ley de manera justa, equitativa y con perspectiva de género, siempre analizando el contexto en que se dieron los hechos, garantizando los principios de equidad y justicia social, cumpliendo con mis deberes y respetando los plazos y términos que fijen las leyes, desahogando cada etapa procesal con verdadera transparencia judicial.
+- Uno de los deberes más importantes será regirme bajo los principios y valores de ética profesional, integridad, honestidad, responsabilidad y compromiso, de esta forma, contribuiré a la preservación de la paz social y a reforzar la base moral de la Justicia y el Derecho, fortaleciendo la importancia de conducirnos con elocuencia y rectitud, valorando la gran responsabilidad que el pueblo le confiera a quien imparta justicia.
+

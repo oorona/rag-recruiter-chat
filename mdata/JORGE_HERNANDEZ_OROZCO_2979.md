@@ -1,0 +1,76 @@
+Nombre Candidato: JORGE HERNANDEZ OROZCO
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: coquefer720@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Curso, Derecho, Derecho Constitucional, Derechos Humanos, Diplomado, Especialidad, Función Jurisdiccional, Justicia Laboral, Posgrado, Reforma Laboral., Suprema Corte, Violencia
+Tags Propósito: Acceso a la Justicia, Agilidad, Cero Corrupción, Derecho del Trabajo., Derechos Laborales, Diligencia, Honestidad, Humanismo, Imparcialidad, Inclusión, Juez, Justicia, Objetividad, Rapidez, Responsabilidad, Sentencias Claras, Transparencia
+
+
+## Descripción del Candidato 
+
+Jorge Hernandez Orozco es candidato a Juez de Distrito en Puebla, postulando a través del Poder Legislativo Federal. Cuenta con maestría y una formación académica enfocada en Derecho, con posgrados en Derecho Constitucional y Derechos Humanos, además de especialidad en Derecho del Trabajo y Justicia Laboral. Su motivación para buscar el cargo se centra en el servicio a la ciudadanía y considera que la función de juez requiere conocimientos, experiencia, honestidad y transparencia.
+
+Su visión de la función jurisdiccional enfatiza la objetividad, imparcialidad y aplicación justa del derecho, considerando el contexto de cada caso. Propone una impartición de justicia ágil, gratuita y con resolución en un máximo de seis meses. Sus propuestas principales incluyen un enfoque humanista en el derecho laboral, el respeto a los derechos laborales con un enfoque inclusivo, y una cercanía con la ciudadanía a través de un acceso a la justicia diligente, transparente y con sentencias claras.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A3noz1UqJ/?mibextid=wwXIfr
+- https://x.com/JorgeHdezOrozco?t=jMkVPur6HKH5p_d2GJw5pg&s=08
+- https://www.instagram.com/jorge_hernandez_orozco?igsh=djlteHd2NTZzM3pn
+- https://www.tiktok.com/@jorge.hernndez.or4?_t=8sZL4ZlQsWk&_r=1
+
+
+## Cursos
+
+- Diplomado La Suprema Corte y los Derechos Humanos
+- ,Jornadas de Sensibilización Sobre la Reforma en Materia de Justicia Laboral
+- ,curso Los Estereotipos en la Función Jurisdiccional, Para Generar Espacios Libres de Violencia,Curso Actualización Sobre la Reforma en Materia de Justicia Laboral,Especialidad en Derecho del Trabajo y Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53547/11
+
+
+## Trayectoria Academica
+
+- Lic en Derecho, posgrado en Derecho Constitucional y Amparo concluido y curso otro posgrado en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la ciudadanía es una labor importante, requiere vocación y honradez, Ser Juez me permitirá cumplir con ello.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de juez implica conocimiento, experiencia, madurez, honestidad, transparencia, el juez debe ser incluyente, al conocer y resolver los asuntos deber hacerlo de manera objetiva, razonable e imparcial en búsqueda de la verdad y realidad de los hechos, libre de prejuicios, analizando el contexto de cada asunto con la finalidad de asegurar la aplicación del derecho de forma justa a las partes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El trámite de los asuntos y su resolución debe realizarse de forma gratuita, ágil y rápida, máximo en seis meses, de manera completa, imparcial, sin arbitrariedades y apegada a derecho. Deben dictarse sentencia analizadas de forma cuidadosa, con toda la atención sobre los hechos y el caso, claras y precisas.
+
+
+## Propuestas
+
+- Juez humanista ¿el derecho del trabajo sirve a las personas, cero corrupción y nepotismo.
+- Respeto a los derechos laborales, el juez debe ser inclusivo.
+- Juez cercano a las y los ciudadanos, con puertas abiertas, honesto y responsable, se propone Integrar y resolver los asuntos de forma diligente, rápida y sin obstáculos. Sentencias claras, sencilla y sin tecnicismos.
+

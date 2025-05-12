@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE LUIS CONTRERAS CRUZ
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6562459742
+Correo Electronico: jose.contrerasc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Educación Continua, Especialidad, Juicios Orales, Licenciatura en Derecho, Maestría en Administración Pública, PJE, SEGOB, SETEC, Teoría del Delito, Título en Trámite., UNAM
+Tags Propósito: Accesibilidad, Apertura, Ciudadanía, Constitución, Corrupción, Decisiones públicas, Derechos Humanos, Grupos vulnerables, Imparcialidad, Justicia gratuita, Lenguaje sencillo, Orientación legal., Perspectiva de género, Profesionalismo, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+José Luis Contreras Cruz es candidato a Juez/a de Distrito en Chihuahua, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Administración Pública (en trámite) y una Licenciatura en Derecho, además de diversos diplomados y una certificación en materia de teoría del delito y juicios orales. Su motivación para buscar el cargo se centra en garantizar el acceso a una justicia gratuita y accesible, con protección de los Derechos Humanos.
+
+Su visión para la función jurisdiccional y la impartición de justicia se basa en principios de gratuidad, accesibilidad, transparencia y un trato amable a la ciudadanía. Propone recibir a la ciudadanía los viernes para revisión de asuntos y a abogados de lunes a jueves, priorizando un lenguaje claro y evitando sesgos en las decisiones, las cuales serán transparentadas en un portal público. Busca una justicia apegada a la Constitución y con perspectiva de género, priorizando la protección de grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://mail.google.com/mail/u/0/#inbox
+
+
+## Redes Sociales
+
+- https://www.facebook.com/
+- https://www.instagram.com/contrerasjoseluis2024?igsh=dXNhbDE2d2V3MW81&utm_source=qr
+- https://www.tiktok.com/@josecontrerasc1902?_t=ZM-8v6aQXg4WZi&_r=1
+
+
+## Cursos
+
+- Diplomado Teoría del Delito y Juicios Orales, UNAM y PJE, Certificación SETEC, SEGOB,DIPLOMADO UNAM DIPLOMADO PJE CERTIFICACIÓN SEGOB
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52619/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Administración Pública (Título en trámite)
+- Dos diplomados, una especialidad
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque la justicia debe ser gratuita y accesible sin necesidad de abogad@, y de protección a sus Derechos Humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una justicia gratuita para quien no puede pagar abogado o abogada; Una justicia de puertas abiertas por lo cual se recibirá a la ciudadanía todos los viernes que quieran revisar su asunto y a los abogados y abogadas de lunes a jueves; Debe ser más amable por lo que escucharemos y atenderemos a la ciudadanía con lenguaje diferente al de las y los abogados. Debe ser pronta por lo que por eso escucharemos a la ciudadanía Debe estar libre de influencia y corrupción por lo que seré transparente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Será apegada a la Constitución a diferencia de muchos jueces actuales que no la han respetado; Se velará por los grupos vulnerables con perspectiva de género; Se juzgará con imparcialidad, transparencia, profesionalismo, ética y apego a los Derechos humanos; Será una justicia con un lenguaje sencillo sin perder el profesionalismo; Se evitará cualquier señalamiento de favorecimiento transparentando las decisiones en el portal público en versión pública sin revelar datos personales.
+
+
+## Propuestas
+
+- Una justicia gratuita para quien no puede pagar abogado o abogada, siendo opcional para el ciudadano el contratar abogado o no porque se le orientará para recibir una justicia gratuita.
+- Una justicia de puertas abiertas por lo cual se recibirá a la ciudadanía todos los viernes que quieran revisar su asunto y a los abogados y abogadas de lunes a jueves.
+- Una justicia amable por lo que escucharemos y atenderemos a la ciudadanía con lenguaje diferente al de las y los abogados y evitando cualquier señalamiento de favorecimiento transparentando las decisiones en el portal público en versión pública sin revelar datos personales.
+

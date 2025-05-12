@@ -1,0 +1,76 @@
+Nombre Candidato: EFRAIN FRAUSTO PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 8999440710
+Correo Electronico: efrainfraustoperez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Jurídicas, Democracia, Derecho Penal, Derecho Penal General, Derechos Humanos, FLACSO, Impuestos, Instituto de la Judicatura Federal, Justicia para Adolescentes, Posgrado, Profesionalización de la justicia., Universidad Autónoma de Chihuahua, Universidad de Guanajuato, Universidad de Salamanca
+Tags Propósito: SISE, acceso a la justicia, agilidad, análisis, calidad, capacitación, compromiso social, decisión clara, denuncia de corrupción, derechos, experiencia, imparcialidad, juez, justicia, justicia pronta., libro electrónico, parámetros, prueba, respeto, transparencia, tutela judicial
+
+
+## Descripción del Candidato 
+
+EFRAIN FRAUSTO PEREZ es candidato a Juez/a de Distrito en Guanajuato, postulándose por el Poder en Funciones. Cuenta con Maestría y diversos cursos de especialización en Derecho Penal, Impuestos, Derechos Humanos y justicia para adolescentes, incluyendo estudios en la Universidad de Guanajuato, Salamanca (España) y la FLACSO. Su trayectoria académica se centra en la profesionalización de la justicia.
+
+Motivado por su deseo de continuar ejerciendo la función judicial, Frausto Perez busca ofrecer "justicia de calidad" y se enfoca en la experiencia, el compromiso y la tutela de los derechos de todas las personas. Sus propuestas incluyen la capacitación previa para jueces, agilizar los procesos y acceso a sistemas como el SISE, y facilitar la denuncia de actos de corrupción a través de redes sociales y canales de atención inmediata.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18jZT5bre3/?mibextid=wwXIfr
+- https://x.com/efrain_frausto?s=21
+- https://www.instagram.com/efrainfraustoperez?igsh=bnk5OTVlOWl2YzNr&utm_source=qr
+- https://youtube.com/@efrainfraustoperez8045?si=FOM3HOhy3ri1kUUc
+- https://www.tiktok.com/@efrainfraustoperez?_t=ZM-8uWhio8Tysf&_r=1
+
+
+## Cursos
+
+- Maestro en Ciencias Jurídico Penales por la Universidad de Guanajuato generación  titulado
+- ,Especialista en Derecho Penal General por la Universidad de Salamanca, España, generación enero 2000,Maestro en Impuestos por la Universidad Autónoma de Chihuahua con cédula 6003614,Maestro en Derechos Humanos y Democracia por FLACSO, con cédula profesional 9645709,Postgrado en justicia para adolescentes en el Instituto de la Judicatura Federal (Escuela) cédula 12651664
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53301/11
+
+
+## Trayectoria Academica
+
+- Me he dedicado a estudiar y enseñar a favor de que México tenga mayor profesionalización de la justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Me gustaría continuar ejerciendo mi decisión de vida como juez, lo cual hago para que tengas justicia de calidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El trabajo de un juez penal implica tener conocimientos en la materia, compromiso y experiencia para realizar una labor de calidad, tutelando los derechos de todas y todos. La experiencia en la función sirve para garantizar justicia pronta y de calidad. Un juez debe prepararse siempre, no ser improvisado ni resolver a la ligera. La función jurisdiccional implica un compromiso con la sociedad. No debe ser partícipe de la impunidad, pero tampoco encarcelar injustamente a un inocente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia implica tener un conocimiento suficiente del caso, dando oportunidad a que las partes hagan valer sus reclamos, escuchándolos con respeto. Posteriormente, valorar las pruebas, conforme a los parámetros y la experiencia necesaria. Implica observar y analizar a fondo. La decisión debe ser clara y precisa, entendible por todos, de tal manera que conozcan las razones que se consideraron al decidir. Muy importante atender a las condiciones de quienes requieren ajustes.
+
+
+## Propuestas
+
+- Debe existir una capacitación para todos antes de entrar en funciones, a fin de evitar que las curvas a aprendizaje afecten los derechos de los justiciables.
+- Generar procesos más ágiles y que hagan más fácil acceder a los sistemas. El sistema actual SISE requiere una necesaria adecuación y que el libro electrónico sea un verdadero libro que todos puedan consultar fácilmente.
+- Acceso cada vez más ágil a la justicia y a los sistemas de denuncia contra los jueces corruptos, difundiendo las redes sociales y generando ligas ágiles para que las personas sean atendidas de inmediato. Hay un clamor por una mejor justicia y la forma más adecuada es acercarla a la sociedad.
+

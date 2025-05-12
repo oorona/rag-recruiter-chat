@@ -1,0 +1,77 @@
+Nombre Candidato: ROGELIO TREJO SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: rogtresan@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Control difuso de la convencionalidad, Derecho Constitucional, Función Jurisdiccional, Instituto de la Judicatura Federal, Juicio de Amparo, Nuevo paradigma constitucional, Suprema Corte de Justicia de la Nación, Universidad Nacional Autónoma de México.
+Tags Propósito: Acceso a la Justicia, Amicus Curiae, Celeridad, Constitución, Corrupción, Derechos Humanos, Eficiencia, Equidad, Imparcialidad, Jurisdicción, Justicia, Libertad, Modernización, Nepotismo, Poder Judicial., Profesionalismo, Resolución de Problemas, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Rogelio Trejo Sánchez es candidato a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal, representando a Baja California. Es Licenciado, especialista y Maestro en Derecho Constitucional por la Universidad Nacional Autónoma de México, con formación continua a través de cursos especializados impartidos por la Suprema Corte de Justicia de la Nación y el Instituto de la Judicatura Federal.
+
+Trejo Sánchez busca el cargo motivado por su vocación como abogado constitucionalista y su experiencia en defensa de sectores vulnerables. Su visión de la función jurisdiccional se centra en una justicia accesible, transparente y orientada a los derechos humanos, donde el juez actúa como garante de los derechos y resuelve con empatía. Sus propuestas incluyen la apertura del tribunal a la sociedad, la agilización de los procesos judiciales y el combate a la corrupción y el nepotismo en el Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://www.facebook.com/RogelioTrejoSanchez
+- https://www.x.com/RogelioTresaz
+- https://www.instagram.com/trejosar
+
+
+## Cursos
+
+- Implicaciones del Control Difuso de la Convencionalidad en México, Suprema Corte de Justicia de la Nación
+- ,Seminario sobre el Juicio de Amparo ante el nuevo paradigma Constitucional, organizado por la SCJN
+- ,Diplomado en Introducción a la Función Jurisdiccional, impartido por el Instituto de la Judicatura Federal
+- ,El Juicio de Amparo a un año de la entrada en vigor del nuevo paradigma constitucional, organizado por la SCJN
+- ,Lecciones de Argumentación Jurídica, organizado por el Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55342/10
+
+
+## Trayectoria Academica
+
+- Licenciado, especialista y maestro en derecho constitucional por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Por vocación de abogado constitucionalista y experiencia profesional en favor de sectores vulnerables de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser una herramienta al servicio de la sociedad, que sirva para resolver los problemas de manera oportuna, procurando compromiso con la justicia, la equidad y los derechos humanos. El juez no como un mero aplicador de la ley, sino como un garante de los derechos de todas las personas, que resuelva con sensibilidad y empatía la problemática que se le plantea. Una justicia de puertas abiertas, transparente y accesible a todas las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los jueces no como meros aplicadores de la ley, sino que, con base en principios de libertad y de justicia deben entrar en contacto con los casos reales de la vida y resolverlos procurando equidad entre las partes, lograr los equilibrios entre el los sectores vulnerables y los poderosos. Con la finalidad de permear un ánimo de verdadera justicia entre la sociedad.
+
+
+## Propuestas
+
+- Tribunal de puertas abiertas. Una de las inquietudes que existen respecto al poder judicial es su lejanía o falta de conexión con la sociedad; en ese sentido, se propone un tribunal de puertas abiertas, que tome en cuenta a los diferentes sectores de la sociedad para la toma de decisiones (una especie de amicus curiae).
+- Justicia pronta y expedita. Otra preocupación de la sociedad es la lentitud en la impartición de justicia, en ese sentido, se propone eficientar la emisión de las resoluciones, con proyectos más concisos, evitar los formulismos, incluir el uso de herramientas de modernización, a fin de lograr mayor celeridad en la emisión de las sentencias. Que las mismas sean accesibles a las personas a las que van dirigidas.
+- Combate a la corrupción y alto al nepotismo. Se deben implementar todos los mecanismos al alcance para evitar el tráfico de influencias y el abuso de poder. La contratación del personal debe atender a la capacidad profesional y no a las relaciones familiares o de amistad.
+

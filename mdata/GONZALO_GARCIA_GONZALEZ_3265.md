@@ -1,0 +1,78 @@
+Nombre Candidato: GONZALO GARCIA GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8341003245
+Correo Electronico: gon0026@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información Pública, Cursos, Derecho Administrativo, Derechos Humanos, Especialidad, Formación, Maestría., Poder Judicial de la Federación, Transparencia, UANL
+Tags Propósito: Acceso a la justicia, Comunicación ciudadana, Derechos Humanos, Expedición, Formalismo, Impartición de justicia., Justicia, Juzgador, Litigantes, Lunes ciudadano, Modernización, Puertas abiertas, Quejas, Resolución, Sentido humano, Transparencia
+
+
+## Descripción del Candidato 
+
+GONZALO GARCIA GONZALEZ es candidato a Juez de Distrito en Tamaulipas, postulándose desde el Poder Judicial de la Federación. Cuenta con Maestría y cédula profesional, habiéndose especializado en Derechos Humanos y Derecho Administrativo a través de diversos cursos y una especialidad en Derecho Administrativo. 
+
+Su motivación para buscar el cargo es reformar el sistema judicial, haciéndolo más comprensible y accesible. Propone una impartición de justicia más expedita, transparente y cercana a la ciudadanía, a través de iniciativas como "Lunes Ciudadano" y "Puertas Abiertas", además de comprometerse a dictar resoluciones en los plazos constitucionales. Su visión se centra en un enfoque más humano y en la atención de los nuevos retos del mundo moderno en la resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/gonzalo.garciag.1
+- https://x.com/GONXO94
+- https://www.instagram.com/gonzalogarciagon
+- https://www.youtube.com/@TEGRINGOshou
+- https://www.tiktok.com/@gonzalogarciag?lang=es
+
+
+## Cursos
+
+- Taller de Derecho Administrativo   UANL
+- ,Curso para Generar Espacios Libres de Violencia,Curso Básico de Formación de Personas Secretarias del Poder Judicial de la Federación  2022
+- ,Curso de Transparencia y Acceso a la Información Pública
+- ,Especialidad en Derecho Administrativo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53579/11
+
+
+## Trayectoria Academica
+
+- Me he especializado en Derechos Humanos y Derecho Administrativo mediante diversos cursos y maestrías
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser juez de Distrito para purgar los vicios del sistema judicial, hacerlo más comprensible y cercano a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como orgulloso miembro de la judicatura, destaco la excelencia con la que se guían la inmensa mayoría de mis compañeros, su dedicación y profesionalismo han sido principales en la construcción de un sistema de justicia que, si bien no es perfecto, han contribuido al avance en materia de Derechos Humanos. Tengo la visión que la impartición de justicia debe ser más expedita y con canales de comunicación con la ciudadanía para que entienda nuestra función.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser juzgador es el más alto honor que todo abogado puede tener; quiero llegar a ser Juez Federal para juzgar con sentido humano, ser claro en mis resoluciones e implementar una visión joven que atienda los nuevos retos del mundo moderno. Asimismo, destaco que el modelo anterior de impartición de justicia era algunas veces opaco, que procuraba el formalismo a la resolución de fondo. Dicho modelo tiene que cambiar, quiero ser el juez que escuche antes de dictar y que entienda antes de resolver.
+
+
+## Propuestas
+
+- Dictar el mayor número de resoluciones en el plazo que nos señala la Constitución (6 meses)
+- Lunes ciudadano. El Juez junto con su personal Secretarial, durante las primeras horas del día atenderá las dudas de los litigantes, así como de las partes del juicio, en la explanada del edifico sede como parte de una interacción directa con los ciudadanos.
+- Puertas abiertas. Todo aquel que acuda al Juzgado, tendrá la confianza que el Juez de Distrito siempre tendrá la puerta abierta para escuchar sus quejas y problemas, para que al momento de resolver su asunto, juzgue con sentido humano.
+

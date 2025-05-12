@@ -1,0 +1,76 @@
+Nombre Candidato: MARIA ISABEL MEJIA HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Argumentación Jurídica, Derecho Civil, Derecho Mercantil, Derechos Humanos, Doctora en Derecho, Especialista en Derecho, Formación de Formadores, Licenciatura en Derecho., Maestra en Derechos Humanos, Perspectiva de Género, Potestad Disciplinaria, Tecnología Jurídica, Ética Judicial
+Tags Propósito: Acceso a la Justicia, Atención al Usuario, Confianza Social, Derechos Humanos, Eficiencia, Equidad, Función Judicial, Imparcialidad, Justicia, Paz Social, Resolución de Conflictos., Responsabilidad Social, Seguridad Jurídica, Transparencia, Valores Éticos, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+MARIA ISABEL MEJIA HERNANDEZ es candidata a Magistratura de Tribunales Colegiados de Circuito en Hidalgo, postulada por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Derecho, así como diversas especializaciones y diplomados en áreas como Derechos Humanos, Argumentación Jurídica y Administración de Justicia. Su trayectoria académica y profesional se centra en el ámbito legal.
+
+La candidata expresa su aspiración a contribuir a una impartición de justicia justa, transparente y humana, con un enfoque ético y respetuoso de los derechos humanos. Sus propuestas incluyen una mayor cercanía con la sociedad, la mejora en la atención a los usuarios del sistema de justicia y la sensibilización de los servidores públicos sobre problemáticas sociales, buscando así fortalecer la confianza en las instituciones y promover una justicia equitativa.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1L4AS3RJAt/
+- https://www.instagram.com/isabel.mejia.im?igsh=YjNydDMycjB0ZXVj
+- https://www.tiktok.com/@isabel.mejia.im?_t=ZM-8v4OfGVwhPT&_r=1
+
+
+## Cursos
+
+- Curso ÉTICA JUDICIAL Y POTESTAD DISCIPLINARIA por el Consejo General del Poder Judicial España
+- ,Diplomado: Argumentación Jurídica y Aplicación de Estándares internacionales de Derechos Humanos y perspectiva de género,Curso: Formador de Formadores en Materia Oral Mercantil, Centro de Investigación y Docencia Económicas (CIDE)
+- ,Diplomado: Administración de Justicia, Universidad Autónoma del Estado de Hidalgo
+- ,Curso: Diseño del Aplicativo Tecnológico para el Tribunal Electrónico, alineado al CNPCyF, Poder Judicial de Hidalgo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53979/10
+
+
+## Trayectoria Academica
+
+- Doctora en Derecho, Maestra en Derechos Humanos, Especialista en Derecho Civil y Mercantil, Licenciada en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro contribuir a la impartición de justicia con sentencias justas, transparentes y humanas, actuando éticamente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desarrollar la actividad jurisdiccional con base en principios éticos, con un enfoque humano, digno y respetuoso, a fin de brindar resoluciones transparentes, eficientes, eficaces, asumiendo el compromiso social para tener acceso a una justicia pronta, independiente, imparcial, equitativa, cercana a la sociedad, siendo los derechos humanos su eje rector.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de Justicia debe ser generadora de confianza social en las instituciones encargadas de administrarla y en los Juzgadores que deben emitir soluciones justas y conforme a derecho, asumiendo un compromiso activo en el buen funcionamiento de todo el sistema judicial. Dado que la función del derecho es tutelar la paz y la seguridad jurídica, a fin de tener una sociedad justa y equitativa, siendo la oportunidad de disminuir las desigualdades sociales, sobre todo a los más vulnerables.
+
+
+## Propuestas
+
+- Mayor cercanía con la sociedad, recordando que la responsabilidad de los impartidores de Justicia no termina en el ámbito legal, trasciende a una responsabilidad para con la sociedad.
+- Mejorar la atención a los usuarios del sistema de Justicia, a través de una explicación fácil y sencilla del funcionamiento administrativo en los órganos que la conforman.
+- Sensibilizar a los servidores públicos sobre el entorno de los problemas sociales, para cumplir con la obligación en la protección de los derechos humanos, armonizando los valores éticos de la función judicial.
+

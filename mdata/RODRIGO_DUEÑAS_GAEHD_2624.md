@@ -1,0 +1,71 @@
+Nombre Candidato: RODRIGO DUEÑAS GAEHD
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionado, nulo, vacío
+Tags Propósito: ausencia_de_propuestas, nulo, sin_declaraciones, sin_información, sin_visión, vacío
+
+
+## Descripción del Candidato 
+
+Rodrigo Dueñas Gaedh es candidato a Jueces/as de Distrito en México, postulándose para el Poder Judicial de la Federación. La información disponible sobre su trayectoria, formación académica, motivaciones y propuestas es limitada, ya que no se proporcionaron datos en estas áreas.
+
+El candidato no ha facilitado información de contacto ni detalles sobre su curriculum vitae, estudios, cursos o visión sobre la función jurisdiccional e impartición de justicia. Su estatus en el sistema figura como "Sin captura".
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

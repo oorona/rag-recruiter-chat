@@ -1,0 +1,77 @@
+Nombre Candidato: JUAN FERNANDO VALENZUELA MENDOZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: lic.jfernandovm@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Cambio Climático, Derecho, Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado, Doctorado, Juicio de Amparo, Licenciatura, Maestría, Poder Judicial, Protección de la Naturaleza, Seminario.
+Tags Propósito: Accesibilidad, Antigüedad, Causa de pedir, Ciudadanía., Complejidad, Debido Proceso, Derechos Humanos, Eficiencia, Garantismo, Imparcialidad, Independencia, Justicia, Objetividad, Profesionalismo, Resolución, Sencillez, Suplencia de la queja, Ética
+
+
+## Descripción del Candidato 
+
+Juan Fernando Valenzuela Mendoza es candidato a Magistratura de Tribunales Colegiados de Circuito en Baja California, postulándose a través del Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con un doctorado en Derecho Penal y ha completado diversos diplomados en áreas como Derechos Humanos, Juicio de Amparo y Protección de la Naturaleza.
+
+Su motivación para el cargo público se basa en su experiencia profesional y su deseo de servir a la ciudadanía. Propone una justicia más cercana, eficiente y garantista, enfocándose en resoluciones claras, la atención de casos por antigüedad, y la debida aplicación de principios legales para proteger los derechos humanos. Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza el profesionalismo, la ética, la independencia y la accesibilidad para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JFernandoVM/
+
+
+## Cursos
+
+- Diplomado Protección de la Naturaleza, Cambio Climático y Derechos Humanos
+- ,Diplomado Derechos Humanos
+- Aproximaciones para su Defensa
+- ,Diplomado Juicio de Amparo
+- ,Seminario El Juicio de Amparo
+- ,Seminario Amparo en Materia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55006/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Especialidad Poder Judicial, Maestría en Derecho Procesal Penal y Doctorado en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con la disposición, interés y buena voluntad para servir a la ciudadanía a través de mi experiencia profesional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tengo la visión de que todo funcionario público jurisdiccional debe actuar con el mayor profesionalismo, ética, eficiencia y sencillez.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia tiene que ser independiente, libre de cualquier influencia externa de la sociedad, debe ser objetiva, sin dejar que sus creencias personales repercutan en sus resoluciones; asimismo, debe de ser imparcial, profesional, sencilla y accesible para la ciudadanía.
+
+
+## Propuestas
+
+- Una justicia más cercana a la gente, a través de resoluciones más claras y entendibles para la ciudadanía.
+- Una justicia más eficiente, evitando el rezago de asuntos, atendiendo los mismos en base a su antigüedad y no en base a su complejidad.
+- Una justicia más garantista, a través de la debida aplicación de la suplencia de la queja y la causa de pedir, procurando la protección más amplia cuando existan violaciones a derechos humanos.
+

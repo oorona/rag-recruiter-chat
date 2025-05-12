@@ -1,0 +1,79 @@
+Nombre Candidato: MARIA JOEL VEGA CABRERA
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8116372025
+Correo Electronico: mariajoel.vc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Auditoría Gubernamental, Ciberseguridad, Combate a la Corrupción, Cultura de la Legalidad, Derecho Digital, Derecho Procesal Penal, Economía Digital, Formación Profesional., Resiliencia, Transformación Digital
+Tags Propósito: Acceso a la Justicia, Capacitación, Ciudadanía, Clima Laboral, Confianza, Eficiencia, Equidad, Honestidad, Imparcialidad, Integridad, Justicia, Legalidad, Profesionalización, Rapidez, Resolución de Conflictos., Rezago Judicial, Servicio Público, Tecnologías, Transparencia
+
+
+## Descripción del Candidato 
+
+MARIA JOEL VEGA CABRERA es candidata a Jueza/es de Distrito en Nuevo León, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría y cédula profesional, complementada con cursos en áreas como derecho procesal penal, auditoría gubernamental, transformación digital, economía digital y cultura de la legalidad.
+
+Su motivación para el cargo se basa en su experiencia y compromiso con la mejora del sistema de justicia, buscando procesos más rápidos y confiables. Propone como ejes principales: reducir el rezago procesal a través de análisis y seguimiento puntual, el reforzamiento de la capacitación y profesionalización de los impartidores de justicia, y la creación de ambientes laborales que fomenten la eficiencia y el equilibrio laboral. Su visión enfatiza la necesidad de un sistema judicial cercano, imparcial, transparente y enfocado en servir a la ciudadanía con prontitud y apego a la legalidad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/majovega
+- https://www.instagram.com/majoel.vc
+- https://www.tiktok.com/@majo.vega103
+
+
+## Cursos
+
+- 1
+- Maestría en derecho procesal penal,2
+- Seminario en Auditoría Gubernamental
+- ,3
+- Transformación digital en un entorno   cambiante ciberseguridad y resiliencia,4
+- Escuela de Verano de Derecho y Economía Digital (CIDE, Universidad de Salamanca y Academia Interamericana de la UAC),5
+- Cultura de la Legalidad y combate a la corrupción
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55493/11
+
+
+## Trayectoria Academica
+
+- Enfocada, siempre buscando destacar y dejar huella en las instituciones que contribuyeron a mi formación profesional
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con experiencia, una visión y compromiso de mejorar el sistema de justicia (procesos rápidos y confiables)
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es necesario hacer cambios desde la mentalidad de quienes formamos parte del servicio público, estamos para servir y generar un clima de confianza y cercanía con quienes acuden a los órganos del poder judicial para resolver los conflictos que requieren su intervención, las personas ya van con un problema, lo menos que se debe hacer es generarles más desgaste, una función jurisdiccional que escuche, resuelva en los tiempos legales y sea imparcial (sin moches) solo atendiendo a la verdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Un impartidor de justicia debe servir a la verdad, ser justo y actuar bajo los principios de una justicia pronta y expedita, es tiempo de contar con un sistema que permita a quienes acuden a este de recibir una solución a sus conflictos de manera digna, rápidos y apegados a la legalidad, todos lo que forman parte de este sistema, contar con las capacidades necesarias para ejercer el servicio público, la profesionalización y formación es parte importante para ello.
+
+
+## Propuestas
+
+- El sistema de impartición debe cambiar, para lograr procesos más rápidos siempre apegados a la legalidad, por eso propongo primeramente terminar el rezago, a través de un análisis de las causas más antiguas, escuchar a las partes, llevar un seguimientos puntual de los procesos, realizar una planeación conjunta de audiencias y actividades necesarias en la actividad jurisdiccional, la medición a través del logro de resultados. Uso de tecnologías que permitan acercar la justicia a la ciudadanía.
+- Reforzamiento de las capacidades y profesionalización de los impartidores de justicia, contar con personal capacitado, con aptitudes y valores para ejercer el servicio público, la atención a la ciudadanía debe ser prioritaria, tratos imparciales, no discriminatorios, para generar confianza en las instituciones. El poder está para servir al pueblo y no para servirse de él y la justicia es un poder que debe ser utilizado en beneficio de quienes acuden a ella, de manera justa y equitativa.
+- Propiciar ambientes laborales que potencialicen la eficiencia y eficacia de los colaboradores, a través de climas organizacionales que permitan un equilibrio entre lo personal y lo laboral.
+

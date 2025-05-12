@@ -1,0 +1,74 @@
+Nombre Candidato: DANIELA IBETH GARCIA VARA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: danielagarciavara@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Constitucionalidad, Convencionalidad, Democracia constitucional, Derecho constitucional, Derecho internacional, Derechos humanos, Derechos humanos y garantías, Especialización judicial, Género, Igualdad, Licenciatura en Derecho., Sistema jurídico mexicano
+Tags Propósito: Capacitación, Ciudadanía, Democratización, Derechos Humanos, Expedientes como Historias de Vida., Humanización, Justicia Humanista, Lectura Fácil, Pronta Justicia, Puertas Abiertas, Sensibilización, Trato a Justiciables, Verdad
+
+
+## Descripción del Candidato 
+
+Daniela Ibeth Garcia Vara es candidata a Magistratura de Tribunales Colegiados de Circuito en Querétaro, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Democracia Constitucional, Derechos Humanos y Garantías, además de una licenciatura en Derecho. Su motivación para buscar el cargo se basa en su pasión por los derechos humanos y la búsqueda de la justicia.
+
+Su visión de la función jurisdiccional se centra en un cambio de paradigma hacia una "justicia humanista" que priorice la protección de los derechos humanos, la búsqueda de la verdad y un lenguaje accesible para la ciudadanía.  Sus propuestas incluyen la elaboración de sentencias de lectura fácil, la apertura de los tribunales para la escucha directa de los justiciables y la capacitación del personal en un trato sensible, buscando una justicia pronta y apegada al derecho humano a la verdad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18WgC4Hh43/?mibextid=wwXIfr
+- https://x.com/daniela_vara8?s=21
+- https://www.instagram.com/danie_gva?igsh=bGI1Y2ViYWVkNHZ4&utm_source=qr
+- https://www.tiktok.com/@danieigv?_t=ZM-8uxH0XsNS6Q&_r=1
+
+
+## Cursos
+
+- Defensa internacional de los derechos humanos,El nuevo juicio de amparo en el sistema jurídico mexicano,Instrumentación de reforma en materia de derechos humanos,Género como herramienta para la igualdad,Congreso de control de constitucionalidad y de la convencionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53276/10
+
+
+## Trayectoria Academica
+
+- Maestría en democracia constitucional, maestría en derechos humanos y garantías, especialidad EJ, licenciada en derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una mujer apasionada por los derechos humanos, con sensibilidad por la justicia y la búsqueda de la verdad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que la función jurisdiccional necesita un cambio de paradigma, en el que destaque la garantía de protección de los derechos humanos de las personas, lejos de formalismos, encaminada a la BÚSQUEDA DE LA VERDAD, y caracterizada por un lenguaje cercano a la ciudadanía; es decir, una JUSTICIA HUMANISTA, en la que prime el acercamiento personal entre las y los justiciables con la o el juzgador.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo que la democratización del poder judicial en México, sin duda, debe encaminarse a la HUMANIZACIÓN DE LA JUSTICIA. Es decir, dejar de ver los expedientes en los tribunales como un número y estadística más para visualizarlos como una historia de vida detrás de casa caso. En ese sentido, mi visión va encaminada a SENSIBILIZAR LA IMPARTICIÓN DE JUSTICIA, tomando en cuenta que las sentencias que se dicten tendrán una repercusión importante que trascenderá en la historia de vida de las personas.
+
+
+## Propuestas
+
+- La elaboración de sentencias de lectura fácil en cada caso, a efecto de que las personas justiciables, sin excepción, puedan entender lo que se resuelve en sus asuntos con un lenguaje sencillo y ciudadano. Lo anterior, sin prescindir de la emisión de la sentencia técnica que en su caso se dicte.
+- Un tribunal que siempre y sin excepción trabaje a puertas abiertas, en el que de forma directa y personal se escuchen de viva voz a las personas justiciables. Además, capacitación constante del personal para sensibilizarlo en el trato con las personas justiciables.
+- Una justicia pronta, siempre apegada al derecho humano a la verdad.
+

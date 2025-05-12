@@ -1,0 +1,78 @@
+Nombre Candidato: MARIN ACEVEDO PEÑA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 2299607974
+Correo Electronico: marinacevedo1979@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Penales., Comunicación escrita, Derecho, Derecho Constitucional, EFFJ, Egade Business School, Expresión oral, Habilidades de gestión, Habilidades socioemocionales, Juicio de Amparo, Liderazgo impactante, Litigación penal, Magistratura, Sistema penal acusatorio, Tec de Monterrey, UNAM, Universidad Alberto, Universidad Anáhuac
+Tags Propósito: Constitución, Magistrado, Mérito académico, acercamiento social, capacitación continua, desarrollo, esfuerzo continuo, experiencia laboral, función jurisdiccional, honestidad, independencia judicial, justicia accesible, justicia eficiente, justicia imparcial, justicia indígena, lengua madre, licenciatura en Derecho, medios de comunicación., modernización expediente electrónico, necesidad social, objetividad, perspectiva social, probidad, redes sociales, transparencia judicial, ética judicial
+
+
+## Descripción del Candidato 
+
+MARIN ACEVEDO PEÑA es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose para ejercer funciones en el Poder Judicial Federal. Cuenta con Maestría en Derecho Constitucional y Juicio de Amparo, así como en Ciencias Penales, y posee una cédula profesional. Su trayectoria académica y laboral le impulsan a buscar el cargo, argumentando que cumple con los méritos necesarios.
+
+Su visión para la función jurisdiccional se centra en la honestidad, la cercanía a la sociedad y el entendimiento de las necesidades de la población. Sus propuestas incluyen facilitar el acceso a la justicia a través de la regulación de redes sociales, la publicación de sentencias en lenguas indígenas, y la modernización del expediente electrónico para un sistema más eficiente e imparcial.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/MarC3ADn-Acevedo-PeC3B1a/61573880548994/?mibextid=wwXIfr&rdid=OQYTiW2RLcQeeY9G&share_url=https3A2F2Fwww.facebook.com2Fshare2F1C4BUAyxDo2F3Fmibextid3DwwXIfr
+- https://x.com/marinaceve1979?s=11
+- https://www.instagram.com/marin_acevedo_pena/?igsh=bmJmcjhrN3owYmN3#
+- https://www.tiktok.com/@mapjuridico?_t=ZM-8v3JL0oxbMM&_r=1
+
+
+## Cursos
+
+- Diplomado en comunicación escrita y expresión oral por la Universidad Nacional Autónoma de México, 2003
+- ,Diplomado en Litigación en el proceso penal, Universidad Anáhuac Norte México en colaboración con la Universidad Alberto,Curso inicial a la magistratura: habilidades de gestión operativa y socioemocionales
+- Ciudad de México,2023, EFFJ,Programa fortaleciendo habilidades para un liderazgo impactante, 2023, Egade Business School, Tecnológico de Monterrey,Curso Fundamentos del sistema penal acusatorio para juzgadores módulo I, San Juan, Puerto Rico, 2019
+- Ofi
+- Internacional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52180/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Maestro en Derecho Constitucional y Juicio de Amparo y Maestro en Ciencias Penales
+
+
+## Motivo para buscar el Cargo Publico
+
+Por que cumplo con los méritos académicos, experiencia laboral y honestidad que se requieren para ejercer el puesto.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Para la función jurisdiccional es necesario contar con juzgadores honestos, con probidad, que tengan mayor acercamiento a la sociedad y conozcan el desarrollo de la función, ya que el transcurso de mi vida laboral me ha permitido entender las necesidades de la población, sobretodo de los mas necesitados, que gracias al mérito de mis progenitores pude terminar una licenciatura en Derecho y posteriormente seguir en mejora continua, capacitándome hasta ocupar el cargo de Magistrado de Circuito
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi función como juzgador es el resultado del esfuerzo continuo, capacitación constante y perspectiva social; de esta manera, de permitirme continuar desempeñando el cargo, mi desempeño seguirá siendo objetivo, apegado a los principios estatuidos en la Constitución, respetando los valores que rigen a nuestra sociedad, con ética e independencia judicial, que en forma convergente serán de utilidad para servir a mi país. Siempre en búsqueda de un mejor país para nuestros hijos.
+
+
+## Propuestas
+
+- Sin lugar a dudas se deben buscar los métodos para que la Justicia llegue a todos los Mexicanos. Posiblemente regulando las redes sociales que en la actualidad es el mecanismo que más fácilmente hace llegar la información; así, una propuesta es hacer llegar la Justicia a todos los sectores sociales.
+- Que en todos aquellos asuntos donde intervenga un indígena, las sentencias que se emitan al respecto se publiquen en los medios de comunicación (radio y de ser el caso televisión), de la comunidad correspondiente, en la lengua madre y en lenguaje sencillo para que la mayor parte de la comunidad se entere de lo que se resuelve en los Tribunales y que tiene injerencia en su vida.
+- Garantizar una justicia más accesible, eficiente e imparcial; para ello propongo modernizar el uso del expediente electrónico que se maneja actualmente en el Poder Judicial Federal, pues presenta muchas deficiencias. Por tanto hay un campo para modernizarlo y facilitar la justicia a través de los medios electrónicos.
+

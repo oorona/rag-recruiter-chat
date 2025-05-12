@@ -1,0 +1,78 @@
+Nombre Candidato: LUIS FERNANDO ZUÑIGA PADILLA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6626002431
+Correo Electronico: iagenieia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: UNAM, democracia, derecho administrativo, derecho procesal penal, derechos humanos, doctorado en derecho, estudios de posgrado, formación judicial., interpretación jurídica, motivación judicial, precedente judicial, razonamiento probatorio
+Tags Propósito: Acceso a la justicia, Brecha de justicia, Certeza jurídica, Eficiencia, Estado de derecho, Gestión de casos, IA, Imparcialidad, Inteligencia artificial, Jurisprudencia., Mediación digital, Medialab, Modria, Nuevas tecnologías, Paz social, Resolución de conflictos, Servicio público
+
+
+## Descripción del Candidato 
+
+LUIS FERNANDO ZUÑIGA PADILLA es candidato a Magistrado de los Tribunales Colegiados de Circuito en Sonora, postulándose en funciones. Cuenta con un doctorado en Derecho y actualmente cursa un segundo doctorado en la UNAM, enfocado en precedente. Su trayectoria académica incluye especializaciones en derecho procesal penal, administrativo, derechos humanos y democracia, así como cursos de especialización en interpretación judicial y razonamiento probatorio.
+
+Motivado por su concepción del servicio público como un honor y responsabilidad, Zuñiga Padilla considera la función jurisdiccional como clave para el estado de derecho y la prosperidad del país, enfocándose en la pronta y eficaz impartición de justicia. Sus propuestas centrales se dirigen a reducir la brecha de acceso a la justicia mediante el uso de tecnologías como la inteligencia artificial (como apoyo a jueces e identificación de jurisprudencia), la implementación de mediación digital (basada en modelos exitosos de España y Estados Unidos), y la optimización de la gestión de casos a través de herramientas tecnológicas.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Luis Fernando Zuñiga Padilla
+- https://www.x.com/@LuisZunigaPadi
+- https://www.instagram.com/luisfernandozunigapadilla22
+- https://www.tiktok.com/luisfernandozunigap
+
+
+## Cursos
+
+- Maestro en derecho procesal penal por el Instituto de Estudios Superiores en Derecho Penal
+- ,Especialidad en derecho administrativo por la Escuela Federal de Formación Judicial
+- ,Especialidad en derechos humanos y democracia por la FLACSO México
+- ,Curso de Especialización en interpretación y motivación de las decisiones judiciales por la Universidad de Génova
+- ,Curso de Especialización en bases de razonamiento probatorio por la Universidad de Girona
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55230/10
+
+
+## Trayectoria Academica
+
+- Cuento con un doctorado en Derecho y actualmente estudio mi segundo doctorado en la UNAM, con enfoque en el precedente
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que el servicio público es un honor y una gran responsabilidad que obliga a prepararse y ser mejor cada día.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un elemento clave para el Estado de derecho y para la prosperidad de un país. En toda sociedad necesariamente se presentan conflictos que exigen que el Estado, a través de un árbitro imparcial (los jueces), resuelvan esas controversias, para que sea viable la existencia de certeza jurídica y paz social. La certeza jurídica es indispensable para que las personas puedan llevar a cabo sus proyectos de vida a largo plazo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al mismo tiempo que imparcial, la impartición de justicia también debe ser pronta. Este uno de los mayores obstáculos para el acceso a la justicia en todo el mundo. Por ello, los tribunales deben hacer el mayor esfuerzo posible por resolver las controversias lo más rápido posible. Sobre este punto, la emergencia de nuevas tecnologías como la inteligencia artificial prometen auxiliar en el cumplimiento de este objetivo.
+
+
+## Propuestas
+
+- Un problema importante es lo que se conoce como la brecha de justicia, que se refiere a la cantidad de personas que, buscando resolver un problema legal, no encuentran acceso a un sistema que imparta justicia. Mis propuestas se centran en el uso de las nuevas tecnologías para atacar esa brecha de justicia. Por ejemplo, a través de las siguientes medidas: 1. La IA como apoyo para los jueces, por ejemplo, para identificar jurisprudencia relevante, detectar patrones o identificar argumentos.
+- 2. Implementar la mediación a través de plataformas digitales, estudiando casos exitosos en otros países como el caso de Medialab en España, que redujo significativamente los tiempos de resolución en disputas laborales y comunitarias, y Modria en Estados Unidos, que combina IA con mediación humana para aumentar la tasa de resolución de conflictos entre consumidores y empresas.
+- 3. Por los administradores del sistema de justicia para mejorar los procesos y reducir costos a través de una gestión de casos más eficiente, generando también valiosos datos que ayuden a hacer más eficiente el sistema.
+

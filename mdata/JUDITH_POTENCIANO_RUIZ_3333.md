@@ -1,0 +1,75 @@
+Nombre Candidato: JUDITH POTENCIANO RUIZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 9211098026
+Correo Electronico: judy072811@outlook.es
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Competencia Laboral, Formación, Formación Instruccional, Justicia Laboral, Justicia Penal, Licenciatura en Derecho, Maestría en Derecho, Poder Judicial, Procuraduría General, Secretario, Sector Público, Universidad Popular Autónoma de Veracruz., Universidad Veracruzana, Virtual
+Tags Propósito: Acceso a la Justicia, Apadrinamiento, Capacitación, Compadrazgo, Confianza Ciudadana, Corrupción, Derechos Humanos, Eficiencia, Empatía, Equidad, Honestidad, Humanidad, Integridad, Jueces, Justicia, Nepotismo, Puertas Abiertas, Reestructuración, Reparación de Daño, Rezago, Sentencias Claras., Servidores Públicos, Sistema de Justicia, Transparencia
+
+
+## Descripción del Candidato 
+
+JUDITH POTENCIANO RUIZ es candidata a Jueza de Distrito por el estado de Veracruz, postulándose para el Poder Legislativo Federal. Cuenta con una licenciatura y maestría en Derecho, además de diversos cursos y diplomados en áreas como justicia laboral, penal, derechos humanos y calidad en el sector público.
+
+Su motivación para buscar el cargo se basa en su capacidad intelectual y humana para servir como funcionaria accesible.  Su visión de la función jurisdiccional se centra en la creación de un órgano judicial reestructurado, transparente y eficiente, que recupere la confianza ciudadana.  Entre sus propuestas destacan la apertura de los juzgados, la emisión de sentencias claras, el respeto a los derechos humanos, la cooperación entre poderes judiciales, la capacitación del personal y el combate a la corrupción, el nepotismo y la burocracia para lograr un acceso real a la justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Mtra.Judith Potenciano Ruiz
+- https://www.instagram.com/judy.prtx
+- https://www.tiktok.com/@judit.h8
+
+
+## Cursos
+
+- CURSO BASICO DE FORMACION Y PREPARACION DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACION CICLO ESCOLAR,DIPLOMADO EN NUEVO SISTEMA DE JUSTICIA LABORAL MODALIDAD: virtual DURACION: 164 HORAS 11 DE AGOSTO DE 2020 AL 09 DE DIC,CERTIFICADO DE COMPETENCIA LABORAL (EC0105) Calidad en la atención en el sector publico 12 horas Modalidad: Viirtual,MODALIDAD VIRTUAL DIPLOMADO EN ACTUALIZACION Y FORMACION INSTRUCCIONAL Modalidad: Virtual Duración
+- 128 HORAS,DIPLOMADO: TRANSICION AL NUEVO SISTEMA DE JUSTICIA PENAL IMPARTIDO POR LA PROCURADURIA GENERAL DE LA REPUBLICA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54530/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en derecho por la Universidad Veracruzana, Maestra en Derecho por la Universidad Popular Autónoma de Veracruz
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la capacidad intelectual y humana para desempeñarlo, porque sé servir y seré una funcionaria de puertas abiertas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ir hacia un órgano jurisdiccional nuevo, reestructurado, compuesto por seres humanos eficaces, eficientes , honestos y transparentes, con ello lograr que la ciudadanía vuelva a confiar en los tribunales, y en las personas que se encarguen de impartir justicia, que se conduzcan con estricto apego a Derechos Humanos, así los ciudadanos contaran con una justicia pronta , expedita, pero sobre todo real, una justicia pronta y no tardía, porque la justicia no se debe hacer esperar
+
+
+## Vision sobre la Imparticion de Justicia
+
+Todos los órganos jurisdiccionales encargados de impartir justicia, se deben regir y actuar con estricto apego a derechos humanos, de tal suerte que la justicia que se imparte sea transparente, eficaz pero sobre todo humana, con ello acceder a un estado verdadero de derecho, donde se recobre la confianza de la ciudadanía, y la reestructuración del tejido social, la justicia deber ser tan real que no quede lugar a dudas que se le dio a cada quien su derecho.
+
+
+## Propuestas
+
+- Que los jueces sean de puertas abiertas, jueces HUMANOS, éticos, honestos y capaces, que las sentencias emitidas por los jueces sean claras, entendibles para el ciudadano común, que no estén plagadas de tanto tecnicismos, con la única intención de que puedan ser digeribles para la sociedad, que no pase ni un acuerdo por una mesa de un juez que sea violatorio a DERECHOS HUMANOS, que se tenga certeza tota de que se esta castigando al culpable y que se logre una reparación de daño integral.
+- La cooperación entre los órganos del poder judicial de la federación y los locales, que se combata la CORRUPCION, el REZAGO y la lentitud en los procesos, que el personal que trabaje en los órganos se encuentre completamente capacitado tanto dogmática como jurídicamente pero sobre todo que sea humano, consciente que el justiciable lo único que busca es eso JUSTICIA, que se acabe la burocracia, y la falta de empatía de los servidores públicos, necesitamos mas HUMANIDAD en los puestos públicos.
+- Un acceso a la justicia real, pronta, pero sobre todo una justicia humana, de cara al ciudadano, una justicia para todos, y no tan solo para unos cuantos, acabar con el NEPOTISMO, el COMPADRAZGO, el APADRINAMIENTO, y la CORRUPCION, que todo el personal que ingrese sea porque está capacitado, y pueda desempeñar el cargo a cabalidad, solo así con ello podremos hablar de un verdadero SISTEMA DE JUSTICIA MEXICANO INCORRUPTIBLE, totalmente diseñado para juzgar con transparencia y equidad.
+

@@ -1,0 +1,83 @@
+Nombre Candidato: OSKAR EDWIN HERNANDEZ OLIN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5523099188
+Correo Electronico: oeho.pjf@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Curso., Derecho Administrativo, Derechos ambientales, Derechos culturales, Derechos económicos, Derechos sociales, Diplomado, Igualdad, Judicatura Federal, Licenciado en Derecho, Materia familiar, PJF, Perspectiva de género, Promedio, Responsabilidades, Secretarios, Sistema Nacional Anticorrupción, UNAM
+Tags Propósito: acceso a la justicia., atención al público, capacitación, corrupción, defensa pública, denuncia, derechos humanos, formalidades, igualdad, interés superior del niño, intérpretes, justicia accesible, justicia efectiva, justicia pronta, lenguaje comprensible, perspectiva de género, servidores públicos, transparencia
+
+
+## Descripción del Candidato 
+
+OSKAR EDWIN HERNANDEZ OLIN es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en la Ciudad de México. Cuenta con licenciatura en Derecho con mención honorífica y especialización en Derecho Administrativo por la UNAM, respaldada por diversas capacitaciones en temas como perspectiva de género, derechos económicos, sociales, culturales y ambientales, y el Sistema Nacional Anticorrupción.
+
+Su motivación para el cargo público se centra en servir a la ciudadanía resolviendo problemas jurídicos con justicia, honestidad e imparcialidad. Su visión de la función jurisdiccional aboga por una justicia accesible y sensible a las necesidades de todos, mientras que su propuesta central se enfoca en combatir la corrupción en los tribunales, acercar la justicia a la ciudadanía a través de una comunicación clara y capacitación constante de los servidores públicos, y garantizar una defensa digna y técnica para todos los justiciables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574417196758
+- https://x.com/OskarEdwinPJF
+- https://www.instagram.com/oskaredwinhernandezolin/?next=2F
+- https://www.tiktok.com/@oskaredwinhernand
+- https://www.threads.net/@oskaredwinhernandezolin
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del PJF 2015, mejor promedio de la generación 9
+- 7,Curso Juzgar con perspectiva de género en materia familiar
+- Segunda Edición
+- Instituto de la Judicatura Federal,Diplomado justiciabilidad de los derechos económicos, sociales, culturales, y ambientales
+- Instituto de la Judicatura F
+- ,Diplomado en Sistema Nacional Anticorrupción y Responsabilidades
+- Instituto de la Judicatura Federal,Curso Género como Herramienta para la Igualdad
+- Tercera Edición
+- Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53476/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho (mención honorífica), especialista en Derecho Administrativo por la Facultad de Derecho de la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo servir a todas las personas resolviendo sus problema jurídicos de forma justa, honesta, imparcial y pronta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe responder a las nuevas demandas sociales de una justicia accesible para todos, sin importar nuestros orígenes, género, conocimientos de la ley o nuestras condiciones de salud o edad. Por esto, los juzgados y tribunales deben contar con personal sensibilizado en la atención al público, para explicarles a detalle cuáles son sus derechos, qué se está haciendo en su expediente, atender las necesidades específicas de acuerdo con su condición económica, social o de salud
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la resolución de los juicios se debe priorizar la solución del fondo y evitar en lo posible su fin por aspectos formales. Los juzgadores deben ampliar su visión en la resolución de los asuntos para atender no sólo a la ley sino a las personas a quienes se dirige su decisión para satisfacer sus necesidades de justicia de forma congruente con su causa de pedir. Las sentencias deben ser comprensibles para todos y breves. Se debe juzgar protegiendo a TODOS aquéllos que se quejen con justicia.
+
+
+## Propuestas
+
+- Debemos limpiar a los tribunales donde exista corrupción. Para esto se debe implementar un procedimiento accesible, rápido y eficaz para dar atención a las denuncias por posibles actos ilícitos de funcionarios judiciales e imponer medidas de sanción y reparación idóneos. Se debe incentivar la cultura de la denuncia, así como el seguimiento puntual y breve de cualquier acto de corrupción para evitar la impunidad y la perspectiva de que el pueblo está indefenso ante los abusos de autoridades.
+- Justicia cercana. Los funcionarios judiciales deben ser más accesibles, no dar por sentado que todo usuario del sistema judicial es experto en derecho. Se debe dar acceso a todas las personas, explicarles cómo se inicia un juicio, su trámite, la manera en que concluye, sus derechos y obligaciones. Debemos quitar diversas formalidades desde que prestamos un expediente hasta en la formulación de la causa de pedir, para hacer comprensible un juicio.
+- Justicia efectiva. Capacitación constante a todos los servidores públicos de los Poderes Judiciales. Esto debe comprender con especial énfasis a las defensorías de oficio y su expansión para que todas las personas tengan al alcance una defensa digna y técnica, sin importar su poder económico. También se debe contar con intérpretes para asistir a todas las partes en su respectiva lengua o dialecto. Velar por el interés superior de niñas, niños y adolescentes, justicia con perspectiva de género.
+

@@ -1,0 +1,81 @@
+Nombre Candidato: CHRISTIAN RICARDO FRANCO REYES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5527574290
+Correo Electronico: juezchristian.franco@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, BNA, CECIJUC., Criminalística, Derechos Humanos, Derechos Lingüísticos, Doctorado en Derecho Penal, Género, Juez Penal, Licenciatura en Derecho, Maestría en Ciencias Penales, Nuevo Sistema Penal Acusatorio, Pueblos Indígenas, UNAM
+Tags Propósito: Acceso a la Justicia, Administración de Justicia, Capacitación, Ciudadanía., Comité Interdisciplinario, Derechos Humanos, Diálogo, Empatía, Equidad, Estado de Derecho, Honestidad, Imparcialidad, Justicia, Lenguaje Claro, Litigantes, Mejora Continua, Profesionalismo, Protección de Derechos, Servicio Público
+
+
+## Descripción del Candidato 
+
+CHRISTIAN RICARDO FRANCO REYES es candidato a Juez de Distrito en la Ciudad de México, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Derecho Penal y una trayectoria académica que incluye Licenciatura en Derecho por la UNAM, Maestría en Ciencias Penales y Criminalística, y especialización a través de diversos diplomados en áreas como argumentación jurídica con perspectiva de género, el Nuevo Sistema Penal Acusatorio y Derechos Humanos.
+
+Su motivación para buscar el cargo se basa en su experiencia y perfil profesional. Su visión de la función jurisdiccional se centra en la necesidad de juzgadores preparados, honestos y con vocación de servicio. Propone fortalecer la capacitación continua de los jueces, acercar la figura del juzgador a la ciudadanía a través de un lenguaje claro y accesible, y establecer un comité de diálogo entre diversos actores del sistema de justicia para identificar y solucionar problemáticas en la administración de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FHarA2H9g/
+- https://www.instagram.com/juezchristianfranco?igsh=YWYwZjloaTA1c2w0
+- https://www.tiktok.com/@juezchristianfranco?_t=ZM-8v4GvqAwDxf&_r=1
+
+
+## Cursos
+
+- Diplomado Argumentación Jurídica con Perspectiva de Género
+- Impartido por PJCDMX,Diplomado del Nuevo Sistema Penal Acusatorio
+- Impartido por la Facultad de Derecho de la Barra Nacional de Abogados
+- ,Curso Derechos Humanos y Género
+- Impartido por la Comisión Nacional de los Derechos Humanos
+- ,Curso de Preparación para aspirantes al Cargo de Juez Penal, impartido por PJCDMX
+- ,Curso de Sensibilización y Capacitación sobre la Ley General de Derechos Lingüísticos de los Pueblos Indígenas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53298/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho UNAM
+- Maestría en Ciencias Penales y Criminalística BNA
+- Doctorado en Derecho Penal CECIJUC
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que tengo el perfil y la experiencia adecuados para cumplir con tan exigente labor de forma imparcial y justa.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los juzgadores del país deben ser personas preparadas y con experiencia, pues en ellos descansa la protección de los derechos de las personas, sus decisiones tienen gran impacto y repercusión en la sociedad; por ello, la exigencia a las personas juzgadoras siempre será actuar con profesionalismo, equidad y sobre todo honestidad, lo cuál implica la necesidad de que sean personas trabajadoras, estudiosas y con vocación en el derecho para poder brindar a la ciudadanía un servicio público de calidad
+
+
+## Vision sobre la Imparticion de Justicia
+
+En un estado de derecho democrático y de derecho como el nuestro, la justicia es uno de los pilares fundamentales en los que se sostiene la convivencia social; por ello el Estado tiene la obligación brindar mecanismos adecuados y accesibles para que la ciudadanía tenga acceso a una justicia pronta, expedita e imparcial, con pleno respeto a nuestra Constitución y a los derechos humanos. El ciudadano debe estar seguro que si sufre alguna injusticia, existirá un juzgador que vele por sus derechos.
+
+
+## Propuestas
+
+- Las personas juzgadoras deben estar en capacitación constante. La función de los jueces, magistrados y ministros requiere un compromiso continuo para mantenerse a la vanguardia en todos los aspectos inherentes a su función, lo que implica la necesidad de seguirse preparando. Por ello propongo continuar de manera constante con las actividades académicas durante todo el tiempo que dure el cargo,
+- Debe cambiarse la percepción de los jueces como personas distantes a las personas que usan un lenguaje complicado, que carecen de empatía y que son autoritarios; para dar paso a una figura más cercana a la gente, que brinde la confianza de resolver dudas y planteamientos, no sólo de los litigantes, sino también del ciudadano común que busca en ellos una solución a sus conflictos, usando un lenguaje claro y de fácil comprensión para los que no son abogados.
+- Propongo crear un comité en el que intervengan tanto personas juzgadoras (jueces, magistrados y ministros), como fiscales, asesores jurídicos, defensores y personal penitenciario, en mesas de diálogo con la finalidad de detectar problemáticas y áreas de oportunidad para mejorar la administración de justicia, ya que considero que hay aspectos que se invisibilizan por ciertos sectores que generan demoras injustificadas en la impartición de justicia.
+

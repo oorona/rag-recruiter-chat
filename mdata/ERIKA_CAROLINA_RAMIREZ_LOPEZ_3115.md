@@ -1,0 +1,81 @@
+Nombre Candidato: ERIKA CAROLINA RAMIREZ LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: MUJER
+Telefono: 6692782116
+Correo Electronico: erikaralo32@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Agente del Ministerio Público, Comercio Exterior, Derecho Procesal Penal, Formación, Juicio de Amparo, Licenciatura en Derecho, Ministerio Público, Poder Judicial de la Federación, Procedimiento Penal Acusatorio, Secretario Proyectista., Secretarios, Suprema Corte de Justicia
+Tags Propósito: Accesibilidad, Bienestar Social, Celeridad, Conciliación, Contrapesos, Derechos Humanos, Empatía, Estado de Derecho, Expedientes, Grupos Vulnerables, Imparcialidad, Justicia, Legitimidad, Materia Administrativa., Materia Civil, Materia Laboral, Materia Mercantil, Materia Penal, Modernización, Reformas, Seguridad Jurídica, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Erika Carolina Ramirez Lopez es candidata a Jueza/es de Distrito en Sinaloa, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría concluida y trayectoria como Licenciada en Derecho, acreditada como Secretaria Proyectista del Poder Judicial Federal y Agente del Ministerio Público. Su motivación para buscar el cargo público se centra en brindar un gobierno honesto, accesible y que priorice la justicia pronta y la atención a grupos vulnerables.
+
+Sus propuestas incluyen fortalecer un Poder Judicial empático y con mecanismos eficaces de solución de controversias, así como garantizar acceso a una justicia efectiva, priorizando la perspectiva de género y la atención a grupos vulnerables. Además, propone modernizar la administración de justicia a través del uso de tecnologías y la creación de áreas para resolver expedientes rezagados.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573572101348
+- https://www.instagram.com/erika.ramirezlo?igsh=bnVkdzc1Y3B5NzRy
+
+
+## Cursos
+
+- Curso básico de formación y preparación de Secretarios del Poder Judicial de la Federación, 2017
+- Cédula 1241755
+- ,Curso de formación inicial para Agente del Ministerio Público, 2015
+- Instituto Estatal de Ciencias Penales Sinaloa
+- ,Programa formativo en materia de comercio exterior, 2011
+- Servicio de Administración Tributaria
+- ,Diploma por haber acreditado la Maestría en Derecho Procesal Penal (Procedimiento Penal Acusatorio), 2019
+- INDEPAC
+- ,Diplomado Juicio de Amparo 2022
+- Dirección de Casas de la Cultura Jurídica de la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54445/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, acreditada como secretario proyectista del Poder Judicial Federal y Agente del Ministerio Público
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar un gobierno honesto, de puertas abiertas, justicia pronta y perspectiva de atención a grupos vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional a nivel federal es aquella labor de Jueces, Magistrados y Ministros integrantes de uno de los tres poderes del Estado, que es el Poder Judicial Federal; y que está enfocada en la impartición de justicia bajo los principios de independencia, imparcialidad, objetividad y profesionalismo; donde principalmente, se busca garantizar los derechos humanos de todas las personas, al conocer de controversias, resolverlas y vigilar la ejecución de lo resuelto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia consiste en el actuar de los jueces al resolver las controversias de las que tienen conocimiento, estas pueden ser en diversas materias, como por ejemplo: administrativa, civil, penal, mercantil o laboral; con ello se busca garantizar el Estado de Derecho, brindando una justicia pronta y accesible que contribuya con el sentimiento de bienestar social de la población a través de una justicia efectiva, lo que a su vez favorece el desarrollo económico de un país.
+
+
+## Propuestas
+
+- Un poder judicial más empático, autocrítico, confiable y legitimado en el pueblo, que sea un real contrapeso con respecto de los otros poderes del Estado, sin intereses políticos, que busque implementar mecanismos más eficaces de solución de controversias y con acercamiento a la gente, de puertas abiertas, cuya finalidad sea garantizar los derechos humanos establecidos en la Constitución y los Tratados Internacionales que han sido ratificados por el Estado Mexicano.
+- Se debe dar acceso a una justicia más efectiva, que resuelva con mayor celeridad, priorizando en cada caso en concreto dos aspectos importantes como lo son la perspectiva de atención a grupos vulnerables y de género; y contribuir con el bienestar de la población, brindándoles así acceso a una mejor calidad de vida. Favoreciendo la creación de mecanismos que permitan resolver los expedientes nuevos bajo estos paradigmas y de esta manera contribuir con la seguridad jurídica de las personas.
+- Se debería modernizar la forma de hacer justicia, aprovechando el uso de las tecnologías; reevaluando los protocolos de integración de expedientes físicos, en los que muchas veces, innecesariamente se repite la información en distintos formatos; asimismo, al realizar esta reformulación, se podría proponer que en específico se cree un área de conciliación de expedientes rezagados en el sistema, independientemente de la materia que se trate.
+

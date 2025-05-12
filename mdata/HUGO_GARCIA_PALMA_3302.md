@@ -1,0 +1,75 @@
+Nombre Candidato: HUGO GARCIA PALMA
+Cargo: Juezas/es de Distrito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: 2464181113
+Correo Electronico: hugh.gp2@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Aguas residuales, Contexto jurídico, Derecho, Diversidad, Licenciatura, Promedio 9.2, Trato a personas., UNADM
+Tags Propósito: Constitución, TIC, acceso a la justicia, amparo, audiencias virtuales, coordinación, credibilidad, debido proceso, eficiencia, empatía, estado de derecho, imparcialidad, instituciones, integridad, juez de distrito., justicia, justicia penal, leyes, presunción de inocencia, reparación del daño, sensibilidad, tecnología, transparencia, víctimas
+
+
+## Descripción del Candidato 
+
+Hugo García Palma es candidato a Juez/a de Distrito en Tlaxcala, postulándose al Poder Judicial de la Federación. Cuenta con licenciatura en Derecho de la Universidad Abierta y a Distancia de México, con un promedio de egreso de 9.2. Su trayectoria se centra en el ámbito legal, habiendo realizado cursos en temas como trata de personas, diversidad y derecho ambiental.
+
+Su motivación para buscar el cargo se basa en su convicción de que la justicia debe ser imparcial y accesible. Propone mejorar el sistema judicial a través del uso de tecnologías de la información y la comunicación (TIC), recuperar la credibilidad del Poder Judicial, y combinar la estricta aplicación de la ley con una visión empática y comprensiva de las circunstancias individuales de cada caso.  En su visión, el acceso a la justicia, la paz y el orden social son garantizados a través de la aplicación de las normas jurídicas, y busca impartir justicia de manera imparcial, completa y oportuna.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1HBLz84pJK/?mibextid=wwXIfr
+- https://x.com/HugoGarciaPalma?s=09
+- https://www.instagram.com/hugogarciapalma/profilecard/?igsh=OW4zMWdpZncyY3lt
+- https://www.tiktok.com/@hugogarciap77?_t=ZM-8v2troCWIxq&_r=1
+
+
+## Cursos
+
+- Trata de personas, diversidad, el contexto jurídico de las descargas de aguas residuales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53173/11
+
+
+## Trayectoria Academica
+
+- Estudie la Licenciatura en Derecho en la Universidad abierta y a Distancia de México con un promedio de egreso de 9
+- 2
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi convicción de que la justicia debe ser imparcial y accesible para todos. Sere juez que inspire confianza y credibilid
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El acceso a la justicia, la paz y el orden social, a través de la aplicación de las normas jurídicas sera una garantia. Mi compromiso será, que la justicia se imparta de manera imparcial, completa y oportuna, en un marco en donde se garantices el cumplimiento de la Constitución y las leyes, que la justicia se contextualice de manera comprensible y transparente y en la medida de lo posible proponer algunas iniciativas que ben eficien la impartición de la justicia y el bien común.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Buscaré garantizar el acceso a la justicia, la protección de las víctimas y la presunción de inocencia. De igual manera que las instituciones sean transparentes y eficientes, que se garantice el debido proceso, darle protección a las victimas, en su caso presumir la inocencia de las personas, que se garantice la reparación del daño, y con todo lo anterior fortalecer las instituciones para que sean mas transparentes y eficientes en su desempeño.
+
+
+## Propuestas
+
+- El uso de la tecnologías (TIC) pueden ser un detonante en la mejora del sistema de justicia. En materia penal en particular, se podrian optimizar tiempos y costos en las audiencias si estas se realizaran de manera virtual. Así mismo, se podrían reducir los supuestos de aplazamiento si se implementara un sistema de información para el empalme y coordinación de agendas de las partes e intervinientes y asi se evite que una persona sea citada a dos audiencias distintas a la misma hora.
+- Contribuir a la recuperación de la credibilidad en el poder judicial. Mi meta no solo sera resolver casos, sino hacerlo de manera que cada decisión refleje integridad, transparencia y respeto por el estado de derecho. Ser juez no es un privilegio, sino una responsabilidad que debe ejercerse con humildad y compromiso constante. Trabajaré incansablemente para que cada ciudadano que se presente salga con la certeza de que fue escuchado, entendido y tratado con justicia.
+- Mi enfoque como juez de distrito será combinar la estricta aplicación de la ley con una visión empática de las circunstancias individuales. Creo firmemente que un juez debe ser no solo un experto en derecho, sino también un ser humano sensible a las realidades que enfrenta la sociedad. Mi compromiso es ejercer esta función con una profunda comprensión de las necesidades y expectativas de quienes acuden al sistema judicial en busca de solución y amparo.
+

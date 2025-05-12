@@ -1,0 +1,79 @@
+Nombre Candidato: ZAYRA PAOLA CASTOR GALVAN
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8712807816
+Correo Electronico: zayra.galvan@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Centros de Conciliación, Conciliación, Derecho Laboral, Derechos Humanos, Educación Continua, Juicio de Amparo, Mención Honorífica., Mérito Académico, SCJN, STPS, Suprema Corte
+Tags Propósito: Conciliación, Derecho Laboral, Derechos Laborales, Eficacia, Igualdad de Oportunidades, Imparcialidad, Inclusión, Incorruptible, Justicia Equitativa, Motivación, Objetividad., Poder Judicial, Pruebas, Realidad de los Hechos, Sentencias Justas, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Zayra Paola Castor Galvan es candidata a Jueza/es de Distrito en Coahuila, postulándose a través del Poder Legislativo Federal. Cuenta con maestría concluida y ha recibido reconocimientos por su desempeño académico. Su motivación para buscar el cargo es contribuir a un Poder Judicial con igualdad de oportunidades e impartir justicia equitativa y eficiente.
+
+Su visión se centra en ser una juzgadora imparcial, inclusiva e incorruptible, aplicando las leyes laborales de manera equitativa. Sus propuestas incluyen fomentar la conciliación en los juicios laborales, impulsar una justicia inclusiva, justa y transparente, y emitir sentencias claras y fundadas basadas en pruebas sólidas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/zayra.galvan
+- https://www.x.com/zayrapcg
+- https://www.instagram.com/zayrapcg_
+- https://youtube.com/@mszayrapaola
+- https://www.tiktok.com/zayrapcg_
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo, edición 2021, impartido por la Dirección General de Casas de la Cultura Jurídica (SCJN)
+- ,Diplomado La Suprema Corte y los Ddhh, edición 2021, impartido por la Dirección General de Casas de la Cultura Jurídica
+- ,El derecho Laboral y los Derechos de las Personas Trabajadoras, edición 2024, impartido por CONACENTROS
+- ,El Centro de Conciliación: Sus procedimientos y roles, edición 2024, impartido por CONACENTROS (STPS)
+- ,Conciliación individual, edición 2024, impartido por la Comisión Nacional de Centros de Conciliación Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52840/11
+
+
+## Trayectoria Academica
+
+- Al egresar de universidad y maestría obtuve mención honorífica, así como diversos reconocimientos por mérito académico
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ser parte de un nuevo Poder Judicial en igualdad de oportunidades e impartir una justicia equitativa y eficiente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una juzgadora imparcial, inclusiva, incorruptible, objetiva, con ética, valores y principios.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Acatar y hacer valer las leyes aplicables en el derecho del trabajo, de manera ecuánime y en igualdad de condiciones para las partes involucradas en un juicio laboral.
+
+
+## Propuestas
+
+- Atender y escuchar a las partes involucradas durante el juicio laboral, así como ser una juzgadora proactiva para procurar la conciliación entre las partes intervinientes para beneficio de las mismas, sin que haya violación o renuncia de los derechos laborales.
+- Procurar e impulsar una justicia inclusiva, justa, eficaz, sin corrupción y transparente, en la materia laboral.
+- Descubrir la realidad de los hechos, observando y valorando las pruebas debidamente desahogadas en un juicio laboral y así dictar sentencias claras, justas, fundadas y motivadas.
+

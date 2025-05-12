@@ -1,0 +1,73 @@
+Nombre Candidato: GUILLERMO JAVIER DOMINGUEZ GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9932070890
+Correo Electronico: memodominguez95@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Acusatorio, Derecho Penal, Formación, Igualdad de Género, Juicio Oral, Licenciatura en Derecho., Secretaría de Juzgado
+Tags Propósito: Derechos Humanos, Dignidad Humana, Diálogo, Equidad, Función Jurisdiccional, Humanismo, Imparcialidad, Justicia, Nepotismo, Rendición de Cuentas, Revisión del Desempeño, Sentencias Transparentes., Transparencia, Voto Popular, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Guillermo Javier Dominguez Garcia es candidato a Jueces/es de Distrito en Quintana Roo, postulándose a través del Poder Legislativo Federal. Es Licenciado en Derecho con una especialidad en Derecho Penal Acusatorio y Oral, y ha completado cursos en formación para secretarios de juzgado, oratoria, prevención de violencia y perspectiva de género.
+
+Motivado por su vocación de servicio a través de la impartición de justicia con un enfoque humanista, Dominguez Garcia busca integrarse al nuevo sistema de justicia del país. Su visión se centra en aplicar la justicia con propósito, reparando vulneraciones a derechos humanos, promoviendo la equidad y protegiendo la dignidad de los más vulnerables. Sus propuestas incluyen resolver juicios de manera justa y transparente, fomentar la comunicación entre juzgadores y ciudadanía, y asegurar una revisión imparcial del desempeño de los juzgadores, eliminando el nepotismo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1LBM5eDmk7/?mibextid=wwXIfr
+- https://www.instagram.com/guillermodominguez.mx?igsh=MWZ0dmJ0ejY1ZG05cA3D3D&utm_source=qr
+- https://www.tiktok.com/@guillermodominguezgarci1?_t=ZM-8v4kkjyJEqk&_r=1
+
+
+## Cursos
+
+- Curso de formación para personas secretarias de Juzgado de Distrito: Concurso escolarizado,Curso de Oratoria y Habilidades para el Juicio Oral,Curso para Generar Espacios Libres de Violencia,Curso de Genero para Herramienta de Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53187/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho con una especialidad en Derecho Penal Acusatorio y Oral
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero servir a mi país a través de la impartición de justicia, siempre he tenido esa vocación, con humanismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Creo que sí se puede hacer las cosas bien, por lo que quiero ser parte del nuevo sistema de justicia del país y desarrollar mi función jurisdiccional aplicando la justicia con propósito, buscando realmente un fin común para reparar la vulneración a los derechos humanos de las personas, promover la equidad y sobre todo proteger la dignidad humana de los mas vulnerables. Estoy convencido que estamos tomando el camino correcto para mejorar la función jurisdiccional en el país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estoy consciente que el sistema actual de impartición de justicia ha fallado muchas veces, por eso considero que la elección es histórica, y que esto es la nueva cara que se necesita para mejorar, pues ahora los juzgadores se enfrentaran al voto popular, obligando con eso a tener una impartición de justicia mas noble y humana, pues ahora debe de haber un compromiso mas riguroso con todos los mexicanos, y dar a conocer el trabajo para que las personas sepan como se está impartiendo justicia.
+
+
+## Propuestas
+
+- Resolver los juicios de manera justa, imparcial, con la dedicación necesaria, buscando la verdad legal, escuchando en todo momento a las partes involucradas, hacerlas sentir parte de ello, atendiendo siempre el lado humano; emitiendo las sentencias de manera transparente y de fácil lectura.
+- Los juzgadores den la cara al pueblo, y cada cierto tiempo comuniquen y expliquen a la ciudadanía el sentido de las resoluciones, que los involucren a opinar y aclarar dudas, que exista un verdadero diálogo. Procurar más difusión de que es la función jurisdiccional.
+- Que exista una revisión verdadera y sin favoritismos del desempeño de los juzgadores, así como acabar con el nepotismo, para que las resoluciones no tengan ningún tipo de influencia.
+

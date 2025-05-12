@@ -1,0 +1,85 @@
+Nombre Candidato: ERIKA SUSANA GAMA LOPEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: MUJER
+Telefono: 4495815954
+Correo Electronico: gamalopezerika@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Actuario Judicial, Amparo, Carrera Judicial, Conocimientos Notariales, Derecho, Derecho Constitucional, Derechos Humanos, Formación Judicial, Licenciatura, Litigio., Maestría, Poder Judicial
+Tags Propósito: acceso a la justicia, amparo, capacitación judicial, comunicación judicial, contexto social, derechos humanos, dignidad, eficiencia judicial, función jurisdiccional, igualdad, imparcialidad, independencia judicial, justicia humanista, justicia inclusiva, justicia real, lenguaje accesible, perspectiva de género, protección de derechos, reflexión., respeto a la ley, seriedad, transparencia, técnica, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+ERIKA SUSANA GAMA LOPEZ es candidata a Magistratura de Tribunales Colegiados de Circuito en Aguascalientes, postulada por el Poder Ejecutivo Federal. Cuenta con una trayectoria de carrera judicial y estudios de posgrado en Derecho, incluyendo una Maestría en Derecho con orientación en constitucional y amparo, así como en Derechos Humanos. 
+
+Su motivación para buscar el cargo se basa en su experiencia en el ámbito judicial y una visión humanista para establecer precedentes jurídicos. Sus propuestas centrales incluyen promover la comunicación clara y accesible de las sentencias, fomentar la capacitación constante en derechos humanos y perspectiva de género, y mejorar los tiempos de respuesta en la emisión de fallos, especialmente en Aguascalientes. Busca una función jurisdiccional independiente, imparcial, cercana a la ciudadanía y con respeto a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572991841606
+- https://x.com/SusanaGama2
+- https://www.instagram.com/erikasusanagamalopez/
+- https://www.tiktok.com/@susanagama6
+
+
+## Cursos
+
+- Licenciatura en Derecho
+- Universidad Autónoma de Aguascalientes
+- ,Maestría en Derecho con orientación en constitucional y amparo
+- Universidad Nacional Autónoma de México
+- ,Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- EFFJ
+- ,Maestría en Derechos Humanos
+- Escuela Federal de Formación Judicial
+- ,Curso de Actuarios Moralidad Virtual y examen de conocimientos para acceder al cargo de actuario judicial
+- IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53421/10
+
+
+## Trayectoria Academica
+
+- Conocimientos en notarial y litigio
+- Formación sólida en derecho constitucional y derechos humanos
+- Carrera Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy de carrera judicial, con una visión humanista para sentar precedentes jurídicos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser independiente e imparcial, como eje de legitimidad. Debe ser cercana a la gente a través de un lenguaje sencillo. Es necesario juzgar con perspectiva humanista, sin sesgos. Acceso a una justicia real y sin discriminación. Vinculación de la función jurisdiccional con la realidad social. Ser magistrada(o) implica no solo aplicar la ley, sino hacerlo con respeto a los derechos humanos, perspectiva de género y vocación de servicio público.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser técnica, basada en el conocimiento jurídico, con lenguaje accesible para todas las personas. Consciente de reconocer los contextos y desigualdades que enfrenta cada uno. Que se atreva a sentar precedentes que protejan los derechos humanos. Libre de presiones externas, políticas y económicas. Que se encuentre al alcance de todos y no de unos cuantos.
+
+
+## Propuestas
+
+- Promover una comunicación clara entre el Poder Judicial Federal y la ciudadanía, emitiendo sentencias con lenguaje accesible y espacios de explicación para personas con capacidades diferentes, y en caso de ser necesario, facilidad para la atención de personas que no hablen el idioma español.
+- Fomentar una capacitación constante en derechos humanos, perspectiva de género y justicia inclusiva, tanto para mí como para el personal. Que permita emitir sentencias donde se analice el contexto real y social de la persona que solicita la protección federal. Implementación de los protocolos que protegen los derechos humanos, a las personas vulnerables que se encuentren dentro de una categoría sospechosa.
+- Respetar el tiempo de dictado de sentencias que establece la Ley de Amparo, debido a la problemática que enfrentan los órganos jurisdiccionales en Aguascalientes, que están tardando en demasía para emitir los fallos correspondientes. Mi compromiso es con una impartición de justicia que dignifique el ejercicio jurisdiccional desde la seriedad, la técnica y la reflexión.
+

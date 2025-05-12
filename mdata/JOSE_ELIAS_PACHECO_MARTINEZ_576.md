@@ -1,0 +1,76 @@
+Nombre Candidato: JOSE ELIAS PACHECO MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5561662180
+Correo Electronico: pachequin10@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización Profesional, Derecho Dinámico., Ejecución Penal, Garantismo, Juez Constitucional, Juicios Orales, Proceso Penal, Sistema Acusatorio, Universidad Autónoma Benito Juárez, Universidad de Girona
+Tags Propósito: Acceso a la justicia., Amor por México, Confianza ciudadana, Derechos humanos, Eficiencia, Evaluación ciudadana, Funcionalidad pública, Imparcialidad, Independencia, Integridad, Poder Judicial, Protección ciudadana, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Elias Pacheco Martinez es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulando al Poder Judicial de la Federación. Cuenta con Maestría y ha realizado diversos cursos de especialización en procesos penales, función jurisdiccional y ejecución penal, tanto en México como en el extranjero (España y EUA).
+
+Su motivación para buscar el cargo se centra en contribuir con integridad y honorabilidad al Poder Judicial y fortalecer la confianza ciudadana. Su visión incluye una función jurisdiccional transparente y eficiente, con enfoque social y resoluciones en plazos razonables. Propone un Poder Judicial más cercano a la ciudadanía, la evaluación de su desempeño por parte de la misma, y una mayor transparencia en sus resoluciones y labor.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/joseelias.pachecomartinez
+- https://www.instagram.com/pachequin10?igsh=OWQ1cTFtOGwybXE2
+- https://www.tiktok.com/@jose.elias.pachec?_t=ZM-8v4sXoRQqko_r=1
+
+
+## Cursos
+
+- Especialización en Proceso Penal y Garantismo, impartido por la Universidad de Girona, España
+- ,La Función del Juez Constitucional en el Sistema Acusatorio Experiencias Compartidas, Departamento de Justicia, EUA
+- ,Especialización Proceso Penal y Garantismo, impartido por la Universidad de Girona, España
+- ,Programa de Especialización en Ejecución Penal para Operadores Especializados en el Sistema Penal Acusatorio, CJF,Diplomado en Juicios Orales, Impartido por la Universidad Autónoma Benito Juarez, en la Ciudad de Oaxaca
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54885/10
+
+
+## Trayectoria Academica
+
+- Desde que inicie mi trayectoria profesional siempre me mantengo actualizado, en razón de que el derecho es dinámico
+
+
+## Motivo para buscar el Cargo Publico
+
+El Poder Judicial de la Federación necesita personas de gran integridad y honorabilidad, que se acerquen a la ciudadanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero prioritario contribuir al fortalecimiento de la confianza ciudadana en el sistema judicial. Esto se logra a través de decisiones transparentes, con enfoque social y emitidas en un plazo razonable. Mi objetivo sería implementar mecanismos que fortalezcan la eficiencia en el manejo de los asuntos a mi cargo, siempre en apego a los principios de imparcialidad e independencia que caracterizan al Poder Judicial de la Federación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Un impartidor de justicia no se debe limitar a la práctica profesional, también debe reflejar un profundo amor por México y un gran deseo de actuar por el bien de la ciudadanía y la protección de los derechos humanos.
+
+
+## Propuestas
+
+- Un Poder Judicial de la Federación cercano a la ciudadanía.
+- Que la ciudadanía evalué nuestro desempeño
+- Que las resoluciones y la función jurisdiccional sea más transparente y pública, para que se conozca nuestro labor.
+

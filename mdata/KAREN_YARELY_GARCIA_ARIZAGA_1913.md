@@ -1,0 +1,80 @@
+Nombre Candidato: KAREN YARELY GARCIA ARIZAGA
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6642854802
+Correo Electronico: lajuezalaboral@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Auditoría, Ciencias Jurídicas, Derecho Social, Derecho del Trabajo, Docencia, Doctorado, Especialización., Formación Judicial, Gestión Judicial, Investigación, Justicia Laboral, Licenciatura en Derecho, Maestría, Seguridad Social
+Tags Propósito: Baja California, acceso a la justicia, cercanía, confianza, derechos laborales, diálogo, eficiencia, equidad, honestidad, imparcialidad, justicia laboral, justicia rápida, lenguaje claro, procesos ágiles, protección de derechos., puertas abiertas, resolución de conflictos, responsabilidad, rigor, seguridad jurídica, sensibilidad, transparencia
+
+
+## Descripción del Candidato 
+
+KAREN YARELY GARCIA ARIZAGA es candidata a Jueza/es de Distrito en Baja California, postulada por En Funciones. Cuenta con formación académica de posgrado, incluyendo un doctorado y diversas maestrías y diplomados en gestión judicial, derecho del trabajo y justicia laboral, impartidos principalmente por la Escuela Federal de Formación Judicial y la Universidad Autónoma de Baja California.
+
+Su trayectoria se centra en el derecho social, habiendo sido docente, investigadora y autora en la materia. Busca continuar en el cargo con el objetivo de garantizar una justicia laboral rápida, honesta y segura, destacando su compromiso con la transparencia, la eficiencia y la accesibilidad del sistema judicial. Sus propuestas incluyen agilizar los juicios sin comprometer la calidad, garantizar decisiones bien fundamentadas y fomentar una justicia cercana a la comunidad, con un lenguaje claro y accesible.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://linktr.ee/lajuezalaboral
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BENrd4tae/
+- https://x.com/lajuezalaboral?t=pZsTSquNng9MHW3AADbqkg&s=08
+- https://www.instagram.com/lajuezalaboral?igsh=Z3NwNjJub21ocXds
+- https://www.tiktok.com/@lajuezalaboral?_t=ZM-8uvm8K6kDEl&_r=1
+
+
+## Cursos
+
+- Maestría en Gestión Judicial, impartida por la Escuela Federal de Formación Judicial
+- ,Diplomado en materia de Seguridad Social, impartido por la Escuela Federal de Formación Judicial
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral
+- Impartida por la Escuela Federal de Formación Judicial
+- ,Maestría en Ciencias Jurídicas, impartida por la Universidad Autónoma de Baja California
+- ,Diplomado: Destrezas para la conducción y decisión en audiencias, impartido por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53282/11
+
+
+## Trayectoria Academica
+
+- Soy licenciada en derecho, especialista, maestra y doctora
+- He sido docente, investigadora y autora sobre derecho social
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco continuar como jueza laboral para garantizar justicia rápida, honesta y segura, con experiencia y compromiso.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función jurisdiccional con honestidad, imparcialidad y responsabilidad, asegurando que cada resolución sea clara, justa y bien fundamentada. Garantizar procesos ágiles y accesibles, donde todas las personas comprendan sus derechos y confíen en la legalidad de las decisiones. Aplicar el derecho con enfoque humano, escuchando a todas las partes y resolviendo con transparencia, para fortalecer la confianza en la justicia laboral.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Consolidar una justicia laboral cercana a la gente, con lenguaje claro y procesos accesibles que permitan una solución rápida y eficaz. Promover un sistema donde trabajadoras, trabajadores y empleadores sientan confianza en la equidad de las resoluciones. Agilizar procedimientos sin comprometer la calidad y fortalecer la seguridad jurídica, asegurando que cada persona obtenga una respuesta oportuna y justa en el ejercicio de sus derechos laborales.
+
+
+## Propuestas
+
+- BAJA CALIFORNIA MERECE JUSTICIA ÁGIL Y HONESTA: Mi compromiso como orgullosa cachanilla es con la gente de mi tierra: garantizar seguridad jurídica con honestidad y rapidez. Trabajaré para agilizar los juicios laborales sin comprometer la calidad de las resoluciones, asegurando que cada decisión sea clara y justa. La justicia debe ser accesible y eficiente para trabajadoras, trabajadores y empleadores, brindando certeza en cada caso con procesos transparentes y bien fundamentados.
+- JUZGAR CON HONESTIDAD, DECIDIR CON CAPACIDAD: Cada sentencia debe ser justa, imparcial y bien motivada. Mi compromiso es analizar cada caso con profundidad, aplicando el derecho con rigor y sensibilidad. La imparcialidad, el estudio constante y la responsabilidad guían mis decisiones, asegurando que sean claras, bien fundamentadas y comprensibles para todas las personas. Juzgar con honestidad es garantizar que cada resolución respete los derechos laborales y fortalezca la seguridad jurídica.
+- TU VOZ, TU JUSTICIA: Una justicia efectiva debe escuchar a la comunidad y responder a sus necesidades. Seguiré siendo una jueza de puertas abiertas, fomentando el diálogo con trabajadoras, trabajadores, empleadores y sectores clave. Promoveré un acceso más claro y sencillo a la justicia laboral, con lenguaje accesible y procesos comprensibles. Mi compromiso es impartir justicia con cercanía, asegurando que cada persona sea escuchada y que sus derechos sean protegidos con equidad y prontitud.
+

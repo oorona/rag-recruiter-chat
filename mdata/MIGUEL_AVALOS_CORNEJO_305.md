@@ -1,0 +1,72 @@
+Nombre Candidato: MIGUEL AVALOS CORNEJO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6861773869
+Correo Electronico: miguelac27@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Conflicto, Derecho Internacional, Derechos Humanos, Excelencia., Formación, Igualdad de Género, Interculturalidad, Mediación, Poder Judicial, Trayectoria Académica
+Tags Propósito: administración judicial, bienestar comunitario, celeridad, eficiencia, eficiencia temporal, empatía, función encomendada., función jurisdiccional, honestidad, imparcialidad, justicia, justicia híbrida, profesionalismo, recursos, simplificación
+
+
+## Descripción del Candidato 
+
+Miguel Avalos Cornejo es candidato a Magistrado de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal para el estado de Baja California. Cuenta con maestría y cédula profesional, además de una trayectoria académica iniciada en 2004. Ha realizado diversos cursos y diplomados en áreas como conflictos familiares, derechos humanos, derecho internacional y perspectiva de género, incluyendo formación específica del Poder Judicial de la Federación.
+
+Su motivación para el cargo público es servir a la comunidad impartiendo justicia y su visión se centra en una función jurisdiccional que resuelva conflictos con aplicación normativa y en una impartición de justicia virtuosa y eficiente. Sus propuestas incluyen la simplificación del dictado de sentencias, la separación de tareas administrativas de los órganos jurisdiccionales, y el desarrollo de una función híbrida, presencial y remota, para mejorar la eficiencia y reducir el estrés del personal.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FT76AMHmG/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Diplomado ¿Conflictos Familiares e Interculturalidad: La Mediación como Proceso de Gestión de Conflictos¿,Simposio Internacional de Derecho ¿Los Derechos Humanos en el Siglo XXI¿ UABC,Primer Congreso Internacional ¿Los Desafíos del Derecho Internacional en el Siglo XXI¿ UABC,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación con promedio de 9
+- 42 (2010),Curso de Género como herramienta para la igualdad   Escuela Judicial (2022)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52374/10
+
+
+## Trayectoria Academica
+
+- En 2004 inicié mi trayectoria académica en la profesión del derecho, que la fecha continúa en busca de la excelencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi deseo es servir a la gente, impartiendo justicia y velando por el bienestar de la comunidad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar importante de la sociedad, pues debe resolver los conflictos presentes en la sociedad mediante la aplicación de las normas vigentes, por lo que es importante que dicha función aspire a la impartición de justicia para la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es la aspiración de todo juzgador, de otorgar a cada cual lo que le pertenece, por lo que debe ser ejercida de manera virtuosa, con excelencia, profesionalismo, honestidad, prontitud y empatía.
+
+
+## Propuestas
+
+- Simplificar el dictado de sentencias para una mayor eficiencia en la impartición de justicia
+- Proponer una separación de las tareas administrativas de los órganos jurisdiccionales, de tal forma que sea el órgano administrativo quien se encargue de las mismas y el personal de los órganos judiciales se enfoque únicamente en la impartición de justicia que es la función encomendada
+- Proponer el desarrollo de la función de manera híbrida, entre presencial y remota, de modo que sea más eficiente el tiempo que invierte el personal en sus labores, evitando pérdida de tiempo, distracción y estrés que genera el traslado diario a la oficina, así como una disminución en el uso de recursos que implica el uso de las oficinas diariamente
+

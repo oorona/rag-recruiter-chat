@@ -1,0 +1,72 @@
+Nombre Candidato: JUDITH RODRIGUEZ VILLANUEVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: 9831020425
+Correo Electronico: judithrodrigueziuris@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Derecho, Derecho Electoral, Derecho Fiscal, Derechos Humanos, Discriminación, Doctorado, Género, Jurisprudencia Electoral, Justicia Electoral, Licenciatura., Maestría
+Tags Propósito: Accesibilidad, Bien Común, Confianza Ciudadana, Cultura de la Legalidad, Derechos Humanos, Equidad, Imparcialidad, Justicia, Legalidad, Magistrada Federal., Poder Judicial, Resolución de Conflictos, Sentido Humano, Sociedad, Transparencia
+
+
+## Descripción del Candidato 
+
+JUDITH RODRIGUEZ VILLANUEVA es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en Quintana Roo. Cuenta con formación académica de nivel doctorado en Derecho, complementada por cursos en Derechos Humanos, argumentación jurídica y justicia electoral. Su motivación para el cargo público se basa en su deseo de contribuir con un Poder Judicial justo, humano y cercano a la sociedad.
+
+Su visión de la función jurisdiccional y la impartición de justicia se centra en la aplicación de la ley con sentido humano, perspectiva de derechos humanos y acceso a la justicia para todos. Sus propuestas principales incluyen impulsar el diálogo entre el Poder Judicial y la sociedad, así como fortalecer la confianza ciudadana a través de una justicia accesible, clara y eficaz. Su curriculum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/judithrodriguez
+- https://www.x.com/JudithC10981
+
+
+## Cursos
+
+- Seminario Virtual Derechos Humanos y Grupos en Situación de Discriminación,Curso denominado Argumentación e Interpretación en Materia Electoral,Curso en Argumentación e Interpretación Jurídica,Curso denominado Jurisprudencia Electoral,Taller de Género y Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55262/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestra en Derecho Fiscal, Especialista en Justicia Electoral y Doctorante en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo aportar mi experiencia y compromiso para tener un Poder Judicial justo, humano y cercano a la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como aspirante a Magistrada Federal del Vigésimo Séptimo Tribunal Colegiado de Quintana Roo, sostengo una visión jurisdiccional profundamente comprometida con la justicia como un valor vivo, cercano y al servicio de las personas. Para mí, impartir justicia no es solamente aplicar la norma, sino hacerlo con sentido humano, con perspectiva de derechos humanos y con la firme convicción de que la verdad y el bien común deben ser el faro que guíe cada resolución judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una impartición de justicia eficaz debe ser cercana, imparcial y con profundo sentido humano. Mi visión es un Poder Judicial accesible, transparente y sensible a las realidades sociales, donde cada resolución se base en la legalidad, pero también en la equidad y el respeto a los derechos humanos. La justicia no debe ser un privilegio, sino un derecho tangible para todas y todos.
+
+
+## Propuestas
+
+- Impulsar el diálogo entre el Poder Judicial y la sociedad, promoviendo la cultura de la legalidad y la transparencia en los procesos judiciales.
+- Fortalecer la confianza ciudadana en el Poder Judicial, impulsando una justicia accesible, clara y eficaz, que resuelva con prontitud y sensibilidad los conflictos jurídicos.
+- No proporcionó
+

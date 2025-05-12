@@ -1,0 +1,87 @@
+Nombre Candidato: DANIELA MARISOL SANCHEZ CRUZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5663685540
+Correo Electronico: danielamarisolsanchezcruz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho Constitucional, Derecho Indígena, Derechos Humanos, Diplomado, Formación, Instituto de la Judicatura Federal., Juicio de Amparo, Jurisprudencia, Licenciatura en Derecho, Maestría, Poder Judicial de la Federación, Suprema Corte de Justicia de la Nación, Tribunal Electoral
+Tags Propósito: acceso a la justicia, acoso sexual, amparo, corrupción, derechos humanos, discapacidad, eficiencia, independencia, infancia, justicia, nepotismo, perspectiva de género, poder judicial, pueblos indígenas, rigor jurídico., transformación, transparencia, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+Daniela Marisol Sánchez Cruz es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Licenciada en Derecho por el ITESO y Maestrante en Derecho Constitucional y Derechos Humanos por la Universidad Panamericana, cuenta con formación continua en áreas como el juicio de amparo, interpretación jurídica y derechos humanos, avalada por instituciones como la Suprema Corte de Justicia de la Nación y el Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo público es aportar su experiencia en la transformación de la justicia mexicana. Su visión se centra en ejercer la función jurisdiccional con rigor técnico, eficiencia, independencia, transparencia y sensibilidad social, poniendo a las personas en el centro. Sus propuestas incluyen el cumplimiento de la ley en favor de sectores vulnerables, la aplicación de protocolos específicos para juzgar con perspectiva de género, infancia, discapacidad, interculturalidad, entre otras, así como combatir la corrupción y el nepotismo dentro del Poder Judicial, buscando un acceso a la justicia más amplio y equitativo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Daniela.MarisolSC/
+- https://x.com/marcholcruz?s=21&t=AQdh8rTrZtFot8IfKgjBkw
+- https://www.instagram.com/daniela.marisolsc?igsh=NThlM2x5MXZobnY3
+- https://www.tiktok.com/@daniela.marisolsc?_t=ZM-8v2lV1CORxm&_r=1
+- https://www.linkedin.com/in/danielamarisolsanchezcruz/
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios y Secretarias del Poder Judicial de la Federación
+- ,Diplomado Juicio de Amparo
+- Suprema Corte de Justicia de la Nación
+- Jalisco
+- ,Curso interpretación y argumentación jurídica
+- Escuela judicial electoral del Tribunal Electoral del PJF
+- ,Diplomado ¿Programa de actualización sobre la Jurisprudencia de la Corte  Instituto de la Judicatura Federal
+- ,Jornadas de Estudio ¿Derechos de los Pueblos y Comunidades Indígenas
+- Un panorama general¿
+- Instituto Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55480/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por el ITESO
+- Maestrante en Derecho Constitucional y Derechos Humanos
+- Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Me siento con la responsabilidad de aportar mi experiencia y valores para la transformación de la justicia mexicana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional se debe ejercer con el mayor rigor técnico y jurídico, con eficiencia, independencia y compromiso por la transparencia. Pero sobre todo con sensibilidad social y atención a las necesidades de justicia. Debemos poner en el centro a las personas y responder de forma oportuna, ética y con enfoque de derechos humanos a las necesidades de la sociedad plasmadas en sus demandas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La transformación de la impartición de justicia no debe limitarse a un cambio de la institución, ni de la forma de elección de los juzgadores. Debe estar orientada en recuperar las virtudes de los juzgadores y la confianza del pueblo mexicano. La justicia no puede seguir siendo percibida como un privilegio, como algo distante de la realidad. Debe ser accesible, cercana, real y sobre todo, justa.
+
+
+## Propuestas
+
+- Vamos a hacer cumplir la ley en favor de los sectores vulnerables, aplicando rigurosamente los protocolos para juzgar con perspectiva de género; perspectiva de infancia y adolescencia; en casos que involucren derechos de personas con discapacidad; para juzgar casos de personas mayores; y, perspectiva intercultural, personas, pueblos y comunidades indígenas.
+- Vamos a hacer cumplir la ley con la  de la  la cual permite al juez corregir o completar los argumentos de quien pide el amparo. Por ejemplo, en favor de los ejidatarios y comuneros, personas pensionadas, en beneficio de los trabajadores, de menores de edad, personas con discapacidad, indígenas y cuando se afecte el interés superior del menor.
+- Vamos a construir un poder judicial en el que la justicia esté al alcance de todas y todos, no solo de los que tienen dinero. Vamos a combatir el nepotismo, la corrupción y el acoso sexual desde adentro.
+

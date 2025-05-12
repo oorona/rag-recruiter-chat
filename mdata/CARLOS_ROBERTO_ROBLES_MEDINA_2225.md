@@ -1,0 +1,74 @@
+Nombre Candidato: CARLOS ROBERTO ROBLES MEDINA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: crrm58@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Competencia Judicial Internacional, Derecho, Derecho Fiscal, Fideicomisos, Juicio de Amparo, Reconocimiento de Resoluciones, Reglamento 1215/2012, Suprema Corte de Justicia, UAB, Universidad Panamericana., Universidad de Guadalajara, Unión Europea
+Tags Propósito: acceso a la justicia, agilización, automatización, capacitación, ciudadanía, comunicación, confianza institucional, consolidación, derechos humanos, efectos sociales, eficiencia, equidad, estado de derecho, imparcialidad, justicia, justicia cercana, legalidad, procesos judiciales, realidad social., resolución de conflictos, simplificación, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Roberto Robles Medina es candidato a Juez/a de Distrito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con estudios de Maestría en Derecho Fiscal y una cédula profesional, habiendo cursado diplomados en Juicio de Amparo, Fideicomisos y temas de competencia judicial internacional en la Suprema Corte de Justicia de la Nación.
+
+Su motivación para el cargo se centra en garantizar una justicia cercana, ética y que fortalezca el estado de derecho. Propone simplificar y agilizar los procesos judiciales mediante tecnología, fortalecer la capacitación jurídica y social de los juzgadores, y establecer canales de comunicación directa entre juzgadores y ciudadanía. Su visión de la función jurisdiccional se basa en un sistema eficiente, accesible y transparente que consolide el estado de derecho y proteja los derechos de los ciudadanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/carlosrobertoroblesmedina/
+- https://x.com/roblescarlos04
+- https://www.instagram.com/roblescarlos04/
+- https://www.tiktok.com/@roblescarlos04?lang=es
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo   Suprema Corte de Justicia de la Nación,Diplomado en Fideicomisos,Seminario de Competencia Judicial Internacional, Reglamentos de la Unión Europea,Seminario de Reconocimiento y Ejecución de Resoluciones, Reglamento 1215/2012 Bruselas de la Unión Europea
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54476/11
+
+
+## Trayectoria Academica
+
+- Abogado Universidad de Guadalajara, Grado en Derecho UAB y Maestro en Derecho Fiscal por la Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Garantizar justicia cercana, abierta y ética que fortalezca el estado de derecho con imparcialidad y compromiso social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional se tiene que garantizar mediante un sistema eficiente, accesible y transparente que no solo proteja a los derechos de los ciudadanos, sino que tambien garantice la consolidación del Estado de Derecho. Como juez de distrito, busco asegurar que cada resolución esté basada en los principios de legalidad, imparcialidad y equidad, fomentando una relación justa y equilibrada entre el Estado y los gobernados, sin dejar de lado los efectos sociales y humanos de las sentencias.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en la impartición de justicia cercana, imparcial y efectiva, que no resuelva solo conflictos, sino que tambien fortalezca la confianza en las instituciones. Mi compromiso es actuar con transparencia, legalidad, honradez y en servicio de la sociedad, asegurando el respeto a los derechos humanos. Mi objetivo es impartir justicia atendiendo las causas de fondo y con ello brindar soluciones reales que contribuyan al fortalecimiento de un sistema de justicia justo y accesible para todos.
+
+
+## Propuestas
+
+- SIMPLIFICACIÓN Y AGILIZACIÓN DE PROCESOS JUDICIALES: mediante la implementación de tecnología y procesos de automatización, se propone agilizar los procesos judiciales y con ello, reducir los plazos en los que se resuelven los procedimientos, disminuyendo la burocracia y aumentando la productividad de los organismos jurisdiccionales en la resolución de conflictos. Esto simplificara los procesos y aliviará la carga de los tribunales.
+- FORTALECIMIENTO DE CAPACITACIÓN JURÍDICA Y SOCIAL: capacitación integral a los juzgadores, que abarque no solo aspectos jurídicos, sino también elementos humanos, económicos y sociales para generar una comprensión más profunda de la diversidad de situaciones y problemáticas a las que se enfrentan los gobernados. Esto otorgará a los juzgadores bases solidas para emitir resoluciones no solo desde un aspecto jurídico, sino tambien cercanas a las realidades sociales y humanas de los conflictos.
+- ESTABLECER CANALES DE COMUNICACIÓN ENTRE LOS JUZGADORES Y LA CIUDADANIA: con el fin de que los ciudadanos puedan tener acceso directo a los juzgadores, se propone la implementación de audiencias abiertas o sesiones informativas periódicas que les permitan interactuar directamente con los impartidores de justicia en un entorno de confianza y equidad, sin depender de intermediarios, procedimientos complejos o tramites incensarios, garantizado con ello el acceso de los ciudadanos a sus juzgadores.
+

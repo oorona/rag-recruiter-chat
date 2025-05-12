@@ -1,0 +1,72 @@
+Nombre Candidato: DIANA LAURA CARRANZA BUENRROSTRO
+Cargo: Juezas/es de Distrito
+Entidad: COLIMA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: diana@dianalauracarranza.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Certificación, Conciliación, Derecho Laboral, Derechos Humanos, Diplomado, Educación, ITECCE Manzanillo, Mediación, PJE, Resolución de conflictos, Servicio Federal de Mediación y Conciliación., UNIVER Colima
+Tags Propósito: Accesibilidad, Armonía laboral, Bienestar social, Capacitación, Conciliación, Confianza ciudadana, Derechos laborales, Eficiencia, Imparcialidad, Justicia cercana., Justicia laboral, Legalidad, Lenguaje accesible, Mediación, Modernización, Reformas legislativas, Resolución de conflictos, Transparencia
+
+
+## Descripción del Candidato 
+
+Diana Laura Carranza Buenrostro es candidata a Jueza/es de Distrito en Colima, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría en Derecho Laboral, complementada por certificaciones en procedimientos alternativos de solución de conflictos, técnicas de conciliación y educación en derechos humanos. Su trayectoria académica incluye estudios en la Universidad Universitaria de Colima y la Universidad ITECCE Manzanillo.
+
+La candidata busca este cargo para contribuir a un sistema judicial imparcial, accesible y transparente, enfocándose en la justicia laboral. Sus propuestas principales incluyen promover la conciliación como método prioritario para resolver conflictos, desarrollar programas de capacitación continua para el personal judicial y garantizar la claridad y accesibilidad de las resoluciones judiciales. Su visión se centra en una impartición de justicia que respete los derechos laborales, fortalezca la confianza institucional y promueva un entorno laboral armónico.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.dianalauracarranza.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16MX7rkkAn/?mibextid=wwXIfr
+- https://www.tiktok.com/@dianalauracarranza
+
+
+## Cursos
+
+- CERTIFICACIÓN COMO ESPECIALISTA EN PROCEDIMIENTOS ALTERNATIVOS DE SOLUCIÓN DE CONFLICTOS POR EL PJE,CERTIFICACIÓN DE COMPETENCIA LABORAL EN MATERIA DE CONCILIACIÓN PARA LA SOLUCIÓN DE CONFLICTOS EN MATERIA LABORAL EC1374,CERTIFICACIÓN EN TÉCNICAS DE CONCILIACIÓN LABORAL POR PARTE DEL SERVICIO FEDERAL DE MEDIACIÓN Y CONCILIACIÓN DE EUA,DIPLOMADO ¿EDUCACIÓN PARA LA PAZ Y DERECHOS HUMANOS¿, POR LA COMISIÓN NACIONAL DE LOS DERECHOS HUMANOS,CURSO CONTRA LA MUJER EN EL ÁMBITO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52604/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA POR LA UNIVERSIDAD UNIVER COLIMA Y MAESTRÍA EN DERECHO LABORAL POR LA UNIVERSIDAD ITECCE MANZANILLO
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a la construcción de un sistema judicial imparcial, accesible, transparente y cercano a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es ser un referente de justicia laboral eficiente, imparcial y accesible, para garantizar la protección de los derechos de los trabajadores y empleadores mediante procesos transparentes y resoluciones ágiles y justas, contribuyendo al bienestar social, y así fortalecer la confianza ciudadana, promoviendo un entorno laboral armónico y el respeto a los derechos laborales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una impartición de justicia accesible, imparcial y eficiente, que garantice el respeto a los derechos laborales, promueva la conciliación como mecanismo prioritario para la solución de conflictos y fortalezca la confianza en las instituciones. Comprometida con la transparencia, la equidad y la modernización, busca asegurar un entorno laboral justo y armónico, donde prevalezca el diálogo y la legalidad en beneficio de trabajadores y empleadores.
+
+
+## Propuestas
+
+- Promover la conciliación como vía principal para resolver conflictos laborales, mayor capacitación en técnicas de mediación y campañas de difusión. Esto reduciría la carga judicial y fomentaría acuerdos justos y satisfactorios para ambas partes.
+- Desarrollar programas de capacitación constante sobre las ultimas reformas legislativas y técnicas de resolución de conflictos, para todo el personal del órgano judicial. Esto aseguraría que todos los involucrados en la impartición de justicia estén actualizados y cuenten con las herramientas necesarias para tomar decisiones mas justas y fundamentadas.
+- Garantizar que las resoluciones judiciales sean claras, precisas y comprensibles para todas las partes, evitando tecnicismos innecesarios y asegurando un lenguaje accesible para los trabajadores y empleadores, garantizando con ello una justicia mas cercana a la gente.
+

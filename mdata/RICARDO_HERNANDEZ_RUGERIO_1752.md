@@ -1,0 +1,73 @@
+Nombre Candidato: RICARDO HERNANDEZ RUGERIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: 2462208369
+Correo Electronico: ricardo.hdz.rugerio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Artículo Primero Constitucional., Competencias Básicas, Derecho, Derecho Fiscal, Derecho Internacional Privado, Derechos Humanos, Diplomado, Especialidad, Género, Igualdad, Licenciatura, Maestría, Poder Judicial de la Federación, Violencia, Órganos Jurisdiccionales
+Tags Propósito: Atención ciudadana, Compromiso social, Constitución, Corrupción, Derechos humanos, Eficiencia, Equidad, Imparcialidad, Impunidad, Justicia, Pronta resolución, Razon jurídica, Saneamiento administrativo., Sensibilidad humana, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Ricardo Hernandez Rugerio es candidato a Magistratura de Tribunales Colegiados de Circuito en Tlaxcala, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Fiscal y formación adicional a través de diplomados en Competencias Básicas para Órganos Jurisdiccionales, Derecho Internacional Privado y Derechos Humanos. Su trayectoria académica se complementa con cursos sobre prevención de violencia e igualdad de género.
+
+El candidato manifiesta su interés en el cargo argumentando poseer la educación, ética, capacidad y sensibilidad humana necesarias para impartir justicia. Su visión para la función jurisdiccional se centra en un órgano cercano a la ciudadanía, comprometido con los derechos humanos y la resolución de casos con base en la razón jurídica. Sus propuestas incluyen la atención ciudadana con sensibilidad humana, la reducción de tiempos de resolución de juicios, la erradicación de la corrupción y la promoción de una distribución equitativa de las labores dentro del órgano jurisdiccional, fomentando el compromiso social de los juzgadores.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A7baewsb4/
+- https://www.instagram.com/ricardo.hernandez.rugerio?igsh=dDBxY3p6anZ1aTIx
+- https://www.tiktok.com/@ricardo_hernandezr?_t=ZM-8uZIXZbYpbZ&_r=1
+
+
+## Cursos
+
+- Diplomado en Competencias Básicas para Órganos Jurisdiccionales,Diplomado en Derecho Internacional Privado,Diplomado en Derechos Humanos a la Luz del Artículo Primero Constitucional,Curso para Generar Espacios Libres de Violencia,Curso de Género como Herramienta para la Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53390/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciado en Derecho, Maestro en Derecho Fiscal y tengo dos especialidades por el Poder Judicial de la Federación
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser magistrado porque cuento con educación, ética, capacidad y sensibilidad humana para impartir justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un órgano jurisdiccional que se perciba cercano a la gente, por lo que el personal a mi cargo deberá asumir un compromiso social para la resolución de los casos asegurando que en todo momento asista la razón jurídica y no se presente ningún tipo de sesgo que pongan en riesgo la impartición de justicia. Este órgano modificará la función y estructura administrativa para asegurar la atención a las personas sin distingos, procurando en todo momento el respeto a los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un órgano que se distinga por contribuir a la sana convivencia social, a través de la correcta aplicación del derecho, donde prevalezca la justicia por encima de intereses ajenos a la ley. La población tendrá la seguridad de que cada resolución obedecerá a criterios emanados de la razón jurídica sin atentar contra los derechos humanos que establece la Constitución, asegurando desterrar la impunidad y cumplir con la máxima en la impartición de justicia que debe ser pronta y expedita.
+
+
+## Propuestas
+
+- Actuar con sensibilidad humana como eje rector para la atención ciudadana e impartición de justicia. Lo primero serás tú.
+- Reducir los tiempos de resolución de juicios y con ello dar cumplimiento al principio constitucional de justicia pronta y expedita. Así como erradicar las prácticas de corrupción e impunidad en el órgano jurisdiccional.
+- Promover al interior del órgano jurisdiccional una distribución equitativa de las labores que faciliten la impartición eficiente de justicia en respuesta a la ciudadanía. Además de impulsar el compromiso social de los juzgadores.
+

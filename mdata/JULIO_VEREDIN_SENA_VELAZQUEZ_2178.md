@@ -1,0 +1,77 @@
+Nombre Candidato: JULIO VEREDIN SENA VELAZQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adolescentes, Capacitación, Ciencia Jurídico Penal, Derecho, Docencia, Doctorado, Ejecución Penal, Especialización., Formación Judicial, INACIPE, Juez Constitucional, Justicia Penal, Maestría, Sistema Acusatorio, UNAM
+Tags Propósito: acceso a la justicia, amparo, carrera judicial, certificación profesional, colaboración institucional, derechos humanos, equidad, evaluación del sistema de justicia, formación especializada, grupos vulnerables, independencia judicial, justicia eficiente, justicia social, operadores del sistema de justicia., políticas judiciales, procesos orales, profesionalismo, seguridad jurídica, sensibilidad social, transparencia
+
+
+## Descripción del Candidato 
+
+JULIO VEREDIN SENA VELAZQUEZ es candidato a Jueces/as de Distrito en la Ciudad de México, postulando desde "En Funciones". Cuenta con una formación académica sólida, incluyendo una Maestría en Derecho y actualmente es doctorante en la UNAM. Su trayectoria se centra en el ámbito penal, con especialización en justicia para adolescentes y el sistema acusatorio, evidenciado por diversos cursos y capacitaciones en la materia.
+
+Su motivación para buscar el cargo es proporcionar soluciones legales basadas en el conocimiento jurídico y la protección de los derechos humanos. Su visión de la función jurisdiccional enfatiza la necesidad de un Poder Judicial sensible a las necesidades sociales, especialmente de grupos vulnerables, buscando fortalecer la colaboración interinstitucional.  Entre sus propuestas destacan la transformación del sistema de amparo para agilizar procesos, el rediseño del sistema de carrera judicial federal y la implementación de un sistema de certificación para profesionales del derecho.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/julioveredinsena
+- https://x.com/julioveredin
+- https://www.instagram.com/julioveredinsena/
+- https://www.tiktok.com/@julioveredinsena?lang=es
+
+
+## Cursos
+
+- Especialidad en Justicia Penal para Adolescentes, Escuela Federal de Formación Judicial
+- ,Docente certificado en el Sistema de Justicia Penal Acusatorio, SETEC,Capacitación en la función del Juez Constitucional en el Sistema Acusatorio Experiencias Compartidas, OPDAT,Programa de Especialización en Ejecución Penal para Operadores Especializados en Sistema Penal Acusatorio, CJF,Diversos cursos en materia penal, sistema acusatorio, sistema ejecución de penas, justicia para adolescentes, etc
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55090/11
+
+
+## Trayectoria Academica
+
+- Lic
+- Derecho UNAM; M en C Penales con Esp en Ciencia Jurídico Penal INACIPE; Mast
+- Derecho UNAM; Doctorante Derecho UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Proporcionar seguridad en la solución de asuntos legales con conocimiento jurídico en la protección de derechos humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La sociedad exige un PJ sensible a las necesidades sociales, especialmente de grupos vulnerables: niños, adultos mayores, indígenas, migrantes, personas privadas de libertad. Es urgente fortalecer la colaboración con instituciones gubernamentales diseñando políticas judiciales efectivas, priorizando la equidad. Un juez debe combinar experiencia jurídica con sensibilidad social, resolviendo las necesidades reales para construir una sociedad justa y respetuosa de los derechos fundamentales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser cercana y eficiente. Combatir su percepción de indiferencia exige agilizar procesos, aumentar el número de jueces y garantizar independencia. Priorizar la escucha activa, resolver casos con prontitud y proteger derechos de grupos vulnerables. Solo así se fortalecerá la confianza en un sistema justo y accesible para todas las personas.
+
+
+## Propuestas
+
+- Transformar el sistema de amparo para garantizar justicia ágil y transparente. Implementando procesos orales en la resolución de juicios, eliminando trámites burocráticos. Esto permitirá reducir tiempos, dar certeza a las partes y priorizar la protección de derechos fundamentales.
+- Rediseñar el sistema de carrera judicial federal y expandirlo a nivel nacional a todos los poderes judiciales locales como base en la formación de especialista en la impartición de justicia, a fin de dar seguridad a la sociedad en la solución de los casos legales y de la impartición de justicia.
+- Instituir la certificación de todos los profesionistas en derecho y evaluaciones periódicas, que permitan fortalecer la calidad en el sistema de justicia y generar excelencia y profesionalismo en todos los operadores del sistema de justicia.
+

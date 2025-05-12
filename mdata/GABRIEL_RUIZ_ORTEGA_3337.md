@@ -1,0 +1,76 @@
+Nombre Candidato: GABRIEL RUIZ ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2281952850
+Correo Electronico: gaboruiz25@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho Constitucional, Derecho Penal, Derechos Humanos, Doctorado en Derecho, Experiencia Judicial., Justicia Laboral, Justicia Transicional, Poder Judicial de la Federación
+Tags Propósito: Acceso a la información, Actualización constante, Agilidad judicial, Burocracia, Criterios judiciales, Digitalización, Empatía, Expeditez, Justicia cercana, Justicia social, Servicio público, Tecnología, Transparencia, Trámite judicial., Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gabriel Ruiz Ortega es candidato a Juez/a de Distrito en Veracruz, postulando a un cargo en las funciones del Poder Judicial de la Federación y Poder Legislativo Federal. Cuenta con un doctorado en Derecho y 14 años de experiencia en el Poder Judicial de la Federación. Su motivación para buscar el cargo público se basa en su vocación de servicio y su deseo de contribuir al bienestar del país.
+
+Su visión de la función jurisdiccional se centra en una justicia más cercana, empática y sensible a las necesidades de la sociedad, especialmente de los grupos vulnerables.  Propone como ejes principales de su candidatura: la transparencia en los criterios de resolución de jueces y magistrados, la agilización de los procesos judiciales y la digitalización de los juicios para facilitar el acceso a la información y el seguimiento de los casos.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/gabrielruiz_o
+- https://www.instagram.com/gabrielruizor
+- https://www.tiktok.com/@eljuez_contoga
+
+
+## Cursos
+
+- Doctor en Derecho por el Instituto de Estudios Superiores en Derecho Penal,Maestro en Derecho Constitucional y Amparo por la Universidad Euro Hispanoamericana,Especialidad en Materia de Justicia Laboral por la Escuela Federal de Formación Judicial,Diplomado en Derechos Humanos por la Universidad Iberoamericana,Diplomado en Justicia Transicional por el Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54381/11
+
+
+## Trayectoria Academica
+
+- Tengo 14 años de experiencia en el Poder Judicial de la Federación
+- Actualmente tengo el grado de Doctor en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo una vocación por el servicio público, siempre he pensado que ayudar a las personas es ayudar a nuestro país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional requiere de personas juzgadoras más cercanas a la sociedad, empáticas y sensibles. Estamos frente a una oportunidad en donde impere la justicia con un sentido social en favor de las personas y grupos más vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia cercana a la población. Requerimos personas juzgadoras que estén frente a la sociedad. Que sean conocidos por toda la población y que juzguen con una perspectiva social y humana. La cercanía de la justicia con la gente debe garantizarse en todos los procesos judiciales a fin de que se conozcan sus fallos y criterios al resolver los juicios que conocen. Pues a través de la transparencia
+
+
+## Propuestas
+
+- Conocer los criterios de los Jueces y Magistrados. Es necesario que la población conozca qué, cómo y porqué resuelven de esa manera las personas juzgadores y ello se logra a través del acceso a la información.
+- Agilidad y expeditez en la impartición de justicia. Requerimos que las personas accedan a la justicia de manera fácil y pronta, en donde el trámite y resolución de los asuntos sea la prioridad en la impartición de la justicia.
+- Digitalización y uso de la tecnología en todos los juicios y la debida actualización constante; para que cualquier persona pueda consultar y saber el estado de su asunto desde su celular sin mayores dificultades y burocracia innecesaria.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: DULCE MARIA DOMINGUEZ BRAVO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 3312867225
+Correo Electronico: inedulcedom@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho Internacional Humanitario, Derecho de Amparo, Derechos Fundamentales, Derechos Humanos, Estado Democrático, Garantías., Género, Lenguaje Inclusivo, Libertad de Expresión, Maestría, Migración, Violencia
+Tags Propósito: accesibilidad, adaptación, atención al público, celeridad, confianza ciudadana, derechos fundamentales, derechos humanos, eficacia, eficiencia, empatía, equipo jurídico, imparcialidad, justicia, lenguaje claro, necesidades sociales, respeto., sencillez, soluciones conflictos, transparencia, trato digno, vocación de servicio
+
+
+## Descripción del Candidato 
+
+DULCE MARIA DOMINGUEZ BRAVO es candidata a Magistratura de Tribunales Colegiados de Circuito para el Poder Ejecutivo Federal en la Ciudad de México. Cuenta con Maestría en Derechos y Garantías, con especialidad en Derecho de Amparo, y ha realizado cursos en Derechos Humanos, Migración y Género, así como en técnicas de lenguaje inclusivo.
+
+Su motivación para buscar el cargo se centra en aportar sus habilidades y experiencia para un servicio orientado a las personas. Su visión de la función jurisdiccional y la impartición de justicia se basa en la transparencia, eficacia, celeridad y accesibilidad, adaptándose a los retos actuales y promoviendo la confianza en las instituciones. Sus propuestas incluyen la conformación de un equipo con sólidos conocimientos y vocación de servicio, una política de puertas abiertas para la atención al público y la redacción de sentencias con un lenguaje claro y directo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1L5H6N9D5z/?mibextid=wwXIfr
+- https://x.com/dulcemariadom?s=21&t=kSqtrum-4h48izG0G96UmQ
+- https://www.instagram.com/dulcemariadom?igsh=MWh6dW11aWowb2pqag3D3D&utm_source=qr
+- https://www.tiktok.com/@dulcemariadom?_t=ZT-8v4heICf71S&_r=1
+- https://www.threads.net/@dulcemariadom?igshid=NTc4MTIwNjQ2YQ==
+
+
+## Cursos
+
+- Curso de Verano en Derechos Humanos y Derecho Internacional Humanitario, American University, Washington College Law,Estándares Internacionales en Derechos Humanos, Migración y Género,Estado Democrático de Derechos y Libertad de Expresión,Técnicas para la implementación del Lenguaje Ciudadano e Inclusivo,Sistema de Derechos Fundamentales; Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53245/10
+
+
+## Trayectoria Academica
+
+- Estudié la carrera de Derecho; especialidad de Derecho de Amparo; y participé en la Maestría de Derechos y Garantías
+
+
+## Motivo para buscar el Cargo Publico
+
+Puedo aportar mis habilidades, conocimientos y experiencia para brindar un servicio pensando siempre en las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es un pilar fundamental para asegurar la defensa auténtica de los derechos de las personas. Debe realizarse de manera transparente, eficaz y con celeridad, para consolidar la confianza de la ciudadanía en las instituciones, adaptándose a los nuevos retos, impulsando soluciones efectivas a los conflictos y de esta manera ofrecer un sistema más accesible, eficiente y justo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es la base esencial para la convivencia social, cuyo objetivo principal consiste en solucionar conflictos de manera imparcial, eficaz y conforme a la ley, asegurando la protección de los derechos humanos. Una justicia efectiva debe ser clara, rápida y accesible, eliminando barreras que dificulten su ejercicio, reforzando la confianza de la gente en las instituciones; siempre adaptándose a las necesidades de la sociedad actual, promoviendo que sea más rápida y esté al alcance de todos y todas.
+
+
+## Propuestas
+
+- Contaremos con un equipo de sólidos conocimientos, siempre actualizado en temas jurídicos y derechos fundamentales; que destaque por su empatía y vocación de servicio. Nos interesa brindar una atención accesible y de calidad, así como un trato digno y respetuoso a quienes acuden a buscar justicia.
+- Tendremos una política de puertas abiertas para la atención al público, brindando un trato cercano, fácil y claro; asegurando que todas las personas podrán dar seguimiento a sus asuntos sin trabas ni complicaciones.
+- Nuestras sentencias contarán con un lenguaje sencillo y directo, evitando los tecnicismos innecesarios; explicaremos de manera simple y clara los términos jurídicos difíciles, precisando claramente las razones que apoyan la decisión tomada y se evitarán las citas excesivas que dificultan su lectura.
+

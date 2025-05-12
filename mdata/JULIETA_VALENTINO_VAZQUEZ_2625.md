@@ -1,0 +1,75 @@
+Nombre Candidato: JULIETA VALENTINO VAZQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 5523277006
+Correo Electronico: contacto@julietavalentino.org
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información Pública, Derecho Administrativo, Derecho Ambiental, Derechos Ambientales, Derechos Culturales, Derechos Sociales, Desarrollo Sostenible, Finanzas Públicas, IIJ., INAI, IPPEM, Inspección Ambiental, Litigio Estratégico, Transparencia, UAM Azcapotzalco, Vigilancia Ambiental
+Tags Propósito: Acceso a la justicia, Agentes de cambio, Arbitraje, Atención ciudadana, Concientización, Contexto social, Derechos, Desburocratización, Expedita justicia, Honestidad, Humanismo, Imparcialidad, Independencia, Iniciativa, Juez de territorio, Justicia, Mediación, Necesidades de la población, Objetividad, Profesionalismo, Pronta justicia, Sensibilidad, Trabajo en equipo., Transformación, Voluntad
+
+
+## Descripción del Candidato 
+
+Julietta Valentino Vázquez es candidata a Jueza de Distrito del Poder Judicial de la Federación. Cuenta con maestría en Derecho Ambiental y una trayectoria académica enfocada en Derecho Administrativo y Finanzas Públicas, complementada con diversos diplomados en áreas como desarrollo sostenible, litigio estratégico, transparencia y materia ambiental.
+
+Su motivación para buscar el cargo es contribuir a la transformación del sistema judicial desde una perspectiva sensible, honesta y proactiva. Propone un acercamiento a la función jurisdiccional más allá del escritorio, involucrándose en el contexto de los casos y buscando activamente la resolución de conflictos a través de la mediación y el arbitraje. Además, busca promover un ambiente de trabajo transformador en el juzgado, priorizando el humanismo, la independencia, la imparcialidad, la objetividad y el profesionalismo en la atención a las partes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+http://www.julietavalentino.org
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18tm8r99Nk/?mibextid=wwXIfr
+- https://x.com/julyvalentinov?s=21
+- https://www.instagram.com/julietavalentinov?igsh=bTV2bGM1Yzl0cTBq&utm_source=qr
+- https://www.youtube.com/channel/UCRR_DQUiU3MarLp7LO9ZVsg/videos
+- https://www.tiktok.com/@julietavalentinoambient?_t=ZM-8v0wh3PkVKn&_r=1
+
+
+## Cursos
+
+- Área de concentración Derecho Administrativo y Finanzas Públicas (2005),Diplomado ¿Competencias desde la administración pública municipal para el Desarrollo Sostenible¿ IPPEM (2023),Diplomado en ¿Litigio Estratégico en Derechos Sociales, Culturales y Ambientales¿ en el IIJ,Diplomado en Inspección y Vigilancia en Materia Ambiental por la Universidad Autónoma Metropolitana Unidad Azcapotzalco,Diplomado en Transparencia y Acceso a la Información Púbica por el INAI y la Universidad Autónoma Metropolitana 2017
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55583/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho (Derecho Administrativo y Finanzas Públicas) Maestra en Derecho Ambiental UAM Azcapotzalco
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a la transformación el sistema desde abajo, ejerciendo el cargo con sensibilidad, voluntad y honestidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se necesitan jueces y juezas con más iniciativa y voluntad de abordar y resolver los casos, menos burocráticos y más sensibles a las necesidades de la población, ser ellos mismos agentes de cambio en la función jurisdiccional y sus procesos. Deben ejercer todas las facultades a su alcance antes de sobreseer o rechazar los casos, utilizar mediación y arbitraje para que los derechos de la gente y todas las partes estén garantizados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar una justicia pronta y expedita es la gran deuda que el Poder Judical tiene con la población. Para solucionarlo se requieren jueces que se involucren en los casos más allá del escritorio, que conozcan los contextos de los involucrados, que tengan una visión humanista, voluntad.
+
+
+## Propuestas
+
+- Una vez que asuma el cargo de Jueza voy a ¿dejar el escritorio¿, para involucrarme en todo el proceso, conocer a las personas que buscan justicia y su contexto, para conocer las problemáticas de cerca, seré una Jueza de territorio que busque la verdad y la justicia en las calles, conociendo a las partes.
+- Me conduciré bajo los 4 principios que fingen la función jurisdiccional: independencia, imparcialidad, objetividad y profesionalismo, le sumaré humanismo, que significa brindar un trato justo a todas las personas, desde un trato distinto promoveré cambios sustanciales, para lograr que a las personas se les garantice atención y justicia.
+- ¿El buen Juez por su casa empieza¿, en el Juzgado promoveré una forma de trabajo en la que los compañeros abogados y personal en general se concienticen de la importancia de transformar los actuales esquemas de justicia, que alejan cada vez más de la ciudadanía, el acceso a sus derechos.
+

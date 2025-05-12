@@ -1,0 +1,73 @@
+Nombre Candidato: ALETIA GONZALEZ HUERTA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7771751179
+Correo Electronico: agonzalezhu@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Información, Amparo, Comunicación, Cálculo de Prestaciones Laborales, Derecho Colectivo, Derecho Constitucional, Diplomado, Escuela Federal de Formación, Estudios Superiores Aragón., Instituto de la Judicatura Federal, Liderazgo, Maestría, Materia Laboral, Protección de Datos Personales, Seguridad Social, Transparencia, UNAM
+Tags Propósito: bienestar colectivo, conflictos legales., derechos fundamentales, dignidad humana, discriminación, estado de derecho, igualdad, imparcialidad, integridad, justicia, magistratura federal, modernización, responsabilidad, sistema judicial, tecnología, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Aletia Gonzalez Huerta es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal en la entidad Morelos. Cuenta con Maestría en Derecho Constitucional y Amparo por la FES Aragón UNAM y ha completado diversos cursos de especialización en materia laboral, seguridad social, transparencia y liderazgo, impartidos por el Instituto de la Judicatura Federal y la Escuela Federal de Formación Judicial. 
+
+Su motivación para buscar el cargo se basa en su pasión por el servicio público en la administración de justicia. Su visión se centra en fortalecer el estado de derecho, proteger los derechos fundamentales y modernizar el sistema judicial, priorizando la aplicación de la ley con sensibilidad humana, la transparencia y la igualdad. Sus propuestas incluyen aplicar el rigor jurídico con respeto a la dignidad humana, interpretar las leyes con un enfoque humano y promover un Poder Judicial transparente, imparcial y responsable.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/aletia.gonzalez.huerta/
+- https://www.instagram.com/aletiagh/profilecard/?igsh=MmI1EwJOzMHWn3C0
+- https://www.tiktok.com/@aletia.abogada
+
+
+## Cursos
+
+- Diplomado Práctico: Materia Laboral, Seguridad Social y Amparo, impartido por el Instituto de la Judicatura Federal,Taller de Cálculo de Prestaciones laborales, impartido por la Escuela Federal de Formación  Ciudad de México, 1,Seminario de Derecho Colectivo, impartido por la Escuela Federal de Formación Judicial   Ciudad de México, 07/2023   08/,Curso de Transparencia, acceso a la información pública y protección de datos personales,Curso de liderazgo y comunicación, Escuela Federal de Formación Judicial   Ciudad de México, impartido 07/2024   08/2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53468/10
+
+
+## Trayectoria Academica
+
+- Maestría con orientación a Derecho Constitucional y Amparo Facultad de Estudios Superiores Aragón, 2017 2018 UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo el privilegio de hacer lo que me apasiona, el servicio público en pro de la administración de justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional representa un pilar importante para el fortalecimiento del estado de derecho, con la protección de los derechos fundamentales y el bienestar colectivo desde una posición estratégica como una Magistratura Federal, se puede hacer efectiva la ley, logrando así fortalecer la confianza de la ciudadanía a través de un sistema judicial íntegro.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema judicial enfrenta múltiples desafíos, pero de esas dificultades sólo pueden enfrentarse mediante un compromiso con la modernización de los procesos juridiciales, el uso de tecnologías para agilizar los procedimientos y una atención especial a los sectores más vulnerables.
+
+
+## Propuestas
+
+- Ser un puente entre el derecho y la realidad social, aplicando el rigor de la responsabilidad del encargo de juzgador o juzgadora sin pasar por alto el respeto profundo al atributo más grande que tiene el ser humano, su dignidad.
+- El sistema judicial no debe limitarse a la aplicación estricta de las leyes, sino que deben interpretarlas con sensibilidad y un enfoque humano, esto es adoptar decisiones que promuevan la igualdad, que eliminen barreras de discriminación y respondan a las necesidades de un estado cambiante.
+- La sociedad requiere un Poder Judicial con una visión transparente y honesta de los conflictos legales, exigiendo conocimiento técnico, integridad y un profundo sentido de responsabilidad de sus funcionarios, una Institución justa, imparcial y templada con respecto a los excesos que no contribuyan a alcanzar una sociedad más igualitaria.
+

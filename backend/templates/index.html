@@ -1,0 +1,58 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Candidate Assistant</title>
+    <link rel="stylesheet" href="/static/css/style.css">
+    <script src="https://cdn.jsdelivr.net/npm/marked/marked.min.js"></script>
+</head>
+<body>
+    <div class="container">
+        <!-- Left Panel -->
+        <aside class="panel left-panel">
+            <!-- Candidate Search -->
+            <section class="widget candidate-search">
+                <h2>Candidates</h2>
+                <input type="search" id="candidate-search-input" placeholder="Search candidates...">
+                <ul id="candidate-list">
+                    <li class="loading">Loading candidates...</li>
+                </ul>
+            </section>
+
+            <!-- Conversation History List -->
+            <!-- MODIFIED WIDGET -->
+            <section class="widget conversation-history-widget">
+                <h2>Conversations</h2>
+                <ul id="conversation-list-history">
+                    <!-- Conversation list items will be loaded here -->
+                    <li class="loading">No conversations yet.</li>
+                </ul>
+            </section>
+            <!-- END MODIFIED WIDGET -->
+        </aside>
+
+        <!-- Right Panel (No changes needed here) -->
+        <main class="panel right-panel">
+            <section class="widget markdown-viewer">
+                <h2 id="markdown-title">Candidate Details</h2>
+                <div id="markdown-content" class="markdown-body">
+                    <p>Select a candidate from the left to view their details.</p>
+                </div>
+            </section>
+            <section class="widget chat-window">
+                <h2>Chat</h2>
+                <div id="chat-history"></div>
+                <form id="chat-form">
+                    <input type="text" id="chat-input" placeholder="Ask a question..." autocomplete="off" required>
+                    <button type="submit" id="send-button">Send</button>
+                </form>
+                 <div id="loading-indicator" class="hidden">Thinking...</div>
+                 <div id="token-stats-display"></div>
+            </section>
+        </main>
+    </div>
+
+    <script src="/static/js/main.js"></script>
+</body>
+</html>

@@ -1,0 +1,74 @@
+Nombre Candidato: PABLO ANDREI ZAMUDIO DIAZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5534552311
+Correo Electronico: justotupaz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acciones Colectivas, Argumentación Jurídica, Derecho Concursal, Derecho Procesal Constitucional, Derecho Tributario, Derechos Fundamentales, Docencia, Federalismo Judicial, Función Jurisdiccional, Género y Justicia, Interpretación Constitucional, Legislación Civil, Legislación Mercantil, Licenciado en Derecho, Protección Constitucional, Publicaciones Jurídicas., Reforma Constitucional Penal, Teoría General del Proceso, Teoría de la Prueba
+Tags Propósito: Acceso a la justicia, Bienestar social, Conciencia ética., Dignidad, Empatía, Equidad, Formación judicial, Formalismo excesivo, Humanización de la justicia, Impacto social, Justicia humana, Resolución de conflictos, Sensibilidad, Simplificación de procedimientos, Ética judicial
+
+
+## Descripción del Candidato 
+
+Pablo Andrei Zamudio Diaz es candidato a Magistrado de los Tribunales Colegiados de Circuito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Licenciado en Derecho con mención honorífica, cuenta con trayectoria académica y docente, además de publicaciones en temas jurídicos.
+
+Su candidatura se basa en la convicción de que la justicia debe ser profundamente humana, sensible e imparcial. Propone humanizar la labor jurisdiccional, reducir el formalismo excesivo y fortalecer la formación ética y social de las personas juzgadoras, buscando resoluciones justas, equitativas y que respondan a las necesidades de la sociedad. Se pueden consultar detalles adicionales de su trayectoria y propuestas en el enlace a su curriculum vitae proporcionado y sus perfiles en redes sociales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Fm8cgY7Jb/?mibextid=wwXIfr
+- https://x.com/pabloandreipaz?s=11
+- https://www.instagram.com/pabloandreimx?igsh=MjJjb2hwd3h3YTRz&utm_source=qr
+- https://www.tiktok.com/@justotupaz?_t=ZM-8v4rZk40Yzf&_r=1
+
+
+## Cursos
+
+- Derecho Concursal; Derecho tributario; Interpretación Constitucional; Lecciones de Argumentación; Teoría de la Prueba,Introducción a la función jurisdiccional; Teoría General del Proceso; El género en la impartición de justicia,La Reforma Constitucional en Materia Penal; Acciones Colectivas; Seminario Internacional sobre Federalismo Judicial,Protección de los Derechos Fundamentales en los Estados Federales; Actualización legislativa materias civil y mercantil,Congresista en el Congreso Mexicano de Derecho Procesal Constitucional Sobre la Protección Orgánica de la Constitución
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54775/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho con mención honorífica, docente y con publicaciones en diversos medios sobre temas jurídicos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ayudar a construir justicia por el bienestar de la sociedad desde una perspectiva más humana, sensible e imparcial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión sobre la función jurisdiccional parte de una convicción clara: la justicia debe ser profundamente humana. Impartir justicia no es aplicar reglas de forma automática, sino comprender y concientizar el conflicto real de quienes acuden a los tribunales. Las personas juzgadoras deben actuar con empatía, sensibilidad y compromiso. Así se evitará el formalismo vacío y se garantizarán resoluciones justas, equitativas, prontas y dignas, que respondan a la realidad y necesidad de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe dejar de ser una actuación fría y distante para la sociedad. Es urgente humanizar el sistema judicial para que las resoluciones no se limiten al formalismo, sino que atiendan el fondo de los conflictos sociales con empatía. Las personas juzgadoras deben comprender la realidad de quienes buscan justicia, dimensionar el impacto de sus decisiones y actuar con sensibilidad, garantizando un acceso efectivo, digno y oportuno a la justicia para todas y todos.
+
+
+## Propuestas
+
+- Humanizar la labor jurisdiccional: Propongo que las resoluciones judiciales partan del entendimiento profundo del conflicto y de la realidad de las personas involucradas. La justicia no puede limitarse a tecnicismos; debe responder con empatía, sensibilidad y sentido humano para atender a las necesidades y resolver en serio los conflictos que se suscitan en la sociedad.
+- Reducir el formalismo excesivo: Es urgente simplificar los procedimientos para evitar que los formalismos excesivos y tecnicismos sin sustancia obstaculicen el acceso a la justicia. Debemos priorizar el fondo del conflicto por encima de formas que, muchas veces, se alejan de la realidad del conflicto y evitan su resolución de manera pronta y efectiva.
+- Fortalecer la formación ética y social de las personas juzgadoras: Propongo impulsar una preparación continua que no solo se enfoque en el conocimiento y técnica del derecho, sino en el desarrollo de una conciencia ética, empática y social, que permita a las personas juzgadoras comprender mejor el impacto humano de sus decisiones, con sentido de justicia y mirando siempre el bienestar social.
+

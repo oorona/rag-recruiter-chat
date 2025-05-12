@@ -1,0 +1,71 @@
+Nombre Candidato: ARTEMIO VAZQUEZ MENDEZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6642186441
+Correo Electronico: artemiovazquez1@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Derecho Civil, Derechos Humanos, Doctorado, Educación Rural., Formación, Licenciatura, Maestría, Materia Civil, Materia Familiar, Mención Honorífica, Poder Judicial, Preparatoria Abierta, Telesecundaria, UABC
+Tags Propósito: Burocracia, Capacitación, Comparecencia., Competencia, Confianza, Corrupción, Derechos Humanos, Dignidad Humana, Equidad, Igualdad, Imparcialidad, Independencia, Integridad, Juez, Jurisprudencia, Justicia, Ley, Morelos y Pavón, Normas Constitucionales, Objetividad, Rendición de Cuentas, Resolución, Simplificación, Transparencia, Tratados
+
+
+## Descripción del Candidato 
+
+Artemio Vázquez Mendez es candidato a Juez de Distrito en Baja California, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado concluidos y una trayectoria académica que incluye dos Maestrías, Licenciatura en la UABC, y estudios de nivel básico. Su motivación para buscar el cargo es aplicar su conocimiento y experiencia en derecho con un enfoque humanista.
+
+Vázquez Mendez propone fortalecer la función jurisdiccional garantizando acceso expedito a la justicia y la preparación de los impartidores.  Sus propuestas se centran en la capacitación continua, la defensa de los derechos humanos, la lucha contra la corrupción, la simplificación de procedimientos, y una actuación imparcial, objetiva y respetuosa de la dignidad humana en la administración de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1QMb1RyiBU/
+
+
+## Cursos
+
+- Maestría en Derecho Civil,Maestría en Derechos Humanos Constitucional y Amparo,Curso de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Diplomado sobe Juicio de Amparo,Diplomado Actualización en Materia Civil y Familiar
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55474/11
+
+
+## Trayectoria Academica
+
+- Primaria rural, telesecundaria, preparatoria abierta, licenciatura UABC, dos maestrías, mención honorifica y doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser juez, para poner al servicio de la sociedad mi conocimiento y experiencia en el derecho con visión humanista.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional, debe ser ante todo justa y es obligación del estado garantizar que se imparta de manera expedita, porque justicia retardada es injusticia; también se debe de garantizar que los impartidores de justicia sean personas preparadas y empáticas con las personas justiciables, actuando siempre con Independencia, Imparcialidad, Integridad, objetividad, Igualdad, competencia, y con respeto a la dignidad humana, ante todo, pues esta debe de garantizarse al ser un derecho humano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser siempre con conocimientos técnicos del derecho, su interpretación jurisprudencial y con valores universales del juzgador, con el fin de garantizar la objetividad, equidad, imparcialidad, e independencia, en sus resoluciones, pero con apego y respeto de las normas constitucionales y los tratados en derechos humanos de los que es parte el estado mexicano, procurando en todo momento resoluciones justas y equitativas, para logar el reconocimiento de la sociedad.
+
+
+## Propuestas
+
+- Como Juez, mi compromiso es el constante estudio, capacitación y actualización, para garantizar que todas mis resoluciones sean siempre apegadas a la ley y a los principios generales del derecho, y con ello recuperar la confianza de las personas justiciables en el Poder Judicial y lograr que este cumpla con los ideales del ilustre Siervo de la Nación Don José María Morelos y Pavón ¿Que todo el que se queje con justicia, tenga un tribunal que lo escuche, ampare y lo defienda contra el arbitrario¿
+- Como Juez, tendré como prioridad utilizar todas las herramientas legales para buscar la defensa y protección de los derechos humanos de las personas justiciables; implementando políticas y mecanismos estrictos para detectar y sancionar actos de corrupción, promover las demandas por comparecencia, que prácticamente es letra muerta en la actualidad y con ello evitar gastos innecesarios a los usuarios; reducir la burocracia, simplificar los procedimientos, brindar atención digna y con y respeto.
+- Actuar sin prejuicios ni favoritismos, con objetividad, integridad y responsabilidad, asegurando un trato justo y equitativo, siempre aplicar la ley, buscando la justicia, asegurando decisiones independientes y con respeto a los derechos humanos, juzgar y resolver partiendo de que el juzgador y los justiciables somos personas que viven y respira; fomentar la transparencia y la rendición de cuentas en el funcionamiento del tribunal, para recupera y mantener la confianza de la sociedad en la ley.
+

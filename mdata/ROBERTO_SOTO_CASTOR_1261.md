@@ -1,0 +1,83 @@
+Nombre Candidato: ROBERTO SOTO CASTOR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7773274972
+Correo Electronico: robertosotocastor@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurisdiccional, Becas, CONACYT, Derecho Penal, Derechos Humanos, Diplomado, Justicia Penal, Licenciatura, Maestría, Morelos, Reforma de Justicia., Sistema Acusatorio, Suprema Corte, UAEMorelos, UNAM
+Tags Propósito: acceso a la justicia, bienestar social, celeridad, cercanía, constitución, cumplimiento de sentencias, eficiencia, empatía, justicia, leyes, procesos internos, recursos, resolución de conflictos., sobrecarga procesal, tecnología, tiempos de resolución, transparencia
+
+
+## Descripción del Candidato 
+
+ROBERTO SOTO CASTOR es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal para el estado de Morelos. Cuenta con Maestría en Derecho, siendo becario CONACYT durante sus estudios en la UNAM y la UAEMorelos. Su trayectoria académica y profesional se centra en el ámbito jurídico penal, evidenciado por su formación en Procedimiento Penal Oral, Derechos Humanos y su participación en cursos impartidos por la Suprema Corte de Justicia de la Nación.
+
+Soto Castor motiva su candidatura en sus conocimientos, valores y habilidades para resolver conflictos respetando la ley. Su visión de la función jurisdiccional se basa en una impartición de justicia empática, justa, transparente y eficiente, con cercanía a las partes involucradas. Sus principales propuestas se enfocan en abatir la sobrecarga procesal, aminorar la duración de los procesos y asegurar el cumplimiento efectivo de las resoluciones judiciales, priorizando el uso de herramientas tecnológicas y la revisión de los procesos internos del Poder Judicial de la Federación.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574316310080
+- https://x.com/home
+- https://www.instagram.com/robertosotocastor/
+- https://www.youtube.com/@robertosotocastor9119
+- https://www.tiktok.com/@robertosotocastor?lang=es
+
+
+## Cursos
+
+- Procedimiento Penal Oral, Acusatorio y Adversarial en el Estado de Morelos
+- Escuela Poder Judicial estado de Morelos
+- ,Argumentación Jurisdiccional
+- Impartido por la Escuela Judicial del Poder Judicial del Estado de Morelos
+- ,Diplomado Víctimas del Delito y de las Violaciones a los Derechos Humanos en el Nuevo Sistema de Justicia Penal,Opciones estratégicas para impulsar la implementación de la reforma de justicia penal a nivel Estatal en México,Diplomado Suprema Corte y los Derechos Humanos
+- Impartido por la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55208/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en la UAEMorelos
+- Maestría en Derecho en la UNAM
+- Mención honorífica
+- Becario CONACYT
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con los conocimientos, valores y habilidades para resolver conflictos con respeto a la Constitución y las leyes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los jueces y magistrados, deben impartir justicia con empatía, resolviendo las controversias entre las partes de manera justa, privilegiando el bienestar de la sociedad en su conjunto. Debe existir una necesaria cercanía que permita al juzgador conocer de manera plena el conflicto que se somete a su jurisdicción. Igualmente, debe procurarse celeridad en la resolución de los asuntos que deben resolver, de manera completa, clara y sin obstáculos. Ser claros y transparentes en el ejercicio público.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Esta actividad, debe contar con las mejores personas, los cuales tengan la capacidad y los conocimiento necesarios, pero que también, tengan la sensibilidad y el tacto suficiente para impartir justicia de manera tal que las partes zanjen sus diferencias y vivan en comunidad de manera pacífica y con tranquilidad. También deben contar con los recursos técnicos y materiales que les sirvan para dilucidar de manera completa y plena el problema a resolver.
+
+
+## Propuestas
+
+- Abatir la sobrecarga procesal, que constituye uno de los grandes problemas que enfrenta la impartición de justicia en el Poder Judicial de la Federación, siendo necesario combatir el creciente rezago, mediante el trámite oportuno y expedito de los expedientes. Un uso extensivo de las herramientas tecnológicas de información y comunicación, puede ayudar en tal sentido.
+- Aminorar la excesiva duración de los procesos, pues resulta ser un problema muy común, la tardanza en la tramitación de los expedientes que son competencia del Poder Judicial de la Federación; se dice que una justicia a destiempo se traduce en una justicia denegada. Es importante reducir los tiempos de resolución de las controversias sometidas a su jurisdicción, mediante una revisión y ajuste de los procesos internos.
+- Buscar el efectivo y oportuno cumplimiento de las resoluciones dictadas por las instituciones impartidoras de justicia, lo que es un reto de la mayor importancia, llegando a suceder que, después de un largo peregrinar de los justiciables, se ven impedidos para acceder de manera efectiva a los fallos dictados a su favor. Los tribunales deben exigir el cumplimiento de sus sentencias a la mayor brevedad y de forma completa, debiendo valerse de todas las medidas que se requieran al efecto.
+

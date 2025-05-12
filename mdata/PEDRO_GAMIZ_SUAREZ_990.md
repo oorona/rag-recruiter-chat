@@ -1,0 +1,75 @@
+Nombre Candidato: PEDRO GAMIZ SUAREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: 7712724099
+Correo Electronico: pedrogamizsuarez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario Judicial, Adolescentes, Capacitación Judicial, Ejecución de Medidas, Especialización Judicial., Facultad de Derecho, Justicia Federal, Licenciatura en Derecho, Proceso Judicial, SCJN, Secretario de Juzgado, UNAM
+Tags Propósito: Accesibilidad, Compromiso, Confianza, Formalidades, Humanidad, Imparcialidad, Justicia, Obstáculos., Pueblo, Rapidez, Relevancia, Sentencias, Servicio, Solución de conflictos, Transparencia, Tribunales
+
+
+## Descripción del Candidato 
+
+Pedro Gamiz Suarez es candidato a Magistrado de Tribunales Colegiados de Circuito en Hidalgo, postulándose para ejercer las funciones del cargo. Cuenta con licenciatura en Derecho de la Universidad Nacional Autónoma de México y cédula profesional, complementada con cursos de especialización judicial y en justicia federal para adolescentes.
+
+Su motivación para buscar el cargo se basa en el servicio público y un compromiso con la ciudadanía. Su visión de la función jurisdiccional se centra en la sensibilidad ante los problemas de los demás y en una resolución de conflictos rápida y accesible. Sus propuestas principales incluyen un mayor acercamiento de los funcionarios jurisdiccionales a la sociedad, demostrar que la justicia es para todos y lograr una impartición de justicia rápida y eficiente, priorizando la solución de fondo sobre el formalismo.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1C3zTg3byo/?mibextid=wwXlfr
+- https://x.com/pedrogamiz57985?s=11
+- https://www.instagram.com/pedro.gamiz6811?igsh=MWE2OTNzNzU1eHUwaA3D3D&utm_source=qr
+- https://www.tiktok.com/@pedro.gamiz?_t=ZM-8v2e8ExISQR&_r=1
+
+
+## Cursos
+
+- Curso Anual de Especialización Judicial
+- ,Especialización en Justicia Federal para Adolescentes (Proceso y Ejecución de Medidas),Curso de Preparación y Capacitación del PJF, para Actuario Judicial, Secretario de Juzgado, Tribunal y de la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53195/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Nacional Autónoma de México, Facultad de Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Por vocación de servicio y compromiso con el pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no es un privilegio, sino un gran compromiso con el pueblo, por lo que se tiene que demostrar, que la solución de conflictos, es una tarea que implica, sensibilizarse ante los problemas de los demás, resolviéndolos con rapidez y facilitando siempre el acercamiento para todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El impartir justicia no es para todos, sino para quienes están verdaderamente convencidos, de la importancia y trascendencia que tiene una decisión en la vida de los demás. Sobre todo, cuando la percepción es que la justicia solo es para algunos.
+
+
+## Propuestas
+
+- Mayor acercamiento por parte de las personas que tienen a su cargo la función jurisdiccional, sobre todo por parte de jueces y magistrados, logrando así, confianza en la sociedad, de que quienes la desempeñan, son gente que siempre se va a sensibilizar frente a sus problemas, escuchándolos y haciéndolos sentir que no obstante la clase social a la que pertenezcan, la justicia es de todos y para todos.
+- Mostrar a la sociedad que quienes ejercen la función jurisdiccional, no son un grupo privilegiado, sino que por el contrario, son seres de carne y hueso, que siempre van a asumir los asuntos, como si fueran propios, esto es, buscando una solución que lejos de hacer parecer que la justicia solo es para algunos, genere confianza en el pueblo de que cada asunto es importante, no por quien acude, sino por la relevancia de que los demás pongan en sus manos la solución de conflictos.
+- Acercar al pueblo una justicia rápida, que deje del lado cuestiones formales, siempre buscando solucionar los problemas de fondo, a través de sentencias que hagan ver que el objetivo de la función jurisdiccional, no es retardar la impartición de justicia, sino por el contrario, solucionar los juicios en el menor tiempo posible, para que el pueblo sienta en verdad, que los tribunales están para ayudar y no para poner obstáculos.
+

@@ -1,0 +1,78 @@
+Nombre Candidato: RIGOBERTO RILEY MATA VILLANUEVA
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 9932775637
+Correo Electronico: rigoberto_riley@hotmail.es
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Análisis de Riesgo, Control Interno, Delegación Efectiva., Derecho Electoral, Derecho Judicial, Doctorado, Equipos de Alto Desempeño, INE, Licenciatura, Maestría, TEPJF, UJAT, VPG
+Tags Propósito: Accesibilidad, CPEUM, Capacitación, Confianza Ciudadana, Derechos Humanos, Derechos Político Electorales, Discapacidad, Honestidad, Igualdad Sustantiva, Inclusión, Intérpretes, Justicia Imparcial, Justicia Social, Legitimidad Institucional, Lenguaje Incluyente, Ley Inclusión Discapacidad., No Discriminación, Paridad, Participación Ciudadana, Responsabilidad, Servidores Públicos Electorales, Transparencia, Violencia de Género, Ética
+
+
+## Descripción del Candidato 
+
+Rigoberto Riley Mata Villanueva es candidato a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación (TEPJF), postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Derecho Judicial, además de maestría y licenciatura en Derecho. Su trayectoria profesional abarca 18 años en el ámbito electoral, incluyendo experiencia en el TEPJF y el INE en diversos roles como mecanógrafo, actuario y magistrado. 
+
+Riley Mata motiva su candidatura en el deseo de servir a la ciudadanía con ética y responsabilidad, garantizando una justicia imparcial. Su visión se centra en resoluciones eficientes, inclusivas y apegadas a los principios de legalidad y transparencia, maximizando los derechos políticos electorales. Sus propuestas incluyen la integración paritaria de las Salas Regionales, la implementación de capacitaciones internas y externas para servidores públicos y ciudadanos, y la garantía de asistencia con intérpretes en diversos idiomas y sistemas de comunicación.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16ES8oe8YE/?mibextid=wwXIfr
+- https://x.com/rileymata?s=21&t=o5vB-wfZzTU0qTJJi_N3_Q
+- https://www.instagram.com/rileymata007?igsh=ZmN1bGp6dHBjOHBr&utm_source=qr
+- https://www.tiktok.com/@rileymata_007?_t=ZM-8uvqNeuJlBf&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Electoral, impartido por la Escuela Judicial del TEPJF, del 18 de agosto al 11 noviembre de 2017
+- ,Curso Introducción al Derecho Electoral Mexicano, impartido por el TEPJF, con duración de 40 horas, en 2017
+- ,Curso LAbElectoral, impartido por el TEPJF, 15 sesiones, con duración de 23 horas, marzo de 2021
+- ,Curso Protocolo del INE para la Atención a Víctimas y la Elaboración del Análisis de Riesgo en los Casos de VPG, 2023
+- ,Cursos: Equipos de Alto Desempeño; Delegación Efectiva y Sistema de Control Interno Institucional, impartidos INE, 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16936/9
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho Judicial (TSJ Tabasco); Maestro en Derecho Electoral (TEPJF); Licenciatura en Derecho (UJAT)
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la ciudadanía con ética y responsabilidad, garantizando una justicia imparcial, transparente, inclusiva.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Emitir resoluciones eficientes, con lenguaje incluyente (no sexista) y netamente ciudadano, apegadas a los principios de Certeza, Legalidad, Objetividad, Imparcialidad, Transparencia y Máxima Publicidad, en las que se maximicen los derechos político electorales de la ciudadanía de votar, ser votados, asociación, afiliación y acceso a la información, en especial de grupos vulnerables; así como, fomentar una política de puertas abiertas con la ciudadanía, medios de comunicación e instituciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Aplicar los conocimientos técnicos y especializados adquiridos a través de mis 18 años de experiencia (mecanógrafo, actuario, proyectista, jefe de transparencia, magistrado y asesor del INE), tomando siempre en consideración los valores y sensibilidad que se requieren en Pro de los derechos humanos de la ciudadanía, basándome en los principios de justicia social, honestidad y participación ciudadana; fortaleciendo con ello, la legitimidad de las instituciones a través de la confianza ciudadana.
+
+
+## Propuestas
+
+- Integración paritaria de las Salas Regionales del TEPJF, en todo el organigrama, pues considero que, para lograr una igualdad sustantiva, es necesario que se amplíen tales derechos a todo el personal que labora en dichos entes, como un componente esencial para eliminar la discriminación y la violencia contra las mujeres, logrando con ello, una participación plena y efectiva desde las bases en todos los espacios del servicio público.
+- Implementar capacitaciones: INTERNAS, de actualización y perfeccionamiento de las habilidades de los servidores públicos electorales, para la emisión de sentencias con lenguaje incluyente (no sexista) y ciudadano; así como capacitaciones para el desarrollo ético y de motivación personal para lograr una óptima armonía institucional y buen trato a la ciudadanía. EXTERNAS, para las personas interesadas en conocer sus derechos político electorales, así como los temas de actualidad en la materia.
+- Garantizar en todo momento la asistencia de intérpretes en lengua materna, de señas, extranjera y sistema braille, en la sustanciación y resolución de los medios de impugnación en materia electoral; lo anterior, porque los intérpretes permiten una comunicación efectiva entre las partes involucradas en un proceso judicial, conforme al artículo 2, apartado A, fracción XI, párrafo segundo de la CPEUM, y la Ley General para la Inclusión de las Personas con Discapacidad, respectivamente.
+

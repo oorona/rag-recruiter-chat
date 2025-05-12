@@ -1,0 +1,77 @@
+Nombre Candidato: JORGE ISAAC LAGUNES LEANO
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5536986135
+Correo Electronico: jilagunesleano@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Control de Constitucionalidad, Derecho Administrativo, Doctorado en Derecho, Escuela Judicial Electoral., Igualdad de Género, Licenciatura en Derecho, Maestría en Ciencias Penales, Maestría en Derecho Judicial, Reforma Judicial, Universidad de Salamanca
+Tags Propósito: Estado de derecho, acceso a la justicia, adaptación, capacitación, comunicación, derechos humanos, eficiencia, imparcialidad, justicia, oportunidades., procedimientos, rendición de cuentas, resoluciones, servicio público, transparencia
+
+
+## Descripción del Candidato 
+
+Jorge Isaac Lagunes Leano es candidato a la Magistratura del Tribunal de Disciplina Judicial, postulando desde el Poder Judicial de la Federación. Cuenta con un Doctorado en Derecho, complementado con Maestrías en Ciencias Penales, Derecho Judicial y Amparo, y diversas especializaciones incluyendo Derecho Administrativo y cursos sobre reforma judicial, control de constitucionalidad y perspectiva de género.
+
+Su motivación para buscar el cargo es contribuir a una impartición de justicia con excelencia e imparcialidad. Su visión se centra en una justicia cercana a la gente, transparente, con apego a los derechos humanos y adaptable a las necesidades del servicio público. Sus propuestas incluyen el establecimiento de canales de comunicación con la ciudadanía, la adaptación continua del sistema judicial y el respeto irrestricto a los derechos humanos, implementando mecanismos de rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18n6cuQN55/?mibextid=wwXIfr
+- https://x.com/jisaacll?s=11
+- https://www.instagram.com/isaaclagunesleano?igsh=b3BiZzY2c2x1M3l5&utm_source=qr
+- https://www.tiktok.com/@isaaclagunesleano?_t=ZM-8uZWAzpsE1l&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho Adminstrativo, Universidad de Salamanca, España, Junio 2006
+- ,Curso Reforma Judicial 2021,Curso Control de Constitucionalidad y Convencionalidad
+- Impartido por la Escuela Judicial Electoral
+- ,Curso género como herramienta para la igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16369/7
+
+
+## Trayectoria Academica
+
+- Licenciado y Doctor en Derecho, con Maestrías en Ciencias Penales, Derecho Judicial y Amparo; y diversos cursos
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco contribuir a la sociedad garantizando que los impartidores de justicia actúen con excelencia e imparcialidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Soluciones efectivas que beneficien a la sociedad mediante la impartición de justicia, garantizando la imparcialidad de los juzgadores; buscando que sus resoluciones sean con apego a los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia cercana a la gente, abierta al escrutinio público y capaz de mejorar al reconocer las áreas de oportunidades que se nos presente, mediante la preparación y capacitación de sus integrantes, apegado a los derechos humanos y buscando que el servicio público prestado sea eficiente, pronto y eficaz.
+
+
+## Propuestas
+
+- Justicia cercana a la gente, abriendo canales de comunicación que permitan transmitir la labor jurisdiccional y, a su vez, escuchar los reclamos de justicia que se nos presenten.
+- Adaptabilidad al cambio y reconocimiento de aquello que requiera ser adecuado a las necesidades del servicio público que se preste.
+- Respeto irrestricto a los derechos humanos y al orden constitucional que nos caracteriza como un Estado democrático de derecho, mediante el desarrollo de procedimientos de rendición de cuentas en los términos que las leyes lo establezcan.
+

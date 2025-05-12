@@ -1,0 +1,76 @@
+Nombre Candidato: JESUS GARCIA VALENZUELA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: garciavalenzuelajesus@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización Notarial, Ciencias Penales, Derecho, Formación Judicial, Igualdad de Género, Juicios Orales, Licenciatura en Derecho., Litigación Penal, Maestría en Derecho, Nuevo Sistema Penal Acusatorio, UABC, UVM
+Tags Propósito: Ambientales, Constitución, Culturales, Derechos, Derechos Económicos, Estabilidad laboral, Felicidad., Imparcialidad, Justicia, Lenguaje claro, Plazos, Protección patrimonial, Resolución de juicios, Sentencias, Sociales, Unidad familiar
+
+
+## Descripción del Candidato 
+
+Jesús García Valenzuela es candidato a Magistratura de Tribunales Colegiados de Circuito en Baja California, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y cédula profesional, habiendo estudiado la Licenciatura en Derecho en la UABC Mexicali (1998-2002) y la Maestría en la UVM Mexicali (2018-2020). Ha realizado diversos cursos de actualización en áreas como juicios orales, litigación penal y derechos humanos.
+
+Su motivación para buscar el cargo es contribuir con la imparcialidad en la administración de justicia, aportando su experiencia. Su visión de la función jurisdiccional se centra en el impacto de las sentencias en la vida cotidiana de las personas, y propone sentencias claras y breves, el cumplimiento de derechos económicos, sociales, culturales y ambientales, y el cumplimiento de los plazos constitucionales en la impartición de justicia. Sus redes sociales y currículum vitae completo están disponibles en los enlaces proporcionados.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/jgarciaval
+- https://www.instagram.com/jgarciaval
+- https://www.tiktok.com/jgarciaval
+
+
+## Cursos
+
+- Actualización Sobre Juicios Orales, Instituto Nacional de Ciencias Penales,Diplomado en Litigación en el Proceso Penal, Universidad Anáhuac México Norte,Género como Herramienta para la Igualdad
+- Cuarta Edición, Escuela Federal de Formación Judicial,Nuevo Sistema Penal Acusatorio: Juicios Orales y Proceso Penal de Conformidad a la Legislación para el Estado de BC,Actualización Notarial, Colegio de Notarios del Estado de Baja California, A
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53006/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, UABC Mexicali, de 1998 a 2002; Maestro en derecho, UVM Mexicali, de 2018 a 2020
+
+
+## Motivo para buscar el Cargo Publico
+
+Para seguir contribuyendo al país en la importante labor de la imparcial de justicia, aportando experiencia en el área.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Siempre debe tenerse presente que las sentencias que dictan los tribunales federales impactan en la vida diaria de las personas (patrimonio, estabilidad laboral, unidad familiar, felicidad), pues no se trata solo de expedientes y estadísticas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe privilegiarse la resolución total de los juicios, sin que prevalezcan los formalismos.
+
+
+## Propuestas
+
+- Sentencias claras y breves, en la medida de lo posible, en un lenguaje que toda persona esté posibilidad de comprender su significado.
+- Con la emisión de las sentencias, que de cumplimiento a los derechos Económicos, Sociales, Culturales y Ambientales, que la Constitución Política de los Estados Unidos Mexicanos, reconoce en favor de la ciudadanía.
+- Impartición de justicia dentro de los plazos que establece la Constitución Política de los Estados Unidos Mexicanos.
+

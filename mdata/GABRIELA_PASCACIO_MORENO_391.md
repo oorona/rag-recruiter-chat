@@ -1,0 +1,72 @@
+Nombre Candidato: GABRIELA PASCACIO MORENO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9618495514
+Correo Electronico: pascaciomorenogabriela@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho Procesal Civil, Derecho Procesal Mercantil, Formación de Secretarios, Función Jurisdiccional, IJF., Igualdad de Género, Materia Familiar, PJF, Perspectiva de Género, Redacción Judicial, Sistema Penal Acusatorio, Trabajo Remoto
+Tags Propósito: Acceso a la justicia, Asistencia legal, Capacitación., Conflictos de interés, Derecho, Eficiencia, Equidad, Estado de Derecho, Formación judicial, Imparcialidad, Independencia judicial, Justicia, Mediación, Minorías, Paz social, Resolución de conflictos, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gabriela Pascacio Moreno es candidata a Magistratura de Tribunales Colegiados de Circuito en Chiapas, postulándose en la vía “En Funciones”. Cuenta con estudios de doctorado y cédula profesional, y ha realizado diversos cursos en áreas como perspectiva de género, sistema penal acusatorio y derecho procesal. Su trayectoria académica incluye haber impartido clases de Redacción Judicial en el Instituto de la Judicatura Federal.
+
+La candidata motiva su postulación al cargo por su compromiso con el derecho y su deseo de servir a la población a través de resoluciones claras y justas. Su visión de la función jurisdiccional se centra en un Poder Judicial independiente, eficaz, transparente y cercano a la ciudadanía, con especial atención a las clases minoritarias. Sus propuestas incluyen aumentar la transparencia y el uso de la tecnología en los procesos judiciales, fortalecer el acceso a la justicia para los más vulnerables, y mejorar la formación de jueces y abogados, garantizando su imparcialidad.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574596683041
+- https://x.com/PasMoGabriela?t=L0rqiy9ObxqFrqdKJpweYA&s=08
+
+
+## Cursos
+
+- Género como Herramienta para la Igualdad impartido por la Escuela Judicial del CJF,Juzgar con Perspectiva de Género en Materia Familiar, Sistema Penal Acusatorio,Diplomado en Derecho Procesal Civil y Mercantil,Diplomado en Introducción a la Función Jurisdiccional, Modalidad Virtual,Introducción al Fondo de Apoyo a la Administración de Justicia y Capacitación para el Trabajo Remoto en Órganos Jurisd
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54641/10
+
+
+## Trayectoria Academica
+
+- Clases de Redacción Judicial en Curso Básico de Formación y Preparación de Secretarios del PJF Ciclo Escolar 2015, IJF
+
+
+## Motivo para buscar el Cargo Publico
+
+El derecho es un pilar muy importante en mi vida, busco servir a mi pueblo con resoluciones claras y justas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que el Poder Judicial sea independiente, eficaz y eficiente, con una impartición de justicia oportuna, con equidad y transparencia; que la resolución de conflictos jurídicos sea con miras a restaurar la paz social; interpretar las leyes en favor de las clases minoritarias, con cercanía al pueblo y para el pueblo; desde luego, en el marco constitucional de un Estado Social de Derecho, democrático y legitimado ante el pueblo, que brinde sus servicios de manera eficiente y eficaz.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia de manera imparcial, a fin de que las partes involucradas puedan obtener una solución justa, garantizando el respeto del los derechos de las partes, con el objeto de mantener el orden legal en la sociedad, así como garantizar que todas las personas reciban un trato justo y equitativo según la ley, a través de decisiones imparciales, basadas en las normas legales, donde nadie esté por encima de la ley; y también que todos tengan acceso a una solución justa y razonable.
+
+
+## Propuestas
+
+- Aumentar la transparencia: Hacer que los procesos judiciales sean más claros y accesibles para que las personas entiendan cómo se toman las decisiones y confíen en el sistema. Usar tecnología: Implementar herramientas digitales para agilizar procesos, hacer que la información esté más disponible y permitir a las personas seguir sus casos sin tener que ir físicamente a los tribunales.
+- Fortalecer el acceso a la justicia: Crear más oportunidades para que las personas, especialmente las más vulnerables, puedan acceder al sistema judicial, ya sea con asistencia legal gratuita o mecanismos más sencillos. A la par, promover la mediación: Fomentar el uso de la mediación y otros métodos alternativos de resolución de conflictos para que las personas puedan resolver sus disputas de manera más rápida y menos costosa.
+- Mejorar la formación de jueces y abogados: Asegurar que todos los involucrados en el proceso judicial tengan una capacitación adecuada y actualizada, para que tomen decisiones más informadas y justas. Garantizar la imparcialidad: Asegurarse de que los jueces sean imparciales, evitando influencias externas y conflictos de interés, para que las decisiones sean justas para todos.
+

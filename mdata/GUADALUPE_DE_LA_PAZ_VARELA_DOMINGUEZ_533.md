@@ -1,0 +1,73 @@
+Nombre Candidato: GUADALUPE DE LA PAZ VARELA DOMINGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5511380757
+Correo Electronico: delapazvarela@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Corporativo, Derecho de las Telecomunicaciones, Derechos Humanos, Doctorado en Derecho, Especialización, Formación., Licenciatura en Derecho, Suprema Corte de Justicia, UNAM, UP, Universidad de Salamanca, Universitat Pompeu Fabra
+Tags Propósito: Acceso a la justicia, Actualización, Capacitación, Ciudadanía, Constitución, Difusión, División de poderes, Imparcialidad, Impartición de justicia, Justicia, Legalidad, Medios de comunicación, Normas jurídicas, Orientación, Poder Judicial, Redes sociales., Responsabilidad, Servidores públicos
+
+
+## Descripción del Candidato 
+
+Guadalupe de la Paz Varela Dominguez es candidata al Poder Legislativo Federal, proveniente de las Magistraturas de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con un doctorado en Derecho y una trayectoria académica que incluye estudios en la UNAM, la UP y la Universidad de Salamanca, además de especializaciones en diversas áreas del derecho, incluyendo derechos humanos y telecomunicaciones.
+
+Su motivación para buscar el cargo público radica en la oportunidad de aportar su experiencia a la impartición de justicia con una visión de futuro.  Sus propuestas se centran en la capacitación continua de personas juzgadoras y servidores públicos, así como en la orientación y capacitación ciudadana sobre el acceso a la justicia y el cumplimiento de las normas jurídicas. Considera que la función jurisdiccional debe operar bajo los principios de "para qué, quién y cómo" establecidos en la Constitución y enfatiza la importancia de una impartición de justicia responsable, objetiva y apegada a la legalidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16DLZdQKeb/?mibextid=wwXIfr
+- https://x.com/duque022?s=11&t=X630ST_rvkfAeLAMbDvagw
+- https://www.instagram.com/varela_lupita_de_la_paz?igsh=MXhiMDgzZDRjamhjaQ==
+
+
+## Cursos
+
+- Especialidad en Derecho Corporativo por la UP,Curso de Especialización en Derecho en la Universidad de Salamanca,Diplomado de formación en el Sistema Interamericano de Derechos Humanos,   12a Edición,,Cátedra de Derechos Humanos de la Suprema Corte de Justicia de la Nación y la Universitat Pompeu Fabra,Derecho de las Telecomunicaciones por el Colegio de Secretarios de la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55209/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la UNAM; Doctoranda en Derecho por la UP; Especialidades varias
+
+
+## Motivo para buscar el Cargo Publico
+
+Se abre un nuevo camino en la impartición de justicia con visión de futuro. Tengo la experiencia para aportar al cambio
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional opera bajo tres aspectos: Para qué, quién y cómo, todos previstos en nuestra Constitución Política. Según la división de poderes, esta función le corresponde al Poder Judicial. Cuando por algún acto de un particular o una autoridad el orden jurídico se ve afectado, la función jurisdiccional se materializa en actos destinados a restablecer ese orden mediante el estudio de cada caso y de las normas aplicables para determinar a quién y en qué medida se le concederá razón
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es un acto de suma responsabilidad hacia quien demanda justicia y respecto al orden constitucional y va más allá de sólo ¿decir el Derecho¿. Toda sentencia debe ser una respuesta clara, objetiva y responsable a quien reclama justicia y debe estar apegada fiel y rigurosamente a ese Proyecto de Nación que es nuestra Constitución. A quien se le asigna la alta responsabilidad de impartir justicia tiene la obligación ética y profesional de ser imparcial en el estudio de cada caso
+
+
+## Propuestas
+
+- Capacitación y actualización de las personas juzgadoras. Es sabido que el Derecho y la sociedad están sujetos a cambios; en la impartición de justicia no hay casos idénticos y las circunstancias en que se presenta cada uno responde a peculiaridades de diversa índole. Por ello, la capacitación y actualización debe darse de manera continua según programas que para tal efecto se diseñen anualmente.
+- Capacitación y actualización de servidores públicos responsables de realizar actos de autoridad. La actuación de los servidores públicos se rige tanto por la norma fundamental como por normas ordinarias; sin embargo, los criterios de interpretación y aplicación de éstas no siempre se apegan estrictamente a la legalidad, por lo cual es importante la coordinación para mantener un diálogo fluido y oportuno para fomentar que disminuyan los actos de autoridad ilegales.
+- Establecimiento de jornadas de orientación y capacitación a la ciudadanía en materia de observancia de las normas jurídicas y los medios y formas de acceso a la justicia en los ámbitos federal, local y municipal. Es notoria la desinformación que priva entre la población en cuanto a temas jurídicos. Desde el Poder Judicial, aprovechando los medios de comunicación y las redes sociales se puede hacer una labor de difusión de muy alto valor, sin perjuicio de establecer módulos de orientación.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: LILIANA DELGADO GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de justicia, Derechos humanos, Diplomado, Equidad de género, Facultad de Derecho., Licenciatura en Derecho, Maestría, Procuración de justicia, UNAM
+Tags Propósito: accesibilidad, capacitación, carga de trabajo, derechos, difusión, eficiencia, expeditez, formalismos, igualdad, imparcialidad., independencia judicial, juicio de amparo, justicia, operadores del derecho, población, rigorismos, vocación de servicio, ética, órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Liliana Delgado Gonzalez es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal en Ciudad de México. Cuenta con Maestría en Derechos Humanos y una trayectoria académica en la Facultad de Derecho de la UNAM. Actualmente se desempeña como Juez de Distrito y busca este cargo para continuar su vocación al servicio de la justicia y la igualdad.
+
+Su visión de la función jurisdiccional se centra en la accesibilidad para todos los ciudadanos, eliminando formalismos y promoviendo la difusión de conceptos jurídicos básicos. Propone fortalecer la capacitación de los operadores del derecho en ética y especialización, ampliar la difusión de la función jurisdiccional para facilitar el acceso a la justicia, y crear más órganos jurisdiccionales para distribuir la carga de trabajo y garantizar una justicia expedita e igualitaria para todos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/liliana.delgado.100?locale=es_LA
+- https://www.instagram.com/lilibixo/
+- https://www.youtube.com/@lilibixo
+- https://www.tiktok.com/@lilibixo0
+
+
+## Cursos
+
+- Especialidad en administración y procuración de justicia,Maestría en Derechos Humanos,Diplomado en Derechos Humanos,Curso de equidad de género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53123/10
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho por la Facultad de Derecho de la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy Juez de Distrito y quiero ser Magistrada para seguir con mi vocación al servicio de la justicia y la igualdad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser accesible para todos, considero que lo más importante es eliminar los rigorismos y formalismos, difundir los conceptos jurídicos básicos en un lenguaje accesible, así como la forma en que se pueden hacer valer los derechos, para que las personas se acerquen a los operadores del derecho con la confianza de que serán comprendidos y encontrarán respuestas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para eficientar la impartición de justicia es importante que existan más operadores del derecho, más servidores públicos especializados en la función jurisdiccional, pues es evidente que la capacidad de los que ahora existen está rebasada por el número de habitantes del país. También es importante que estos servidores públicos tengan una verdadera vocación de servicio, para que sean imparciales y no sirvan a intereses privados, sino a los intereses de la población.
+
+
+## Propuestas
+
+- Capacitación de los operadores del derecho, no solo a nivel jurisdiccional, sino desde los organismos encargados de la procuración de justicia (fiscalías o defensorías públicas), no solo para garantizar su especialización, sino también fortalecer su sentido de la ética y de la vocación de servicio, la independencia judicial y la igualdad que debe existir en la impartición de justicia.
+- Generar mayores espacios de difusión sobre la función jurisdiccional y las formas que las personas tienen para acceder a ella, con la finalidad de evitar formalismos y rigorismos jurídicos, pues el juicio de amparo se ha convertido en un medio de defensa técnico, lejos de la eficacia y expedites que marca la Constitución y los estándares internacionales. La población debe tener certeza de que el juicio de amparo es un medio de defensa accesible para todos eficaz para hacer valer los derechos.
+- Promover la creación de más órganos jurisdiccionales con la finalidad de que exista un reparto más equitativo de las cargas de trabajo, con la finalidad de conseguir que la justicia sea expedita, pues es evidente que la maquinaría jurisdiccional está rebasada por el número de habitantes en el país y el cúmulo de problemas jurídicos que se suscitan. La resolución de los asuntos no debe depender de su relevancia pública o económica, sino que se debe atender a todos en igualdad de circunstancias.
+

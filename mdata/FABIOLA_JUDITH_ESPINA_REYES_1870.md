@@ -1,0 +1,79 @@
+Nombre Candidato: FABIOLA JUDITH ESPINA REYES
+Cargo: Juezas/es de Distrito
+Entidad: AGUASCALIENTES
+Sexo: MUJER
+Telefono: 5551026019
+Correo Electronico: faby_espina@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Carrera Judicial., Derecho Constitucional, Derecho Público Global, Derechos Humanos, Especialización, Género, Habilitación, Licenciatura, Máster, Paridad, Poder Judicial de la Federación, Posgrado, Secretaria Judicial, TEPJF, UNAM, Universidad de Mancha
+Tags Propósito: Agilidad, Andamiaje Jurídico, Cercanía Ciudadana, Derechos Humanos, Diversidad, Diálogo Ciudadano, Eficiencia, Empoderamiento Femenino., Equidad, Expedición, Honestidad, Igualdad, Imparcialidad, Independencia, Justicia Vulnerable, Mujeres Deciden, Poder Judicial, Reformas Judiciales, Sentencias Ciudadanas, Servicio Social, Transparencia, Trato Digno, Visibilidad
+
+
+## Descripción del Candidato 
+
+Fabiola Judith Espina Reyes es candidata a Jueza/es de Distrito en Aguascalientes, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con maestría y ha completado estudios de posgrado en derechos humanos y derecho público global en la Universidad de Mancha, España, así como especializaciones en derecho constitucional y habilitaciones en el Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo se basa en su convicción y capacidades para contribuir a un Poder Judicial eficiente y cercano a la ciudadanía. Sus propuestas incluyen una justicia con lenguaje ciudadano y facilitando el diálogo con las autoridades, un actuar basado en la independencia, honestidad e imparcialidad, y promover la participación de las mujeres en espacios de decisión dentro del sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574553816900
+- https://x.com/fabs_espina
+- https://www.instagram.com/fabiola_espina_reyes?igsh=MW1nMGhwdXVhdXVk
+- https://www.tiktok.com/@fabsespina_
+
+
+## Cursos
+
+- Máster en Derechos Humanos con Perspectiva de Género y Paridad  Universidad de  Mancha
+- ,Posgrado de Especialización en Derecho Público Global, Universidad de Mancha, España
+- ,Preespecialidad en Derecho Constitucional, Universidad Nacional Autónoma de México, Facultad de Derecho
+- ,Habilitación en el cargo de secretaria del Poder Judicial de la Federación, curso escolarizado, edición 2023
+- ,Habilitación como secretaria de Estudio y Cuenta de Sala Superior en el Sistema de Carrera Judicial del TEPJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52947/11
+
+
+## Trayectoria Academica
+
+- Soy egresada de la UNAM y de la Universidad de  Mancha, España, a nivel licenciatura y máster
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la convicción y capacidades para sumar al Poder Judicial que se busca: eficiente y cercano a la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las personas juzgadoras estamos obligadas a garantizar la creación de criterios que protejan los derechos de las y los ciudadanos y con las nuevas formas y posibilidades de impartir justicia (a partir de las reformas al Poder Judicial), aparecen exigencias y responsabilidades que nos comprometen a generar un cambio real y dar una respuesta a las demandas sociales que se vean reflejadas en determinaciones que, de manera efectiva, manifiesten esta nueva estructura.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia se ha convertido en uno de los ejes rectores de los derechos humanos que buscan proteger a los sectores más vulnerables para garantizar un trato igualitario y digno para todas las personas y corresponde a las autoridades encargadas de impartirla, asegurar su cumplimiento, en el caso concreto de las personas juzgadoras, a través de las sentencias que emitan y los criterios jurídicos que de ellas se desprendan.
+
+
+## Propuestas
+
+- Justicia cercana: Implica una nueva forma de pensar en la impartición de justicia, a través de la creación de sentencias con lenguaje ciudadano, de que las y los ciudadanos conozcan a las personas encargadas de juzgar y tengan la posibilidad y facilidades de dialogar con las autoridades para que sus peticiones sean escuchadas de manera directa y real.
+- Faro de actuación: Consiste en que la ciudadanía tenga la convicción de que mi actuar estaría dirigido a servir con independencia, honestidad, imparcialidad y servicio en favor de la sociedad mexicana a través de sentencias en las que se reflejen principios y valores como la equidad e igualdad que son necesarios para lograr una justicia más ágil y expedita, que garantice los derechos de todas las personas que, además, se vea reflejado en la consolidación del andamiaje jurídico del Estado.
+- Mujeres tomando decisiones: Estoy convencida de que es tiempo de que las mujeres sigamos ocupando espacios de decisión, puedo aportar un perfil capacitado y joven que tiene la convicción de que debemos estar en todos los espacios, ser visibles, alzar la voz, no solo por nosotras, sino por todas aquellas mujeres que todavía no se atreven a hacerlo, que debemos ser camino para la diversidad y que debemos seguir aportando valor para la sociedad, porque solo así podremos confiar en un mejor futuro.
+

@@ -1,0 +1,78 @@
+Nombre Candidato: MARIO RAFAEL SULVARAN VIÑAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5585362873
+Correo Electronico: msulvaran@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Bloque de Constitucionalidad, Competencia Económica, Derecho Internacional Humanitario, Derecho Regulatorio, Derechos Humanos, Especialista EFFJ, Facultad de Derecho BNA, IFTAM., IIJUNAM, Maestro en Derechos Humanos, Secretarias de Tribunal
+Tags Propósito: Constitución, acceso a la justicia, amparo, análisis de impacto, derechos humanos, desigualdad, función jurisdiccional, igualdad, impacto igualitario, justicia para todos., justicia social, operadores jurídicos, optimización de recursos, pobreza, políticas públicas, protección de derechos, rezago judicial, transformación social
+
+
+## Descripción del Candidato 
+
+Mario Rafael Sulvaran Viñas es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con maestría en derecho y cédula profesional, complementada por una formación especializada en áreas como derechos humanos, competencia económica y derecho regulatorio a través de instituciones como el ITAM, la EFFJ y la American University College of Law.
+
+Su motivación para el cargo público se centra en una vocación de justicia, destacando la importancia del papel de los jueces en la resolución de problemas sociales. Sus propuestas incluyen una visión social de la función jurisdiccional, el análisis de impacto igualitario de las políticas públicas y el combate al rezago en los órganos jurisdiccionales mediante la optimización de recursos y el desarrollo de habilidades del personal. Considera que la impartición de justicia debe enfocarse en la protección de los derechos humanos y la resolución pacífica de conflictos, con un enfoque en la realidad social de los justiciantes.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/RafaSulvaran
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Y2o1hZNh4/
+- https://x.com/rafasulvaran?s=09
+- https://www.instagram.com/rafasulvaran?igsh=cDlzdzE2cDNlZ2F1
+- https://www.tiktok.com/@rafasulvaran?_t=ZM-8v1BeSrWR1C&_r=1
+- https://www.linkedin.com/in/rafael-sulvaran-viC3B1as-5b2558b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- IIJUNAM   LA APLICACIÓN JUDICIAL DEL BLOQUE DE CONSTITUCIONALIDAD,EFFJ PROGRAMA DE ESPECIALIZACIÓN EN COMPETENCIA ECONÓMICA Y REGULACIÓN,EFFJ CURSO INTRODUCCIÓN AL DERECHO REGULATORIO,EFFJ CURSO DE FORMACIÓN PARA PERSONAS SECRETARIAS DE TRIBUNAL DE CIRCUITO,AMERICAN UNIVERSITY COLLEGE  LAW PROGRAMA DE ESTUDIOS AVANZADOS DE DERECHOS HUMANOS E INTERNACIONAL HUMANITARIO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55289/10
+
+
+## Trayectoria Academica
+
+- Abogado por la Facultad de Derecho de la BNA
+- Maestro en derecho humanos y garantías por el ITAM
+- Especialiista EFFJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de justicia y creo que el papel de los jueces es clave para para combatir problemas sociales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En mi experiencia dedicándome a la función jurisdiccional, he podido constatar la relevancia de que existan mecanismos reforzados de protección para las personas, como lo es el amparo, frente a actos de autoridad que involucren la vulneración del ejercicio pleno de sus derechos. Las personas que presentan estos juicios lo hacen con la clara convicción de que el Estado responda y les defienda, depositando su confianza en el actuar imparcial, transparente y justo de los operadores jurídicos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es un acto de justicia social que quienes conocen del amparo vean más que un expediente. Se trata de personas con problemas reales, que se acercan a la justicia con la pretensión de que sus problemas sean resueltos por la vía pacífica, por personas cuyo único objetivo sea tutelar los derechos humanos. La convicción de quienes conocen y resuelven los problemas sociales debe ser estudiar la realidad y cómo el derecho puede contribuir restituir derechos e impartir justicia para todas las personas.
+
+
+## Propuestas
+
+- Visión social. Jueces y magistrados son actores decisivos en los problemas de justicia, no sólo en su papel de garantes de los derechos fundamentales en lo individual, sino en la transformación de la realidad social. Para lograrlo, las personas juzgadoras cuentan con las herramientas necesarias para generar un impacto real y tangible en la reducción, entre otras, de los índices de pobreza y desigualdad.
+- Análisis de impacto igualitario. Con base en los principios fundamentales reconocidos en la Constitución General, es viable desarrollar una doctrina en la que se revise cómo los actos de las autoridades impactan en el principio de igualdad. En otras palabras, la Constitución contiene las bases que facultan a jueces y magistrados para obligar a las autoridades a adoptar políticas públicas que garanticen en mayor medida, una sociedad igualitaria y justa.
+- Combate al rezago. Uno de los problemas más graves que se viven en materia de justicia, es el enorme rezago que tienen los órganos jurisdiccionales, para solucionarlo, además de la necesidad de contar mayores recursos, es necesario optimizar las producción mediante la identificación de las habilidades del personal a efecto de que se produzca más y mejor trabajo, sin necesidad de extender las jornadas laborales y saturar y agotar a los valiosos trabajadores y trabajadoras del PJF.
+

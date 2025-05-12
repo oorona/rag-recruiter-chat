@@ -1,0 +1,77 @@
+Nombre Candidato: JOSE NOEL MORALES CHAVEZ
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 3112626282
+Correo Electronico: mr_noel@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Administrativo, EFFJ, Instituto de la Judicatura Federal., Juicio de Amparo, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Reforma Justicia Laboral, Sistema Penal Acusatorio, Trata de Personas, UNAM
+Tags Propósito: Bienestar social, Cercanía, Constitución, Eficiencia, Experiencia, Justicia laboral, Leyes, Nayarit, Puertas abiertas, Resolución de conflictos, Resultados, Servicio público, Solidaridad, Transparencia, Tribunal Laboral.
+
+
+## Descripción del Candidato 
+
+Jose Noel Morales Chavez es candidato a Juez/a de Distrito en Nayarit, postulándose a través de "En Funciones". Cuenta con Maestría en Derecho con especialidad en Justicia Laboral por la EEFJ y Licenciatura en Derecho por la UNAM. Su formación complementaria incluye diversos diplomados en áreas como el Juicio de Amparo, Derecho Administrativo, Trata de Personas y el Nuevo Sistema de Justicia Penal Acusatorio.
+
+Morales Chavez motiva su candidatura con el servicio público y propone una gestión de la función jurisdiccional enfocada en la prontitud en la resolución de casos, la cercanía con el pueblo nayarita (incluyendo disponibilidad por teléfono) y la transparencia en los procesos de toma de decisiones del Tribunal Laboral. Su visión es lograr que la justicia en Nayarit sea un ejemplo a nivel nacional.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/noel.morales.18
+- https://www.tiktok.com/@noelmoralesnomo
+
+
+## Cursos
+
+- Diplomado ¿El Nuevo Juicio de Amparo¿, modalidad virtual, impartido por el Instituto de la Judicatura Federal
+- ,Diplomado Derecho Administrativo en la Universidad Nacional Autónoma de México
+- ,Diplomado Trata de Personas en Materia Laboral impartido por el Instituto de la Judicatura Federal
+- ,Diplomado Nuevo Sistema de Justicia Penal Acusatorio desde la Perspectiva,Especialización sobre la Reforma en Materia de Justicia Laboral por la EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53853/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UNAM
+- Maestro en Derecho con especializado en Justicia Laboral por la EEFJ
+
+
+## Motivo para buscar el Cargo Publico
+
+El que no vive para servir, no sirve para vivir. Quiero seguir sirviendo a Nayarit poniendo lo mejor de mí a su servicio
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Soy tu juez laboral que conjuga la academia, con la experiencia, de buena voluntad, con espíritu de servicio, solidario y cercanía al pueblo nayarita!!! No soy perfecto pero soy real.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Haré que la justicia en Nayarit sea ejemplo a nivel nacional por sus buenos resultados y cercanía con el pueblo.
+
+
+## Propuestas
+
+- Prontitud: Seguiré resolviendo en meses lo que las juntas tardaban décadas.   Hechos, no palabras: La Constitución y las leyes están bien, pero, cuando resuelven los problemas de la gente: están mejor.
+- Cercanía con el pueblo nayarita: Seguiré recibiendo a todas las personas que lo soliciten, y, además pondré a tus órdenes el 311 26 26 28 2 para tus inquietudes.
+- Justicia de puertas abiertas: Las puertas del Tribunal Laboral seguirán abiertas para que cualquier persona aprecie los procesos de toma de decisiones.
+

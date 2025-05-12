@@ -1,0 +1,80 @@
+Nombre Candidato: MARIBEL CAMACHO FUENTES
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: MUJER
+Telefono: 2221208587
+Correo Electronico: macamachofuentes@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CJF, Competencias Jurisdiccionales, Control de Convencionalidad, Cum Laude., Derecho Fiscal, Derecho Internacional, Derechos Humanos, Licenciatura en Derecho, Maestría en Derecho, Mención Honorífica, Poder Judicial Federal, Programa Nacional, SCJN, Sentencias de Amparo, Tecnológico de Monterrey, UNAM
+Tags Propósito: Acceso a la Justicia, Confianza, Contexto Social, Democracia, Derechos Humanos, Digitalización, Dignidad Humana, Eficiencia, Empatía, Equidad, Firma Electrónica., Honestidad, Imparcialidad, Justicia, Medios Electrónicos, Rigor, Transformación, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Maribel Camacho Fuentes es candidata a Jueza/es de Distrito en Baja California Sur, postulándose a través de "En Funciones". Es licenciada y Maestra en Derecho (UNAM), con cédula profesional. Cuenta con formación continua en áreas como Derechos Humanos, competencias jurisdiccionales y elaboración de sentencias de amparo.
+
+Su motivación para buscar el cargo se centra en el servicio a la sociedad, la garantía de derechos y la promoción del bien común con transparencia y ética. Su visión de la función jurisdiccional enfatiza la aplicación de la ley con rigor técnico y empatía, buscando hacer justicia con humanidad y dignificar a las personas. Sus propuestas incluyen agilizar los trámites judiciales, impulsar el uso de medios electrónicos en el sistema judicial y fortalecer una justicia cercana, protectora de derechos humanos y que inspire confianza.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/maribelcamachofuentes/
+- https://www.x.com/m_camachof
+- https://www.instagram.com/maribel_camachofuentes
+- https://www.tiktok.com/maribel.camacho.f
+
+
+## Cursos
+
+- Derechos Humanos
+- SCJN,Competencias Básicas para Órganos Jurisdiccionales
+- Tecnológico de Monterrey,Taller de Elaboración de Sentencias de Amparo Directo y de Amparo Contra Leyes
+- SCJN,Derechos Humanos Control de Convencionalidad
+- El Poder Judicial Federal y el Derecho Internacional de los DDHH,Materia Impositiva, Programa Nacional
+- CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52521/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho con mención honorífica (UNAM, 2004)
+- Maestra en Derecho con terminal en Fiscal, mención cum laude
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es clave para servir a la sociedad, garantizar derechos y promover el bien común con transparencia y ética.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no se limita a resolver conflictos, sino a hacer justicia con humanidad. Un juez debe aplicar la ley con rigor técnico, pero también con empatía, comprendiendo el contexto social de cada caso. Su labor debe dignificar a las personas, garantizando equidad, escucha activa y protección de derechos fundamentales. Aspiro a una justicia accesible, transformadora y cercana, donde cada decisión contribuya a fortalecer la confianza en el sistema, con imparcialidad y honestidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia exige más que conocimientos jurídicos: demanda sensibilidad social, equilibrio entre la ley y el contexto humano, y compromiso con la equidad. Un juez debe ser imparcial, pero no indiferente; riguroso, pero no inflexible. Cada sentencia debe buscar no solo resolver el conflicto, sino también reparar el tejido social, garantizando acceso efectivo a los derechos. Aspiro a una justicia accesible, transparente y humanista, donde la dignidad de las personas sea lo mas importante
+
+
+## Propuestas
+
+- Una justicia que inspire confianza, transforme vidas y fortalezca la democracia, cercana a las personas y protectora de los derechos humanos.
+- Agilizar el tramite de los asuntos para el inmediato dictado de la sentencia y el cumplimiento de las mismas
+- Impulsar en los usuarios de los servicios jurisdiccionales, el uso de los medios electrónicos y de la Firma electrónica, para el trámite, seguimiento y presentación de promociones a través de internet.
+

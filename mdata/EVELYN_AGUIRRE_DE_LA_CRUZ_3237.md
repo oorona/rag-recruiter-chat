@@ -1,0 +1,75 @@
+Nombre Candidato: EVELYN AGUIRRE DE LA CRUZ
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9932302162
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Criminología, Derecho Penal Acusatorio, Doctorado, Género, Licenciatura en Derecho, Maestría, Perspectiva de Género., Psicología Jurídica, Sistema de Justicia para Adolescentes, Universidad Juárez Autónoma de Tabasco, Violencia contra Niños
+Tags Propósito: Acceso a la justicia, Capacitación, Cercanía, Contexto social, Derechos, Eficiencia, Igualdad, Impartidores de justicia, Instituciones, Justicia, Operadores jurídicos., Paradigmas, Profesionalismo, Protección, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+EVELYN AGUIRRE DE LA CRUZ es candidata a Jueza/es de Distrito en Tabasco, postulada por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado y cédula profesional, así como formación en áreas como Psicología Jurídica y Crimenología, el Sistema Penal Acusatorio y Justicia para Adolescentes, incluyendo cursos sobre perspectiva de género.
+
+Su motivación para buscar el cargo es contribuir a un Poder Judicial más eficiente, cercano a las personas y profesional. Su visión de la función jurisdiccional se centra en la importancia de juzgadores comprometidos y honestos para generar cambios positivos y proteger a los grupos vulnerables. Sus propuestas incluyen acercar la justicia a los ciudadanos, especialmente a grupos vulnerables a través de programas de participación, y reforzar la capacitación continua de los operadores jurídicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1KSbZkc4ts/
+- https://x.com/Aguirre_Evelyn1?t=rXy1eKT3iIiapEm-oqdrHQ&s=09
+- https://www.instagram.com/aguirredelacruzevelyn?igsh=ZHVuNTNramRoNzN4
+- https://www.tiktok.com/@aguirredelacruzevelyn?_t=ZM-8v35Gb4XIuL&_r=1
+- https://www.facebook.com/share/1DGS6PDGb6/
+
+
+## Cursos
+
+- Maestría en Psicología Jurídica y Criminología,Doctorado en Derecho en el Sistema Penal Acusatorio,Especialidad en Sistema de Justicia para Adolescentes,Encuentro Estatal para poner fin a la violencia contra Niñas, Niños y Adolescentes,Curso, Juzgar con perspectiva de Género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52212/11
+
+
+## Trayectoria Academica
+
+- Me gradúe como licenciada en derecho por la Universidad Juárez Autónoma de Tabasco
+
+
+## Motivo para buscar el Cargo Publico
+
+Para realizar aportaciones a un poder judicial más eficiente, eficaz, cercano a las personas y profesional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional realizada a través de juzgadores comprometidos, objetivos, honestos y profesionales es de suma relevancia en pro de un país más justo, estoy convencida que son precisamente los juzgadores quienes, en el proceso de la impartición de justicia, pueden generar cambios de paradigmas positivos, para que la ciudadanía confíe en sus instituciones, otorgando protección a los grupos vulnerables, quienes en mayor medida sufren los estragos de las desigualdades sociales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Lejos de legalismos, impartir justicia, es más que dar a cada uno lo que le corresponde o pertenece, ya que en aras de una debida impartición de justicia se necesita juzgadores humanos, cercanos a los requerimientos de la ciudadanía, para no ignorar el contexto social y poder realmente aplicar los conocimientos adquiridos, de tal forma que no se les restrinjan derechos a los justiciables, sino que se les brinde una autentica protección por parte del Estado.
+
+
+## Propuestas
+
+- Darles a los ciudadanos cercanía con el juzgador, a través de mecanismos que permitan el acceso a la justicia, sobre todo de los grupos vulnerables, mujeres, niñas, niños, adolescentes, personas con discapacidad, comunidades indígenas y otros grupos en situación de vulnerabilidad, con la implementación de programas que faciliten su participación en los procesos.
+- Reforzar las constantes capacitaciones, por medio de sistemas de formación especializada para los impartidores de justicia y demás operadores jurídicos.
+- No proporcionó
+

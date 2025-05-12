@@ -1,0 +1,76 @@
+Nombre Candidato: JUDITH COVA CASTILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5551933610
+Correo Electronico: judithcovamagistrada2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Asociación Nacional Doctores Derecho, CUDF, Carrera Judicial, Conferencista., Corte Interamericana DH, Derecho, Docencia, IEJ, INDAUTOR, Juez, Konrad Adenauer Stifung, Magistrada, Propiedad Intelectual, Secretaria de Acuerdos, Senado de la República, TSJ, Tribunal Superior de Justicia CDMX, UBarcelona, UMadrid, UNAM
+Tags Propósito: acceso a abogados, acceso a la justicia, atención personalizada, carga de trabajo, carrera judicial, cercanía judicial, contacto humano, defensoria publica, derechos humanos, digitalización, eliminación burocracia, formación continua, justicia social, lenguaje claro, materias especiales, paz social, responsabilidad social., servidores públicos, simplificación jurídica
+
+
+## Descripción del Candidato 
+
+JUDITH COVA CASTILLO es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulada por el Poder Ejecutivo Federal. Cuenta con más de 42 años de experiencia en el Poder Judicial, desempeñándose como Secretaria de Acuerdos, Juez y Magistrada, además de su trayectoria como docente y conferencista.  Posee un amplio nivel de estudios, incluyendo doctorados de la UMadrid, CUDF y UBarcelona, así como reconocimientos del Senado de la República y del Tribunal Superior de Justicia de la Ciudad de México.
+
+Su motivación para buscar el cargo es continuar sirviendo al país promoviendo la justicia social y el respeto a los derechos humanos.  Entre sus principales propuestas destacan ampliar el número de órganos jurisdiccionales, mejorar la preparación continua de los jueces, e incrementar el número y la capacitación de los defensores públicos, buscando un sistema judicial más accesible, eficiente y con un lenguaje comprensible para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574945754403
+- https://x.com/Judithmagistrad
+- https://www.instagram.com/judithmagistrada2025/
+- https://www.youtube.com/channel/UCZLNxWtRSBY4_7w3hiHVNzA
+- https://www.tiktok.com/@judithcmagistrada
+
+
+## Cursos
+
+- Licenciatura en Derecho UNAM, Maestría UNAM, Doctorado UMadrid, Maestría UBarcelona, Doctorado CUDF,Reconocimiento otorgado por el Senado de la República Mexicana y el Tribunal Superior de Justicia de la Ciudad de México,Reconocimiento otorgado por la Asociación Nacional de Doctores en Derecho,Constancia otorgado por el INDAUTOR por su participación en el Seminario de Propiedad Intelectual,Constancia otorgada por el TSJ, el IEJ y la Fundación Konrad Adenauer Stifung y la Corte Interamericana de DH
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52923/10
+
+
+## Trayectoria Academica
+
+- Cuento con más de 42 años de Carrera Judicial como Secretaria de Acuerdos, Juez y Magistrada
+- Docente y Conferencista
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero continuar sirviendo a mi país desde donde se puede hacer justicia social y respetar derechos humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Con el trabajo que se realiza por jueces y magistrados en los tribunales, se logra la tan ansiada paz social que nuestro pueblo necesita. Y sobretodo en esta función se encuentra el equilibrio entre los derechos de los ciudadanos que en su mayoría requieren a un juez cercano a ellos y que sea capaz de escuchar.Poniendo especial atención para emitir sentencias sencillas y con sentido humano. Los tribunales deben ser una solución y no un obstáculo burocrático para resolver los problemas del pueblo
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de Justicia requiere mejorar la forma en que se trabaja, se debe modificar el lenguaje jurídico técnico, a uno mas sencillo y comprensible para el común de las personas y así no sea necesario consultar a un abogado para que se explique el contenido de una sentencia o un procedimiento; Se requiere más cercanía del juzgador con la población, eliminar burocracia y trámites innecesarios. Requerimos juzgadores más aptos y experimentados, con sentido humano y responsabilidad social.
+
+
+## Propuestas
+
+- Necesitamos ampliar el número de órganos jurisdiccionales, debido a que la población ha aumentado considerablemente. La digitalización no es suficiente ya que no resuelve la carga de trabajo y se pierde el contacto humano con el ciudadano y que en muchas ocasiones es indispensable. Debemos enfocarnos hacia la atención personal y directa con el ciudadano y quizás tener un sistema mixto con la digitalización y el trato directo con el público. No hay que sacrificar calidad por agilidad.
+- La carrera judicial es un aspecto fundamental para los juzgadores, hay que incentivar la preparación continua del servidor público dedicado a la administración de justicia, de manera que dicha preparación justifique su ascenso para los cargos de juez o magistrado. El juzgador debe ser consiente que se debe a su pueblo y a su país; y el mejoramiento de sus estudios beneficia ese deber a su gente. Se debe invertir en las instituciones judiciales para formar verdaderos servidores públicos.
+- Se requieren más defensores públicos y mejor preparados, en todas las materias que requieren atención especial por la cantidad de asuntos que hay como en materia familiar, civil, laboral, penal y seguridad social. Es poca la gente que puede pagar abogados con honorarios altos. Necesitamos que los defensores públicos sean capacitados continuamente, sobretodo en el aspecto humano, pues el pueblo que acude requiere atención personalizada y sin tanta burocracia.
+

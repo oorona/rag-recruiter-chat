@@ -1,0 +1,73 @@
+Nombre Candidato: JOSE DE JESUS VAZQUEZ CONTRERAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: josedejesus99@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Capacitación, Catedrático Universitario, Derecho Constitucional, Derechos Humanos, Derechos Humanos Internacionales, Diplomado, Licenciatura en Derecho, Maestría., Razonamiento Probatorio, Resolución Oral, Sistema Penal Acusatorio, Suprema Corte de Justicia, Universidad de Ottawa
+Tags Propósito: Accesibilidad, Acceso a la justicia, Agilidad, Burocracia, Cercanía a la gente, Confianza pública, Constitución, Derechos humanos, Dilación procesal, Eficiencia, Forma, Imparcialidad, Independencia judicial, Justicia, Optimización, Poder judicial, Publicidad, Rendición de cuentas, Resolución de conflictos, Resolución de fondo, Tecnologías, Tiempos de resolución., Transparencia
+
+
+## Descripción del Candidato 
+
+Jose de Jesus Vazquez Contreras es candidato a Magistratura de Tribunales Colegiados de Circuito en Hidalgo, postulándose desde el Poder Ejecutivo Federal. Cuenta con maestría en Derecho Constitucional y Amparo, así como una trayectoria como catedrático universitario. Ha realizado diversos cursos y diplomados en materia de derechos humanos, sistema penal acusatorio y razonamiento jurídico, incluyendo estudios en la Suprema Corte de Justicia de la Nación y la Universidad de Ottawa.
+
+Su motivación para buscar el cargo se basa en la creencia en un Poder Judicial sólido, independiente y cercano a la gente.  Sus propuestas principales incluyen priorizar el estudio de fondo de los asuntos para evitar dilaciones, garantizar la publicidad y transparencia de las resoluciones, y reducir los tiempos de emisión de las mismas, buscando un sistema judicial eficiente, accesible y justo en estricto apego a la Constitución y los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1JKfW6Gz2p/
+
+
+## Cursos
+
+- Diplomado en la Defensa de Derechos Humanos, impartido por la Suprema Corte de Justicia de la Nación
+- ,Curso en Razonamiento y Valoración Probatoria,Capacitación en la Elaboración de Resoluciones Orales, por la Universidad de Ottawa, Canadá,Curso Avanzado en Derechos Humanos Internacionales
+- ,Diplomado en el Sistema Penal Acusatorio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55366/10
+
+
+## Trayectoria Academica
+
+- maestría en derecho constitucional y amparo licenciatura en derecho catedrático universitario
+
+
+## Motivo para buscar el Cargo Publico
+
+creo creo en un poder judicial solido, independiente y cercano a la gente la justicia debe ser imparcial y sensiblela
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+la función jurisdiccional debe estar guiada por tres principios fundamentales imparcialidad, cercanía y eficiencia creo en un sistema judicial transparente accesible y justo para todos a través de resoluciones solidas y bien fundamentadas siempre en estricto apego a la constitución y los derechos humanos. me comprometo a impulsar un tribunal que comunique con claridad sus decisiones promoviendo la transparencia y la rendición de cuentas. la función debe ser un pilar de confianza para la sociedad
+
+
+## Vision sobre la Imparticion de Justicia
+
+el acceso a la justicia debe ser una realidad para todos, sin importar condición social o étnica trabajare para que los procesos sean mas comprensibles transparentes y agiles, la carga de trabajo y la burocracia no deben ser obstáculos para una justicia pronta y expedita impulsare el uso de tecnologías y buenas practicas para optimizar los tiempos de resolución y evitando reposiciones dilatorias privilegiando la resolucion del fondo antes que de la forma. que cada resolucion genere confianza
+
+
+## Propuestas
+
+- privilegiar el estudio de fondo de los asuntos y evitar resoluciones que dilaten los procesos de manera innecesaria
+- publicidad y transparencia de las resoluciones para garantizar la imparcialidad de las mismas promoviendo un sistema accesible para todos
+- reducir los tiempos para emitir resoluciones
+

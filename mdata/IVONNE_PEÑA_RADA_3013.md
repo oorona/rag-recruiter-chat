@@ -1,0 +1,77 @@
+Nombre Candidato: IVONNE PEÑA RADA
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: lalic.ivonnerada@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Arbitraje Internacional, Juzgado de Distrito, Licenciatura en Derecho, Maestría Derecho Procesal Penal, Oficial Judicial, Secretaria de Tribunal, Sistema Justicia Penal Acusatorio, UVM, Universidad Valle del Bravo., beca, oposición escolarizado
+Tags Propósito: Actualización Profesional, Anticorrupción, Antinepotismo, Capacitación Jurisdiccional, Derechos Humanos, Dilación, Eficiencia, Excelencia, Experiencia Judicial, Grupos Vulnerables, Honradez, Integración de Juicios, Justicia, Legalidad, Mérito, PJF., Perspectiva de Género, Preparación, Responsabilidad, Servidores Públicos, Transparencia, Trayectoria Profesional
+
+
+## Descripción del Candidato 
+
+Ivonne Peña Rada es candidata a Jueza/es de Distrito en Querétaro, postulada por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Penal y una trayectoria de 14 años dentro del Poder Judicial de la Federación, habiendo ingresado como meritoria sin recomendaciones. Su motivación para buscar el cargo es servir con justicia, horadez, responsabilidad y experiencia.
+
+Sus propuestas incluyen la integración pronta de juicios para agilizar la emisión de sentencias, la capacitación continua de su equipo de trabajo y el fomento de una práctica laboral con estricta honradez, anticorrupción y antinepotismo. Señala su experiencia como base para un desempeño justo e independiente, destacando su trayectoria forjada por el trabajo y la preparación sin influencias internas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15oEBm9bzB/
+- https://x.com/Lalicivonne?t=_FXwycQhjLn8decjEjtbEA&s=09
+- https://www.tiktok.com/@ivonnerada4?_t=ZM-8uwM8b2YhKH&_r=1
+
+
+## Cursos
+
+- 2024 Quinto concurso abierto de oposición escolarizado, para obtener la habilitación del cargo de Oficial Judicial
+- ,2016 Aprobación de examen de Secretaria de Tribunal de Circuito y Juzgado de Distrito
+- ,2016 Culminación de Maestría en Derecho Procesal Penal en el Centro de Estudios de Posgrados, campus Tampico
+- ,2011 Diplomado sobre el Sistema de Justicia Penal Acusatorio desde la Perspectiva Constitucional, impartido por la SCJN
+- ,2008 Curso de Arbitraje Internacional, organizado por el Centro de Arbitraje de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54853/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho egresada de la Universidad Valle del Bravo/UVM, en donde fui becada al 100 toda la carrera
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con justicia, horadez, responsabilidad y experiencia de 14 años de carrera JF forjada a base de preparación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional que desarrollaré de ser electa por este bello Estado de Querétaro, será la de servir con justicia, honradez, responsabilidad y experiencia de 14 años de carrera judicial forjada a base de preparación y trabajo, desde el primer día en que ingresé como meritoria y sin recomendaciones al Poder Judicial de la Federación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de impartición de justicia que efectuaré de ser electa será pronta, expedita y apegada a la legalidad de nuestra Constitución y normas que ejecutaré al pie de la letra, con estricto apego a los derechos humanos, con perspectiva de género y especial atención a los grupos vulnerables, en todo asunto del que me toque conocer.
+
+
+## Propuestas
+
+- La primer propuesta para la mejora de la función jurisdiccional, en el Juzgado que se me asigne de resultar electa, será la de integrar a la brevedad todos los juicios a fin de que se pueda dictar sentencia sin dilación alguna. Lo anterior, toda vez que es de mi conocimiento que muchos asuntos se demoran en trámite y por esta razón no se logran integrar para el dictado de sentencia, retardando así los asuntos y con ello la impartición de una justicia pronta y expedita.
+- La segunda propuesta de mejora, será la de capacitación y actualización jurisdiccional constante de todo mi equipo de trabajo y de su servidora. Pues con ello podré garantizar que los asuntos serán tramitados y resueltos con excelencia, prontitud y estricto apego a nuestra Constitución, normas y criterios jurisprudenciales actualizados, lo que dará como resultado un equipo de trabajo de excelencia para servir con justicia.
+- La tercera propuesta será la de laborar con estricta honradez, anticorrupción y antinepotismo, vigilando que todo mi equipo de trabajo también cumpla a la cabalidad dicha labor. Pues con 14 años de carrera judicial pase por titulares honorables pero también por los que tenían compromisos, privando así el crecimiento de servidores públicos como su servidora, que sin familiares dentro del sistema del PJF, ni recomendación, ingresé como meritoria y forjé mi carrera a base de trabajo y preparación.
+

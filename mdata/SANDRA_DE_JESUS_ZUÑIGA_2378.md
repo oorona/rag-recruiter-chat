@@ -1,0 +1,77 @@
+Nombre Candidato: SANDRA DE JESUS ZUÑIGA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: sandradejesuszuniga@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Arbitraje, Derecho, Derechos Fundamentales, Derechos Humanos, Discapacidad, Estándares Internacionales, Género, Impartición de Justicia, Interculturalidad, Jurisdiccional, Maestría en Derechos Humanos., Migración, Proporcionalidad, Reforma Fiscal, Responsabilidad Ambiental, Universidad Complutense de Madrid
+Tags Propósito: acceso a la justicia, constitución, derechos humanos, equilibrio de poderes, escucha activa., imparcialidad, independencia judicial, intereses económicos, intereses políticos, justicia social, legalidad, poder judicial, resoluciones accesibles, sociedad, transparencia
+
+
+## Descripción del Candidato 
+
+SANDRA DE JESUS ZUÑIGA es candidata a Jueza/és de Distrito en la Ciudad de México, postulándose en la categoría “En Funciones”. Cuenta con maestría en Derechos Humanos y un título de Licenciatura en Derecho de la Universidad Complutense de Madrid. Su trayectoria académica y profesional se centra en la defensa de los derechos humanos, lo que la motiva a buscar el cargo público.
+
+Su visión de la función jurisdiccional se basa en el equilibrio de poderes, la independencia y la atención al reclamo social de justicia. Sus propuestas principales incluyen propiciar un mayor acceso a la justicia, un acercamiento a la sociedad a través de un lenguaje accesible y la defensa de la independencia jurisdiccional ante cualquier tipo de interés externo. Se puede encontrar más información sobre su perfil y trayectoria en el enlace proporcionado a su Curriculum Vitae y en sus redes sociales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/14mVdLDjr2/
+- https://www.instagram.com/sandradejesuszuniga?igsh=NHYyMzBjeXRrN3N4
+- https://www.tiktok.com/@sandra.de.jesus.z?_t=ZM-8v4UC2vvMCz&_r=1
+
+
+## Cursos
+
+- Juzgando con Base en los Derechos Humanos, Estándares Internacionales en Derechos Humanos, Migración y Género
+- ,Proporcionalidad e interpretación de DH; Protección de los Derechos Fundamentales; Diplomado Responsabilidad Ambiental
+- ,Jornada de Estudio la Labor Jurisdiccional como Garantía de los Derechos Humanos de las Personas con Discapacidad
+- ,Fortalecimiento de la Impartición de Justicia con Perspectiva de Género e Interculturalidad
+- ,Panel sobre Colaboración y Asistencia Judicial en el Arbitraje; Ciclo de Conferencias Reforma Fiscal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52562/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, máster por la Universidad Complutense de Madrid y maestría en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Por amor a mi país y a mi función, desde el poder judicial he defendido los derechos humanos de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El poder judicial debe atender el reclamo social de justicia, ser parte de un verdadero equilibrio de poderes, no pretender imponerse a ningún otro poder y no regirse por intereses económicos o políticos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las y los juzgadores deben propiciar acercamiento a la sociedad, atender los reclamos de justicia y defender los derechos de las personas, sin intervenciones e intereses de ningún tipo, con conocimiento, experiencia e independencia en el desempeño de su función.
+
+
+## Propuestas
+
+- Propiciar un mayor acceso a la justicia.
+- Acercamiento a la sociedad, con un lenguaje accesible en nuestras resoluciones, escucha activa de los justiciables y con pleno respeto a sus derechos.
+- Impedir la intromisión de intereses políticos, económicos o de cualquier tipo en las determinaciones jurisdiccionales, apegar nuestro actuar a la Constitución y a la ley.
+

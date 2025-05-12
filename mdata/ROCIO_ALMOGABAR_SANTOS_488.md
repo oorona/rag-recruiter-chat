@@ -1,0 +1,76 @@
+Nombre Candidato: ROCIO ALMOGABAR SANTOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5549899257
+Correo Electronico: rocioalmogabarr@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Constitucional., Derecho Notarial, Judicial, Licenciatura en Derecho, Licenciatura en Psicología, Maestría en Derechos Humanos, Secretario de Juzgado, Suprema Corte, Tribunal Colegiado
+Tags Propósito: acceso a la justicia, amparo, derecho accesible, derecho positivo., derechos humanos, interpretación del derecho, justicia de oficio, justicia empática, justicia expedita, justicia humana, justicia precisa, justicia pronta, legibilidad de sentencias, necesidades de las partes, sentencias entendibles, sentencias justas, sentencias ágiles, supletoriedad de la queja
+
+
+## Descripción del Candidato 
+
+Rocío Almogabar Santos es candidata al Poder Legislativo Federal, postulándose para Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con una formación académica en Derecho y Psicología, complementada con una Maestría en Derechos Humanos con orientación constitucional y diversos cursos de especialización en el ámbito judicial, incluyendo preparación para roles en Juzgados de Distrito, Tribunales Colegiados y la Suprema Corte de Justicia de la Nación, así como en Derecho Notarial.
+
+Su motivación para buscar el cargo público se centra en lograr una justicia más humana y accesible para todos los ciudadanos. Propone sentencias ágiles, legibles y con un enfoque en la atención a las partes, buscando que las resoluciones sean claras, precisas y que protejan los derechos de los mexicanos de manera expedita y justa. Su visión de la función jurisdiccional implica una aplicación proactiva del amparo, incluso sin solicitud expresa de las partes, enfocándose en la protección de los derechos humanos y una interpretación justa de las leyes.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FvjN1qd56/?mibextid=wwXIfr
+- https://x.com/rocioalmog50959?s=21
+- https://www.instagram.com/rocio_almogabar?igsh=MTRtcDFydjRnamln&utm_source=qr
+- https://www.tiktok.com/@rocioalmogabar__?_t=ZM-8v4c4zjTfjq&_r=1
+- https://www.threads.net/@rocio_almogabar?igshid=NTc4MTIwNjQ2YQ==
+
+
+## Cursos
+
+- Curso de Especialización Judicial del Instituto de la Judicatura Federal,Preparación y Capacitación para Secretario de Juzgado de Distrito,Preparación y Capacitación para Secretarios de Tribunal Colegiado,Preparación y Capacitación para Secretarios de la Suprema Corte de la Justicia de la Nación
+- ,Curso de Especialización en Derecho Notarial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55555/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y en Licenciatura en Psicología, Maestría en Derechos Humanos con Orientación en Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco que la justicia sea mas humana y que el derecho sea para todas y todos, siempre velando por lo que es correcto.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser simple, sin tactos tecnicismos, en donde el juzgador entienda la conducta de las partes, y resuelva aplicando la suplencia de la queja, esto es que el juez si advierte que existió una violación a la ley debe proceder a conceder el amparo para que no sean violados los derechos de la parte afectada, esto incluso sin que lo soliciten las partes, pues la justicia no debe ser a petición, debe ser de oficio, donde las y los juzgadores hagamos nuestra labor con pasión y amor a la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al impartir justicia voy a atender las conductas de las partes, y si me lo permite la ley suplir la deficiencia de la queja para efecto de que los mexicanos puedan ser protegidos por la justicia federal, para efecto de que no se vean vulnerados los derechos humanos de las y los mexicanos. Por eso dictare sentencias justas y entendibles, pues yo también soy mexicana, madre y jefa de familia, amiga, tia y hermana, y si en mis manos esta la oportunidad de hacer un cambio con amor lo realizare.
+
+
+## Propuestas
+
+- Propongo sentencias ajiles, que no tarden mas de un mes en resolverse, sin descuidar la parte del estudio concreto y a fondo del asuntos, pues la justicia debe ser de fácil acceso pero precisa, que asegure que se protegiera la esfera jurídica de cada uno de los mexicanos, por eso me comprometo a estudiar cada caso a detalle y resolverlo en tiempo y forma rápido y preciso, siempre velando por la impartición de justicia pronta y expedita pero sobre todo justa.
+- Propongo sentencias legibles de fácil lectura y entendibles, que resuelvan el asunto de manera clara y concreta, esto con el fin de que toda persona pueda entenderla y sepa como fueron protegidos sus derechos, pues no debería ser requerido entender tecnicismos legales para poder entender una sentencia, hay que hacerlas claras y precisas para que todo ciudadano pueda entenderla.
+- Propongo que el juzgador siempre este presente para las partes y pueda oírlas, con el fin de atender su causa de pedir, ya que basta con que los ciudadanos expresen de manera simple lo que pide y el juzgador resuelva siempre tomando en consideración el derecho positivo y las necesidades de las partes, pues si bien hay que resolver conforme lo indican las leyes, el juzgador debe ser capaz de interpretar estas de la manera mas justa y precisa para cada caso en concreto,
+

@@ -1,0 +1,76 @@
+Nombre Candidato: ANGELICA IVETH LEYVA GUZMAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: campana.angelicaleyva01@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Curso, Derecho Constitucional, Derechos Humanos, Diplomado, Especialización., Justicia Laboral, Licenciatura, Maestría, Poder Judicial, Seguridad Social, Universidad Panamericana, Universidad la Salle, Violencia
+Tags Propósito: accesibilidad, austeridad presupuestal, cordialidad, cuidado ambiental, digitalización, honestidad, humanismo, imparcialidad, justicia, justicia empática, moral, respeto, sentencias claras, servicio público, simplificación., transparencia, ética
+
+
+## Descripción del Candidato 
+
+Angélica Iveth Leyva Guzmán es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo y Legislativo Federal. Cuenta con maestría en Derecho Constitucional y Derechos Humanos, y cédula profesional. Su trayectoria académica incluye la Licenciatura por la Universidad La Salle y la Maestría por la Universidad Panamericana, complementada con diversos cursos y diplomados en áreas como justicia laboral, seguridad social y formación judicial.
+
+La candidata basa su motivación en impartir una justicia honesta, imparcial y cercana a la gente. Sus propuestas centrales incluyen facilitar el acceso a la justicia, la elaboración de sentencias accesibles y la implementación de una política de ahorro y cuidado ambiental mediante la digitalización de procesos. Busca que la función jurisdiccional se base en conocimientos técnicos, ética, moral y un servicio a la gente, con un enfoque humano y empático en la resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573773582320
+- https://x.com/angelicaleyvag
+- https://www.instagram.com/angelicaleyvaguzman/
+- https://www.tiktok.com/@angelicaleyvaguzman
+- https://www.linkedin.com/in/angC3A9lica-leyva-guzmC3A1n-37aa68354/
+
+
+## Cursos
+
+- Maestría en Derecho Constitucional y Derechos Humanos por la Universidad Panamericana,Curso de Formación y Preparación de Secretarios del Poder Judicial estudios de especialidad (EFFJ),Diplomado de Actualización Sobre la Reforma en Materia de Justicia Laboral (EFFJ),Diplomado en Materia de Seguridad Social (EFFJ),Curso para Generar Espacios Libres de Violencia (EFFJ)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53840/10
+
+
+## Trayectoria Academica
+
+- Licenciatura (Universidad la Salle) Maestra en Derecho Constitucional y Derechos Humanos (Universidad Panamericana)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir la justicia que los mexicanos necesitamos de manera honesta, imparcial y cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de una persona juzgadora no sólo requiere de amplios conocimientos técnicos, sino que también son necesarias cualidades éticas y morales, como la honestidad, imparcialidad, humanismo y espíritu de servicio. De manera que los conocimientos académicos y profesionales se encuentren verdaderamente al servicio del pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia entendida como dar a cada quien lo que le corresponde, no debe ser impartida mediante la mera aplicación de leyes, sino que debe incluir una visión humana y empática de los conflictos de las personas que se someten a nuestro conocimiento.
+
+
+## Propuestas
+
+- Justicia a puertas abiertas. El desempeño del cargo se realiza con humildad y plena disposición para atender a las personas de manera cordial y respetuosa.
+- Elaboración de sentencias accesibles. Lo cual deriva en dos áreas de oportunidad, esto es, al simplificar su estructura y redacción ello repercute en: 1) facilitar la lectura y comprensión; y 2) reducir el tiempo en la elaboración del proyecto de sentencia.
+- Política cero papel. Los acuerdos o proyectos de sentencia sujetos a revisión, deberán ser entregados en formato digital, lo cual no sólo implica una medida de ahorro de recursos materiales, sino que también se traduce en una acción de cuidado ambiental y de austeridad presupuestal.
+

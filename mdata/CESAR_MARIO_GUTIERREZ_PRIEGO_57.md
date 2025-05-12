@@ -1,0 +1,79 @@
+Nombre Candidato: CESAR MARIO GUTIERREZ PRIEGO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5555750510
+Correo Electronico: cesargutipri@gpgfirmalegal.com
+Numero de lista en boleta: 49
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 20 años de experiencia., Derecho Constitucional, Derecho Criminal, Derechos Humanos, Gestión de Salud, Juicio de Amparo, Materia Penal, Penal Militar, Postulación, Seguridad Nacional, Trayectoria Profesional
+Tags Propósito: Constitución, acceso a la justicia, bienestar colectivo, burocracia., control de constitucionalidad, debido proceso, derechos humanos, digitalización, independencia judicial, justicia, justicia penal, medios alternativos, procesos penales, rendición de cuentas, reparación del daño, solución de conflictos, tecnologías, transparencia
+
+
+## Descripción del Candidato 
+
+CESAR MARIO GUTIERREZ PRIEGO es candidato al Poder Legislativo Federal, con número de lista 49. Actualmente se desempeña como Ministra/o de la Suprema Corte de Justicia de la Nación y cuenta con Maestría y cédula profesional. Su trayectoria académica se centra en la postulación en materia penal, penal militar y cuestiones de seguridad nacional durante más de 20 años, complementada con diplomados en diversas áreas del derecho y la gestión de la salud.
+
+Gutierrez Priego busca el cargo público con el objetivo de contribuir con sus capacidades en beneficio de la ciudadanía. Su visión de la función jurisdiccional y la impartición de justicia se centra en garantizar el acceso a la justicia, la protección de los derechos humanos y procesales, y la transparencia. Entre sus propuestas destacan la utilización de herramientas tecnológicas para agilizar los procesos, la implementación de procesos transparentes con rendición de cuentas y la despresurización del sistema de justicia penal a través de medios alternativos de solución de conflictos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Cesargutipri/
+- https://x.com/cesargutipri
+- https://www.instagram.com/cesargutipri
+- https://www.youtube.com/c/FifC3ADNetwork
+- https://www.tiktok.com/@cesargutipri1
+- https://www.threads.net/@cesargutipri
+
+
+## Cursos
+
+- Diplomado en Derecho Criminal,Diplomado en Derecho Constitucional
+- ,Diplomado en Juicio de Amparo
+- ,Diplomado en Derechos Humanos
+- ,Diplomado en Gestión de Salud
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/56/6
+
+
+## Trayectoria Academica
+
+- Me he dedicado por más de 20 años a la postulación en Materia Penal, Penal Militar y Cuestiones de Seguridad Nacional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero tener la oportunidad de aportar a mi país con la mayor de mis capacidades en beneficio de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión tiene que garantizar el acceso a la justicia y que todos tengan la posibilidad de ser escuchados y juzgados conforme a la protección de los derechos humanos y procesales siendo los órganos de justicia los guardianes de estas libertades incluyendo el control de constitucionalidad de las leyes y actos constitucionales acorde a nuestra Constitución teniendo una función social con sus resoluciones a contribuir no solo a la razón y a la ley, sino también al bienestar colectivo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la justicia tiene que ver con el proceso en el cual los órganos jurisdiccionales aplican el Derecho para resolver conflictos, teniendo los juzgadores independencia judicial, la sociedad acceso a la justicia, misma que debe ser acorde al debido proceso, respetando las garantías a ser oído y vencido en un juicio justo con resoluciones fundadas y motivadas aplicando la norma jurídica a los casos en concreto y sirviendo para la resolución de conflictos entre particulares y el Estado.
+
+
+## Propuestas
+
+- Utilizar las herramientas tecnológicas como las plataformas electrónicas para agilizar los procesos y disputas, reduciendo la burocracia, optimizando los tiempos, para que la justicia sea más accesible para todas las personas.
+- Procesos transparentes y con rendición de cuentas haciendo accesibles las resoluciones judiciales por los medios digitales, respetando en todo momento los datos sensibles y personales para que el ciudadano conozca el actuar de los miembros del Poder Judicial y de esa forma evitar posibles actos de corrupción.
+- Despresurizar el Sistema de Justicia Penal, utilizando los medios alternativos de solución de conflictos como la negociación, mediación, conciliación, tal y como lo establece nuestra Constitución Política, no criminalizando cualquier actuar, ya que lo importante es dar solución a las víctimas, la reparación del daño y los intereses de los terceros perjudicados agilizando los procesos en esta materia y desahogando la sobrecarga que tienen los Juzgados Penales.
+

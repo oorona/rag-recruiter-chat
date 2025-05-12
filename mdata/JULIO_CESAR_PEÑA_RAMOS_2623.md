@@ -1,0 +1,71 @@
+Nombre Candidato: JULIO CESAR PEÑA RAMOS
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó
+Tags Propósito: No proporcionó texto.
+
+
+## Descripción del Candidato 
+
+JULIO CESAR PEÑA RAMOS es candidato a Juezas/es de Distrito en el Poder Judicial de la Federación, representando a la entidad MEXICO. Su perfil en esta base de datos indica que es de sexo masculino y no ha proporcionado información adicional sobre su formación académica, trayectoria profesional, motivaciones para postularse, visión sobre la función jurisdiccional o propuestas específicas.
+
+Actualmente, su estatus en la base de datos es "Sin captura", lo que sugiere que no se ha completado su perfil con información relevante para la evaluación. No se dispone de datos de contacto como teléfono, correo electrónico o página web.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

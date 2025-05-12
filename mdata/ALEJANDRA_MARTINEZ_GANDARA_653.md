@@ -1,0 +1,74 @@
+Nombre Candidato: ALEJANDRA MARTINEZ GANDARA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: alejandramartinez.pj@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada., Amsterdam, Blockchain, COFECE, Carnegie Mellon, Derecho, Doctorado, Economía, Maestría, Métodos Empíricos, Países Bajos, Plank Berlin, Racionalidad Limitada, Teoría de la Decisión, Utrecht
+Tags Propósito: acceso a la justicia, bienestar social, calidad jurisdiccional, certeza jurídica, competencia económica, derechos, derechos ciudadanos., desarrollo económico, eficiencia, función jurisdiccional, imparcialidad, independencia judicial, innovación, justicia especializada, mercados, perspectiva de género, rendición de cuentas, responsabilidad social, rigor técnico, telecomunicaciones, transparencia
+
+
+## Descripción del Candidato 
+
+Alejandra Martinez Gandara es candidata a Magistratura de Tribunales Colegiados de Circuito del Poder Judicial de la Federación en la Ciudad de México. Cuenta con estudios de Doctorado y una Maestría en Derecho y Economía, complementados por cursos especializados en áreas como competencia económica, telecomunicaciones y métodos empíricos del derecho.
+
+Su motivación para postularse se basa en su experiencia y especialización en competencia económica, buscando contribuir a una justicia más especializada en México. Su visión se centra en una función jurisdiccional independiente, imparcial, socialmente responsable y enfocada en resolver el fondo de los asuntos con rigor técnico y sensibilidad. Sus propuestas incluyen fortalecer la especialización judicial, asegurar la resolución integral de casos y garantizar la eficiencia, oportunidad y transparencia en el ejercicio de la función jurisdiccional, particularmente en las áreas de competencia económica y telecomunicaciones.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/a.martinezgandara/
+- https://www.instagram.com/alemartinez.pj/
+- https://www.tiktok.com/@alemartinez.pj
+- https://www.linkedin.com/in/alejandramartinezgandara/
+
+
+## Cursos
+
+- Maestría en Derecho y Economía en la Universidad de Utrecht, Países Bajos,Curso Blockchain Use        Governments (Online), Universidad Carnegie Mellon,  de junio de 2024,Summer Institute Bounded Rationality, Foundations an Interdisciplinary Decision Theory, Instituto  Plank Berlin,LEX Doctoral Course: Empirical Methods  Law, Universidad de Amsterdam, Amsterdam, Países Bajos,Curso  de Combustibles en Estaciones de  impartido por la COFECE en febrero de 2017
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54273/10
+
+
+## Trayectoria Academica
+
+- Soy abogada y tengo una maestría y doctorado en Derecho y Economía
+
+
+## Motivo para buscar el Cargo Publico
+
+México merece una justicia especializada; pongo a su servicio mi experiencia y especialización en competencia económica.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con independencia, imparcialidad y responsabilidad social. Me comprometo a resolver con rigor técnico y sensibilidad, consciente de que los tribunales especializados fortalecen la calidad y uniformidad de las decisiones, controlan y delimitan la actuación de las autoridades, y garantizan que derechos como la competencia efectiva y el acceso a telecomunicaciones sean reales, accesibles y exigibles.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la impartición de justicia como una función esencial del Estado, indispensable para fortalecer la vida democrática y el bienestar social. Creo en una justicia que no se limite a reconocer derechos en el papel, sino que asegure que las personas puedan ejercerlos de manera real y efectiva. Una justicia accesible, imparcial y comprensible, capaz de generar confianza ciudadana y de contribuir al desarrollo de un entorno económico y social más justo, competitivo e incluyente.
+
+
+## Propuestas
+
+- Fortalecer la función jurisdiccional especializada, asegurando que las resoluciones se basen en un conocimiento profundo y actualizado de los sectores de competencia económica y telecomunicaciones. Mi experiencia de más de diez años en estas materias me confirma que la especialización es esencial para evitar decisiones erróneas que afecten el interés público y generen costos económicos y sociales para la ciudadanía.
+- Garantizar que las resoluciones jurisdiccionales resuelvan de manera integral el fondo de los asuntos, evitando limitarse a cuestiones meramente procesales. Desde mi experiencia, la calidad jurisdiccional implica emitir sentencias bien estudiadas, técnicamente sólidas, accesibles y con perspectiva de género, que den certeza a las partes y fortalezcan la confianza en la justicia especializada.
+- Asegurar que la función jurisdiccional especializada se ejerza con eficiencia, oportunidad y transparencia, evitando dilaciones que obstaculicen el acceso efectivo a la justicia. En materias como competencia económica y telecomunicaciones, una resolución tardía o inaccesible afecta el funcionamiento de los mercados y los derechos de la ciudadanía; por ello, la especialización debe ir acompañada de un compromiso con la atención pronta y la rendición de cuentas.
+

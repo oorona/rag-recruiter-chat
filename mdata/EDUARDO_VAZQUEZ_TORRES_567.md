@@ -1,0 +1,75 @@
+Nombre Candidato: EDUARDO VAZQUEZ TORRES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5523085826
+Correo Electronico: eduardovazqueztorres2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adjudicación Judicial, Catedrático, Derechos Humanos, Expositor., Formación Judicial, Género, Instituto de la Judicatura Federal, Materia Administrativa, Procesos Judiciales Federales, Suprema Corte, UNID
+Tags Propósito: Capacitación Jurídica, Credibilidad, Democracia., Derechos Humanos, Escrutinio, Formación Judicial, Función Jurisdiccional, Humanismo, Igualdad de Género, Imparcialidad, Integridad, Justicia, Objetividad, Poder Judicial, Realidad Social, Sistema Judicial, Transparencia, Unidad
+
+
+## Descripción del Candidato 
+
+EDUARDO VAZQUEZ TORRES es candidato a Magistrado de los Tribunales Colegiados de Circuito en la Ciudad de México, postulándose al Poder Judicial de la Federación. Cuenta con Maestría y cédula profesional, así como una trayectoria académica que incluye haber sido expositor en el Centro de Estudios en Materia Administrativa del TJA de Morelos y catedrático en la UNID. Ha recibido formación continua a través de diversos cursos y diplomados impartidos por instituciones como la Escuela Federal de Formación Judicial y la Suprema Corte de Justicia de la Nación, abarcando temas de derechos humanos, perspectiva de género y procesos judiciales.
+
+Su motivación para buscar el cargo es servir al país impartiendo una justicia pronta, íntegra, humanista y objetiva.  En su visión, la función jurisdiccional debe centrarse en la imparcialidad, integridad, transparencia y respeto a los derechos humanos. Sus propuestas principales incluyen la capacitación anual obligatoria y certificada para el personal jurisdiccional, el escrutinio estricto de la actuación de las personas juzgadoras (tanto en juicios como en trato al público) y el establecimiento de políticas para la unidad entre el personal actual y los nuevos electos en los órganos jurisdiccionales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16FniWSLUk/?mibextid=wwXlfr
+- https://x.com/lalovazquez2025
+- https://www.instagram.com/lajusticiallegapronto
+- https://youtube.com/@eduardovazqueztorres
+- https://www.tiktok.com/@eduardovazqueztorres
+
+
+## Cursos
+
+- Curso para generar espacios libres de  (2023), impartido por la Escuela Federal de Formación Judicial,Seminario Perspectiva de Género y Adjudicación Judicial: una Visión desde el PJF, impartido por la EFFJ,Curso Nociones Generales en Materia de Derechos Humanos impartido por la EFFJ,Programa Nacional ¿Como elaborar mejores  impartido por el Instituto de la Judicatura Federal,Diplomado en ¿Procesos Judiciales Federales, impartido por la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54964/10
+
+
+## Trayectoria Academica
+
+- Expositor en el Centro de Estudios en Materia Administrativa del TJA del Estado de Morelos y catedrático en la UNID
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir a mi país como Magistrado para impartir una justicia pronta, con integridad, humanismo y objetividad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función que realizan los juzgados y tribunales federales debe tener como eje principal revisar y resolver con imparcialidad, integridad y transparencia los juicios en los cuales se reclame que las autoridades dejan de respetar los derechos humanos reconocidos en la Constitución y los Tratados Internacionales que obligan a nuestro país. Por lo que la tarea jurisdiccional siempre debe efectuarse con prontitud, con visión humana y sensible a la realidad social de nuestro país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un componente básico de la función jurisdiccional, al ser la parte final del proceso, en el cual se determina a quién le asiste la razón en un conflicto. Esta labor decisiva (impartir justicia) corresponde a las Juezas y Jueces, Magistradas y Magistrados, quienes debemos actuar siempre apegados a la ley, pero sin dejar de considerar que los juicios no son hojas ni meros documentos, sino involucran personas o instituciones que forman parte de una realidad social.
+
+
+## Propuestas
+
+- La capacitación jurídica de las personas servidoras públicas que colaboran en la función jurisdiccional en cualquier nivel jerárquico debe efectuarse y certificarse anualmente, mediante cursos o especialidades gratuitos por la Escuela Nacional de Formación Judicial y, la acreditación de estos cursos sean requisitos para lograr el ascenso a otros cargos, en situación de igualdad y paridad de género. Esto aumentara la calidad en la impartición de justicia e impulsara al servidor público.
+- La actuación de las personas juzgadoras debe ser sometida a un escrutinio estricto, no solo en su actuación dentro de los juicios, sino en el trato que brindan al público y al personal que colabora con ellos, ya que la integridad de las Juezas y Jueces, Magistradas y Magistrados, debe ser en esa dualidad, como juzgadores y como cabezas de los órganos jurisdiccionales a efecto de legitimar y fortalecer la credibilidad de la ciudadanía en el Poder Judicial.
+- Debe establecerse una política para lograr la unidad entre el personal que labora actualmente en los órganos jurisdiccionales del Poder Judicial y las personas juzgadoras que resulten electas para ocupar los cargos a través del ejercicio democrático, ya que los juzgados y tribunales lo conforman y le dan vida las personas que ahí laboran y prestan sus servicios, por lo cual, el cambio en el sistema judicial, además de la perspectiva orgánica, también debe darse hacía su interior.
+

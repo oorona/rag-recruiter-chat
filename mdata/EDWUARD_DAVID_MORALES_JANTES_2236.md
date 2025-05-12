@@ -1,0 +1,76 @@
+Nombre Candidato: EDWUARD DAVID MORALES JANTES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5514082165
+Correo Electronico: davidjantes@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Auxiliares Judiciales, Justicia Eficiente, Justicia Penal Adolescentes, Licenciatura en Derecho., Materia Penal, Reforma Judicial, Sector Judicial, Trata de Personas, Violencia de Género
+Tags Propósito: Administración de Justicia, Ciudadanía, Credibilidad, Derecho Internacional, Derecho Nacional, Derechos Humanos, Función Jurisdiccional, Honestidad, Jurisprudencia, Juventud, Perspectiva de Género, Responsabilidad, Sentencias Claras, Transparencia, Tratados Internacionales.
+
+
+## Descripción del Candidato 
+
+Edwuard David Morales Jantes es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho y cédula profesional, además de diversos cursos de especialización en justicia penal para adolescentes, derechos humanos, violencia de género y trata de personas.
+
+Motivado por la necesidad de ocupar cargos públicos con honestidad y responsabilidad, su visión sobre la función jurisdiccional se centra en la aplicación responsable de la ley, con estricto apego a los derechos humanos y perspectiva de género. Sus propuestas incluyen trabajar con responsabilidad y honestidad, aplicar el derecho con apego a los derechos humanos y la perspectiva de género, y redactar sentencias claras y precisas basadas en tratados internacionales y jurisprudencia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Deidvid
+- https://www.x.com/davidjantes
+- https://www.instagram.com/david_jantes
+
+
+## Cursos
+
+- Diplomado en Justicia para Integral de Justicia Penal para Adolescentes,Curso Virtual: ¿Hacia un servicio público de justicia eficiente: reformas Impartido por la agencia Española
+- ,Curso Avanzado ¿Violencia de género
+- Eliminar la violencia contra las mujeres y las niñas¿,Curso Virtual en ¿Materia de Trata de Personas Para el Sector Judicial¿, ONU MIGRACIÓN
+- ,Curso Avanzado de ¿Formación de Auxiliares Judiciales¿ (Control en Materia Penal)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54363/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en el Centro Universitario Tlacaélel (CUT)
+
+
+## Motivo para buscar el Cargo Publico
+
+Es momento de que ciudadanos ocupemos cargos, donde podamos desempeñar nuestras carreras de forma honesta y responsable
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La Función Jurisdiccional es la manera en que se puede aplicar la Ley de forma responsable con estricto apego a Derechos Humanos y con Perspectiva de Género, con la finalidad de establecer y redactar sentencias claras, precisas, entendibles y fundadas, desde nuestro lugar tenemos que iniciar un cambio verdadero en la administración de Justicia, con la firme convicción de apegarme a derecho Nacional e Internacional, que mejor forma de hacerlo que alguien que conoce la problemática actual.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El cambio verdadero inicia por los impartidores de Justicia es por ello que se tiene que reflexionar acerca de los problemas que aquejan a nuestra sociedad, que solo se lograra con gente honesta, trabajadora, que se ha ganado una oportunidad a base de esfuerzo, trabajo y dedicación, así que es necesario un cambio de paradigmas el cual se puede lograr desde la juventud que no esta contaminada con malas practicas, esto se lograra sin imposiciones y sin deberle favores a nadie.
+
+
+## Propuestas
+
+- Trabajar con completa responsabilidad y honestidad, respetando en todo momento Derechos Fundamentales, con la finalidad de generar confianza y credibilidad en las autoridades.
+- Aplicar el Derecho con apego a Derechos Humanos y Perspectiva de Género, utilizando protocolos impartidos por la Suprema Corte de Justicia de la Nación.
+- Redactar sentencias claras, precisas, entendibles y razonables utilizando como herramienta básica los Tratados Internacionales de los cuales sea parte el Estado Mexicano, así como la Jurisprudencia de Sala que sea vinculante y orientadora.
+

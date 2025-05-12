@@ -1,0 +1,77 @@
+Nombre Candidato: MARCO ANTONIO ALVARADO AGUIRRE
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8448696465
+Correo Electronico: licmarcoantonio@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Informe Policial, Juicio de Amparo, Jurisprudencia., Licenciatura en Derecho, NOM 035, Relaciones Laborales, Seguridad Pública, Universidad Autónoma de Coahila
+Tags Propósito: Accesibilidad, Atención Personalizada, Bienestar Legal, Celeridad, Conciliación, Convenios, Desempeño Humano, Discapacidad, Eficiencia, Embarazo, Equidad., Honestidad, Justicia Laboral, Respeto Laboral, Sentencias Claras, Servidor Público, Tercera Edad, Transparencia, Trato Digno
+
+
+## Descripción del Candidato 
+
+Marco Antonio Alvarado Aguirre es candidato a Juez/a de Distrito en Coahuila, postulándose a través del Poder Ejecutivo Federal. Es Licenciado en Derecho por la Universidad Autónoma de Coahuila y cuenta con cédula profesional. Su formación complementaria incluye diplomados en Juicio de Amparo, así como cursos en argumentación jurídica, elaboración de informes policiales y normatividad laboral.
+
+Su motivación para buscar el cargo es ejercer la justicia laboral con un enfoque humano y accesible. Su visión se centra en un servicio público responsable, eficiente y respetuoso con el personal del juzgado, así como en la correcta aplicación de la ley para el bienestar de los implicados. Sus propuestas incluyen atención personalizada a usuarios, mejora de las instalaciones para garantizar un trato digno, y transparencia en los juicios, buscando emitir sentencias claras y facilitar la conciliación.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Alvarado-Abogados/100010934295392
+- https://www.instagram.com/invites/contact/?igsh=968057wd7a25&utm_content=x8ik2st
+- https://www.tiktok.com/@marcoaalvarado?_t=ZM-8uuioInNc8N&_r=
+
+
+## Cursos
+
+- DIPLOMADO EN JUICIO DE AMPARO IMPARTIDO POR LA CASA DE LA CULTURA JURÍDICA DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN,Exposición curso Informe Policial Homologado Captura, Consulta y Supervisión De la secretaria de Seguridad Publica Coah
+- ,CURSO DE ARGUMENTACION JURIDICA IMPARTIDO POR LA CASA DE LA CULTURA JURIDICA EN SALTILLO, COAHUILA
+- ,CURSO NOM 035 Y SUS IMPLICACIONES EN LAS RELACIONES LABORALES IMPARTIDO POR EL CENTRO DE ESTUDIOS CARBONELL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52314/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la Universidad Autónoma de Coahuila
+- H
+- Facultad de Jurisprudencia Saltillo, Coahuila
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ejercer la justicia del derecho del trabajo con un desempeño humano y cercano y accesible a todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un servidor publico responsable con las personas que trabajan en conjunto y en equipo dentro de un juzgado, para poder lograr y obtener la mayor eficiencia del trabajo, cuidando siempre que el personal en ningún momento pase por injusticias laborales, descompensaciones en su persona y trabajo y manteniendo un ambiente laboral de respeto pero sin miedo al titular.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Brindar siempre y ante todos la correcta aplicación de la ley para lograr el mayor bienestar a los implicados en un conflicto legal y el menor o nulo daño.
+
+
+## Propuestas
+
+- Atención personalizada a los usuarios por parte del Juez titular.
+- Sillas y espacios suficientes para los usurarios que esperan cuando acuden al juzgado a llevar a cabo algún tramite como lo son, copias certificadas, convenios de juicio, espera de audiencia, desistimiento de la acción legal entre otros, lo anterior derivado a que las personas que acuden al Tribunal Laboral merecen un trato digno, sumado a que seimpre se tienen usuarios en embarazo, personas de la tercera edad o con algún tipo de disminución fisica.
+- No actuar en oscurantismo ante los juicios presentados en el tribunal laboral beneficiando a ciertos abogados u usuarios. siempre actuando con honestidad, certeza y celeridad.} Emitir sentencias claras y comprensibles para la clase trabajadora. Ocupar la oficina del juez titular para la celebración de convenios y conciliaciones.
+

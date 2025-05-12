@@ -1,0 +1,83 @@
+Nombre Candidato: CARLOS ENRIQUE LOPEZ GALLEGOS
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9611424774
+Correo Electronico: celg4743@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización Laboral, CCJ, Conciliación Laboral, Derecho, Formación Judicial, Justicia Laboral, Licenciatura en Derecho., Maestría en Derecho Civil, Reforma Laboral, SCJN, Seguridad Social, UAM, UPGCH
+Tags Propósito: Agilización Procesal, Derecho Laboral, Derechos Humanos, Estado de Derecho, Función Jurisdiccional., Imparcialidad, Independencia Judicial, Justicia, Presupuesto Judicial, Profesionalismo, Recursos Humanos, Tecnología Judicial, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Carlos Enrique Lopez Gallegos es candidato a Jueces/es de Distrito en Chiapas, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Civil por la UPGCH y es Licenciado en Derecho por la Universidad Autónoma Metropolitana. Su trayectoria se respalda en cursos y diplomados en materia laboral y de justicia, incluyendo la participación en seminarios sobre Reforma Laboral, Seguridad Social y técnicas de conciliación.
+
+El candidato busca el cargo por su experiencia en la función jurisdiccional y en materia laboral, con la visión de proteger los derechos de las personas y preservar el Estado de Derecho a través de una impartición de justicia imparcial, transparente y profesional. Sus propuestas incluyen asegurar la independencia del juzgador, asignar un presupuesto suficiente al Poder Judicial y dotarlo de los medios tecnológicos necesarios para agilizar los procesos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574207355223&sk=about_details
+
+
+## Cursos
+
+- Seminario Reforma Laboral
+- CCJ
+- SCJN
+- octubre 2019,Diplomado en Justicia Laboral
+- Consejo de la Judicatura del Poder Judicial del Estado de Chiapas
+- 2020,Curso ¿Técnicas de Conciliación Laboral¿
+- Secretaría del Trabajo y Previsión Social
+- Mayo 2021
+- ,Diplomado en Actualización Laboral
+- Facultad Libre de Derecho de Chiapas
+- 2023,Seminario en Seguridad Social
+- Escuela Federal de Formación Judicial
+- Octubre 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54451/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma Metropolitana, y Maestría en Derecho Civil por la UPGCH
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque cuento con experiencia en la función jurisdiccional y en la materia laboral (siempre respetando a mis colegas)
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Proteger y restituir los derechos de las personas que les hayan sido vulnerados, actuando el juzgador como una pieza fundamental en la preservación del Estado de Derecho
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir y administrar justicia de manera imparcial, transparente, con excelencia, ética y profesionalismo
+
+
+## Propuestas
+
+- Asegurar la independencia plena del juzgador, de tal forma que pueda resolver sin presiones y sin influencias ajenas al Derecho
+- Asignar el presupuesto suficiente al Poder Judicial para que cuente con los recursos humanos necesarios para la buena impartición de justicia
+- Allegarse de los medios tecnológicos necesarios que contribuyan cada vez mas en la agilización de los procesos jurisdiccionales
+

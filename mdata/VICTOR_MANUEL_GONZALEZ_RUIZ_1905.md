@@ -1,0 +1,77 @@
+Nombre Candidato: VICTOR MANUEL GONZALEZ RUIZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6642019699
+Correo Electronico: vicgo007@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo Directo, Docencia., Formación, Función Secretarial, Igualdad de Género, Juicio de Amparo, Licenciatura en Derecho, Maestría en Ciencias Jurídicas, Plenos de Circuito, Reforma Judicial, SCJN, Sistema Penal Acusatorio, Tesis Jurisprudenciales, Trámite Electrónico, Trámite en Línea, Universidad Autónoma Baja California, Ética Institucional
+Tags Propósito: Accesibilidad, Comunicación, Confianza, Criterios Legales, DD.HH., Derechos Humanos, Empatía, Estado de Derecho, Experiencia., Función Jurisdiccional, Imparcialidad, Independencia Judicial, Justicia, Legitimidad, Poder Judicial, Responsabilidad Social, Sentencias, Transparencia
+
+
+## Descripción del Candidato 
+
+Víctor Manuel González Ruiz es candidato a Juez/a de Distrito en Baja California, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Ciencias Jurídicas por la Universidad Autónoma de Baja California y experiencia como Maestro de asignatura honorario. Su trayectoria se complementa con diversos cursos en áreas como el Sistema Penal Acusatorio, Derechos Humanos, Trámite Electrónico y Ética Institucional.
+
+González Ruiz manifiesta su motivación para el cargo en su compromiso con la Justicia, la defensa de los Derechos Humanos y el fortalecimiento del Estado de Derecho. Propone como ejes principales fortalecer la independencia judicial y la transparencia en las decisiones, mejorar la comunicación social de las resoluciones, y garantizar la imparcialidad y protección de los derechos fundamentales. Su visión de la función jurisdiccional la define como garante del Estado de Derecho y considera fundamental analizar los casos con empatía y responsabilidad social.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16JgRK1JBX/
+- https://www.instagram.com/vmgonzalezru?igsh=dGFzYm9tcHp6NWtj
+- https://www.tiktok.com/@vmgonzalezru?_t=ZM-8ugPaQt070w&_r=1
+
+
+## Cursos
+
+- de Secretarios del PJF; De los Centros de Justicia: Administrador, Notificador, Despacho Judicial
+- ,Teoría y Práctica del Sistema Penal Acusatorio a Través de los Precedentes de la SCJN, Amparo Directo en Revisión
+- ,Género como Herramienta para la Igualdad
+- Quinta Edición, Inducción para el Manejo de Wordsise, La Reforma Judicial 2021,Elaboración de Tesis Jurisprudenciales, Segunda Edición y Responsabilidades de la Función Secretarial, Escuela Formación,Trámite Electrónico de Juicio de Amparo, Ética Institucional,Trámite Juicio en Línea 2017, Sistema de Plenos de Circuito
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54021/11
+
+
+## Trayectoria Academica
+
+- Lic en Derecho y Mtro en Ciencias Jurídicas por la Universidad Autónoma Baja California
+- Maestro de asignatura honorario
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque mi compromiso es con la Justicia, para defender los Derechos Humanos y fortalecer el Estado de Derecho en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional es fundamental porque define el propósito y la dirección del poder judicial, determinando cómo se debe interpretar y aplicar la ley en un contexto de justicia y equidad social. Esta visión influye directamente en la eficacia y legitimidad del sistema judicial, así como en la confianza que la sociedad deposita en él. Ser juez es ser garante del Estado de Derecho en México, de los derechos y libertades de la colectividad como eje rector.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como lo dijo Luis Donaldo Colosio hace más de treinta años, veo que tenemos una sociedad mexicana con hambre y sed de justicia; el Poder Judicial en México se ha quedado corto a las necesidades de la comunidad, se requiere resolver no solo aplicando la Ley, sino analizar los casos con empatía y alto grado de responsabilidad social, ser sensibles a la problemática actual. El actuar de los juzgadores influye en el rumbo de nuestro país, no podemos dejarle esa función a personas sin experiencia.
+
+
+## Propuestas
+
+- Ser garantía de imparcialidad y protección de los derechos fundamentales, fortalecer el Estado de Derecho y evitar los abusos del poder, ello generará confianza en el sistema judicial. La independencia judicial es importante para garantizar que la justicia se administre de manera imparcial y justa, también para preservar la estabilidad del sistema democrático, la protección de los DD.HH. y el fortalecimiento del Estado de derecho. Un Estado de derecho es tan fuerte como su Poder Judicial.
+- Comunicación: Mejorar la comunicación social de las decisiones judiciales implica un esfuerzo conjunto entre los jueces, los medios de comunicación, los profesionales del derecho y la sociedad civil. Es crucial que el lenguaje sea accesible, que la información se difunda de manera efectiva y que haya una interacción constante con el público para que las decisiones judiciales sean entendidas, respetadas y valoradas. Además, este tipo de comunicación contribuye a fortalecer la confianza social.
+- Transparencia y justificación de las decisiones; publicación de sentencias completas: Siempre que sea posible y sin violar la privacidad de las personas involucradas, publicar las sentencias completas en plataformas accesibles. Esto fomenta la transparencia y permite que el público entienda las razones detrás de las decisiones judiciales. Explicación de criterios legales: Acompañar las decisiones con una explicación detallada de los principios legales aplicados en el caso concreto.
+

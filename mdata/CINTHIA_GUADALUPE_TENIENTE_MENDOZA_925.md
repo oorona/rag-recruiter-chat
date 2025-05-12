@@ -1,0 +1,73 @@
+Nombre Candidato: CINTHIA GUADALUPE TENIENTE MENDOZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUANAJUATO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: lic.cinthialupitatm@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derechos Humanos, Desarrollo Organizacional, Formación., Justicia Laboral, Licenciatura, Maestría
+Tags Propósito: Poder Judicial, acceso a la justicia, bienestar colectivo, celeridad, contradicción, derechos humanos, equilibrio social, igualdad, imparcialidad, justicia, justicia laboral, justicia pronta, legalidad, oralidad, paz social, perspectiva de género., precedentes, servicio público, sistematización, transparencia, tutela judicial efectiva, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Cinthia Guadalupe Teniente Mendoza es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde Guanajuato para el Poder Legislativo Federal. Cuenta con Maestría en Desarrollo Organizacional, complementada con estudios en derechos humanos y justicia laboral, y una Licenciatura en Derecho. Su motivación para buscar el cargo público es servir con justicia, empatía y legalidad, buscando transformar la vida de las personas a través del Poder Judicial.
+
+Su visión de la función jurisdiccional se centra en garantizar una justicia pronta, imparcial y con enfoque humano, especialmente en materia laboral. Sus propuestas incluyen resolver juicios laborales con oportunidad, revisar el cumplimiento de los principios de oralidad en las audiencias y sistematizar la difusión de precedentes relevantes para brindar certeza jurídica a trabajadores, empleadores y tribunales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/CinthiaTenienteM
+- https://www.instagram.com/cinthia_teniente
+- https://www.tiktok.com/@cinthiateniente
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54985/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Maestría en Desarrollo Organizacional; formación en derechos humanos y justicia laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir con justicia, empatía y legalidad para transformar la vida de las personas desde el Poder Judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia pronta, imparcial y con enfoque humano. Visualizo una labor judicial cercana a la ciudadanía, que resuelva con eficacia y perspectiva de derechos humanos, especialmente en lo laboral. Una justicia que restablezca el equilibrio social, proteja a los más vulnerables y fortalezca la confianza en las instituciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la impartición de justicia como un servicio público esencial que debe ser accesible, pronta, imparcial y con enfoque humano. Mi visión es una justicia laboral efectiva, que equilibre las relaciones entre empleadores y trabajadores, con perspectiva de derechos humanos y género, que atienda con sensibilidad social y que contribuya a la paz y al bienestar colectivo.
+
+
+## Propuestas
+
+- Resolver con oportunidad los juicios laborales, priorizando la tutela judicial efectiva. Emitir criterios claros, accesibles y congruentes que reduzcan incertidumbre jurídica y fortalezcan la celeridad del nuevo sistema de justicia laboral.
+- Revisar con enfoque garantista que las audiencias laborales de los asuntos que se revisan, verdaderamente cumplan con los principios de oralidad, inmediación, igualdad y contradicción, corrigiendo deficiencias procesales que vulneren derechos y fortaleciendo la legitimidad del nuevo modelo laboral.
+- Impulsar la sistematización y difusión de precedentes relevantes en materia laboral a nivel regional, para consolidar criterios interpretativos que brinden certeza a trabajadores, empleadores y tribunales de primera instancia, promoviendo decisiones estables y predecibles.
+

@@ -1,0 +1,86 @@
+Nombre Candidato: MARTHA PATRICIA SANCHEZ GALAVIZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Ciudad de México, Constitución Política, Derecho, Derecho Administrativo, Derecho Mercantil, Derecho Penal, Diplomado, IEJA, Licenciatura., Maestría, Posgrado, Sistema Penal Acusatorio, Suprema Corte de Justicia, TJACDMX, Universidad Iberoamericana, Universidad Nacional Autónoma de México, Universidad Panamericana
+Tags Propósito: Confianza ciudadana, Democracia, Derechos humanos, Estado Constitucional, Integridad, Interpretación legal, Justicia imparcial, Ley Suprema, Poder Judicial fuerte, Protección a vulnerables, Reforma PJF, Resolución conforme a derecho, Responsabilidad, Seguridad jurídica, Valentía.
+
+
+## Descripción del Candidato 
+
+Martha Patricia Sánchez Galaviz es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y estudios de posgrado en Derecho Penal y Mercantil, así como diplomados en temas de justicia penal acusatoria y constitucional. Actualmente cursa el tercer semestre de la maestría en Derecho Administrativo.
+
+Su motivación para buscar el cargo se centra en la reforma del Poder Judicial de la Federación y en recuperar la confianza ciudadana. Propone un Poder Judicial cercano a la gente, enfocado en la aplicación imparcial de la ley, especialmente en la protección de los derechos humanos, y en la actuación con integridad, responsabilidad y valentía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/patty.sanchez.3998263
+- https://x.com/pattavenus?t=AUalFiJdjj1z-XG_uG6Kew&s=09
+- https://www.instagram.com/patsanchez25_?igsh=MW42aGFud3V3ejhweQ=
+
+
+## Cursos
+
+- Licenciada en Derecho por la Universidad Iberoamericana
+- ,Posgraduada en Derecho Penal y Mercantil en la Universidad Panamericana
+- ,Diplomada en el Nuevo Sistema Penal Acusatorio en México, cursado en la Suprema Corte de Justicia de la Nación
+- ,Diplomada en la Constitución Política de la Ciudad de México, cursado en la Universidad Nacional Autónoma de México
+- ,Tercer Semestre Maestría en Derecho Administrativo en el IEJA del TJACDMX
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55470/10
+
+
+## Trayectoria Academica
+
+- Lic
+- Derecho; Post
+- Penal, Mercantil
+- Dipl
+- Sist
+- Penal Acusatorio y Const
+- Pol
+- CDMX, 3er Sem
+- Mtria
+- Derecho Admo
+
+
+## Motivo para buscar el Cargo Publico
+
+Es inaplazable reformar el PJF, realizar cambios que nos permitan recuperar la confianza de las y los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como juzgadores debemos vigilar que las disposiciones legales y administrativas se ajusten y respondan adecuadamente a los mandatos consagrados en nuestra Ley Suprema; pugnar por los principios que dan soporte al Estado Constitucional y de derecho, reconociendo y respetando los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La legislación que a partir de este cambio hemos de aplicar, debe ser libre de toda atadura  de modo que se encuentre dentro de un orden jurídico que brinde la protección suficiente a través de autoridades y juzgadores, generando en todo momento seguridad jurídica a los justiciables.
+
+
+## Propuestas
+
+- Ser juzgadores cercanos a la gente, impartiendo justicia para todas las personas por igual, hagamos de este proceso un Poder Judicial fuerte, gracias al apoyo del pueblo, indispensable para la democracia. Nada con la fuerza, todo con la razón.
+- Los juzgadores somos depositarios de la facultad indelegable de interpretar y aplicar la ley, por lo tanto, nuestro deber será resolver conforme a derecho, y a conciencia las controversias donde se generen violaciones, sobre todo aquellas que transgredan los derechos humanos, garantizando la justicia a todas y todos, pero sobre todo a quienes menos tienen.
+- Deseo sumarme a los trabajos que deben distinguir a todas y a todos los juzgadores, ser parte de estos nuevos responsables de impartir justicia, con suficiente capacidad jurídica y humana, que deberá ejercerse con integridad, responsabilidad y valentía.
+

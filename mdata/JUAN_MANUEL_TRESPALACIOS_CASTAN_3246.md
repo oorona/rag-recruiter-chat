@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN MANUEL TRESPALACIOS CASTAN
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: trespalacioscastanjuanmanuel@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Archivista, Carrera Judicial, Derecho Constitucional, Judicatura Federal, Juez Penal, Juicio Oral, Justicia para Adolescentes, Poder Judicial Federal., Sistema Procesal Penal Acusatorio, Supremo Tribunal de Justicia
+Tags Propósito: acceso a la justicia, derechos fundamentales, dignidad humana, fin en sí mismo., función jurisdiccional, humanismo, igualdad, imparcialidad, justicia, justicia social, libertad, paz social, protección, reparación social
+
+
+## Descripción del Candidato 
+
+Juan Manuel Trespalacios Castán es candidato a Jueces/as de Distrito por el Poder Ejecutivo Federal en Tamaulipas. Cuenta con 25 años de carrera judicial, habiendo desempeñado roles como Archivista, Secretario y Juez Penal del fuero común, actualmente es secretario del Poder Judicial Federal. Su formación académica incluye una Maestría en Derecho Constitucional por la Universidad Autónoma de Tamaulipas, así como diversos cursos y diplomados en temas de justicia, incluyendo el nuevo sistema procesal penal acusatorio y oral.
+
+El candidato manifiesta su motivación para el cargo como un deseo de contribuir a la justicia y paz social. Su visión de la función jurisdiccional se centra en la igualdad ante la ley, la protección contra el abuso de poder y la reparación del tejido social.  Propone un enfoque humanista en la impartición de justicia, alejándose de formalismos y poniendo a las personas y su dignidad en el centro de la decisión judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BMY5Scgg5/?mibextid=wwXIfr
+- https://www.instagram.com/juan_m_trespalacios?igsh=MXVza2M0Z25qZDB1Zw3D3D&utm_source=qr
+- https://www.tiktok.com/@juantrespalaciosc?_t=ZM-8v62vHbP3kj&_r=1
+
+
+## Cursos
+
+- Maestría en Derecho Constitucional impartida por la facultad de derecho de la Universidad Autónoma de Tamaulipas,Certificado Instituto de la Judicatura Federal, Curso de Especialización en Justicia para Adolescentes,Diploma H
+- Supremo Tribunal de Justicia del Estado de Tamaulipas, Diplomado en Juicio Oral,Constancia, Universidad Autónoma de Tamaulipas, curso sobre nuevo sistema procesal penal acusatorio y oral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54996/11
+
+
+## Trayectoria Academica
+
+- 25 años de carrera judicial, Archivista, Secretario y Juez Penal del fuero común, hoy secretario de Poder Judicial Fed
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez para contribuir a lograr mayor justicia y paz social en mi comunidad y país para nuestras familias
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es fundamental para la convivencia, porque en su justo ejercicio lleva a un plano de igualdad a los desiguales, protege del abuso del poderoso, repara el tejido social y protege nuestros esenciales, por ejemplo, a la libertad, libre desarrollo de la personalidad e igualdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser impartida con unan visión humanista que, alejada de formalismos y rigideces injustificadas, ponga en el centro de la decisión a las personas y su dignidad, entendida ésta como la que reconoce a las personas como un fin en si mismo y nunca como un medio u objeto para la consecución de un fin
+
+
+## Propuestas
+
+- Alejarme de formalismos y rigideces injustificadas, que han generado en las personas justiciables una percepción de ajenidad respecto de las personas titulares de los órganos jurisdiccionales
+- No proporcionó
+- No proporcionó
+

@@ -1,0 +1,79 @@
+Nombre Candidato: TOMAS DE JESUS ZARCO ORTIZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8123844461
+Correo Electronico: zarco.ortiz.tj@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Administrativo, Derecho Mercantil, Derecho de Familia, Derecho de la Insolvencia, Derechos Constitucionales, Formación Judicial, Igualdad de Género, Poder Judicial de la Federación, Reforma Judicial, Trayectoria Profesional.
+Tags Propósito: Accesibilidad, Agilización Procesos Judiciales, Eficiencia, Equidad, Estado de Derecho, Imparcialidad, Justicia Federal, Justicia Social, Mediación, Publicidad Resoluciones., Resolución de Conflictos, Transparencia Judicial, Ética
+
+
+## Descripción del Candidato 
+
+TOMÁS DE JESÚS ZARCO ORTIZ es candidato a Juez/a de Distrito en Nuevo León, postulado por el Poder Legislativo Federal. Cuenta con una trayectoria de 12 años en el Poder Judicial de la Federación, desempeñando cargos como Oficial, Actuario y Secretario.  Posee maestría y cédula profesional, además de haber completado diversos cursos de formación en áreas como derecho de la insolvencia, derechos constitucionales de la familia, derecho administrativo, reforma judicial y perspectiva de género.
+
+Su motivación para buscar el cargo público es contribuir a un sistema legal más equitativo y accesible.  Su visión se centra en ejercer la función judicial con imparcialidad, ética y compromiso, buscando promover la justicia social. Sus principales propuestas incluyen el fortalecimiento de la transparencia judicial, la agilización de los procesos judiciales y la promoción de la mediación y métodos alternativos de resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16JjG1iExe/?mibextid=wwXIfr
+- https://www.instagram.com/tomasdejesuszarco?igsh=dTFpcDU0bXIxdnF1&utm_source=qr
+
+
+## Cursos
+
+- Escuela Federal de Formación Judicial
+- CURSO UNA VISIÓN INTEGRAL DEL DERECHO DE LA INSOLVENCIA Y DEL CONCURSO MERCANTIL,Suprema Corte de Justicia de la Nación
+- CICLO DE CONFERENCIAS DERECHOS CONSTITUCIONALES DE LA FAMILIA
+- ,Escuela Federal de Formación Judicial
+- CURSO DE ACTUALIZACIÓN EN DERECHO ADMINISTRATIVO,Escuela Federal de Formación Judicial
+- CURSO LA REFORMA JUDICIAL 2021
+- SEGUNDA EDICIÓN
+- ,Escuela Federal de Formación Judicial CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54741/11
+
+
+## Trayectoria Academica
+
+- Llevo 12 años de trayectoria en diversos cargos en el Poder Judicial de la Federación (Oficial, Actuario y Secretario)
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir a un sistema legal más equitativo y accesible para todos los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función judicial con imparcialidad, ética y compromiso, resolviendo los casos que me sean encomendados con base en la ley y los hechos, promoviendo la equidad y la justicia social en cada decisión.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un pilar fundamental en la impartición de justicia federal, garantizando un sistema judicial transparente, accesible y eficiente que inspire confianza en la ciudadanía y contribuya al fortalecimiento del Estado de derecho.
+
+
+## Propuestas
+
+- Fortalecimiento de la Transparencia Judicial: Implementar medidas que aseguren la publicidad de las resoluciones y procesos judiciales, permitiendo que la ciudadanía conozca y entienda las decisiones que afectan su vida cotidiana.
+- Agilización de los Procesos Judiciales: Promover la eficiencia en la tramitación de los casos, reduciendo los tiempos de espera y garantizando una justicia pronta y expedita.
+- Promoción de la Mediación y Métodos Alternativos de Resolución de Conflictos: Fomentar el uso de la mediación y otros métodos alternativos, ofreciendo soluciones más rápidas y menos costosas para las partes involucradas.
+

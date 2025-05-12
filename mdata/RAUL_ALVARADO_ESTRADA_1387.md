@@ -1,0 +1,75 @@
+Nombre Candidato: RAUL ALVARADO ESTRADA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8115556183
+Correo Electronico: licraulalvaradoestrada@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de justicia, Amparo, Derecho, Equidad de género, Especialización., Experiencia profesional, Juzgado de distrito, Teoría del delito
+Tags Propósito: administración de justicia, confianza ciudadana, corrupción, criterios uniformes, derechos humanos, equidad género, expedientes, fondo del asunto, igualdad, inseguridad jurídica, interpretación armónica., justicia, paz social, poder judicial, solución rápida, tratados internacionales
+
+
+## Descripción del Candidato 
+
+RAUL ALVARADO ESTRADA es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal desde Nuevo León. Licenciado en Derecho con 39 años de experiencia, se especializa en juzgado de distrito y amparo, complementada con estudios en administración de justicia, teoría del delito y equidad de género.
+
+Su motivación para el cargo se basa en su convicción de que la administración de justicia es fundamental para la paz social. Propone agilizar la resolución de expedientes, priorizando el fondo sobre formalidades, y armonizar criterios entre los tribunales para generar mayor certeza jurídica. Busca una impartición de justicia imparcial, que responda a problemáticas sociales y promueva la equidad de género, fundamentada en los derechos humanos y los tratados internacionales. Su currículum vitae completo está disponible en: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52242/10
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18couvEztw/
+- https://x.com/RaulAlvaradoLic?t=SfrPsXKiwpSXyMDhtsn8lg&s=09
+- https://www.instagram.com/licraulalvarado
+- https://www.tiktok.com/@licraulalvarado?_t=ZM-8uDRAKW5NQ5&_r=1
+
+
+## Cursos
+
+- Diplomado en administracion de justicia en juzgado de distrito,Seminario en tendencias modernas de la teoria del delito,Curso de equidad de genero
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52242/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, especializado en juzgado de distrito y en amparo
+- con 39 años de experiencia
+
+
+## Motivo para buscar el Cargo Publico
+
+la administracion de justicia es la base de la paz social y con 39 años de experiencia estoy capacitado para el cargo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia es el mecanismo para lograr la paz social, por lo que deseo que la administracion de justicia se ajuste a la realidad de la sociedad para avanzar en la administración de justicia, privilegiando la aplicación de los derechos humanos y erradicar interpretaciones absurdas o motivadas por actos de corrupción, limpiar al Poder Judicial para devolver la confianza a la ciudadania, dictando sentencias que satisfagan a la sociedad y no sentencias formales que lleven a decisiones absurdas
+
+
+## Vision sobre la Imparticion de Justicia
+
+Deseo que la justicia se administre sin distinción de clases, siendo completamente imparcial y justa, y sobre todo que sirva para solucionar problemas sociales, como los vinculados con el género. Se debe aplicar una justicia que ayude a lograr la equidad de género, como lo establecen diversos tratados internacionales, pues la igualdad es uno de los derechos humanos más importantes, por lo que se debe trabajar todo lo que sea necesario para alcanzarla.
+
+
+## Propuestas
+
+- Crear una metodología que ayude a una solución más rápidas para la administracion de justicia, pues actualmente existen expedientes que tienen una gran cantidad sin resolverse. Se debe de buscar privilegiar el fondo de los asuntos en su solucion, en lugar de atender a cuestiones formalistas que provocan la reposicion del procediminto sin beneficio alguno, provocando solo el retardo de la solución de los asuntos.
+- Se debe buscar una interpretación más armónica entre los tribunales, ya que en la actualidad, sobre un mismo tema, existen diversos criterios por parte de los tribunales, lo que crea inseguridad. Se buscaría uniformar criterios lo más pronto posible, pudiendo denunciar cualquier contradicción entre los tribunales para que sea resuelta con mayor rapidez.
+- No proporcionó
+

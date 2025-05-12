@@ -1,0 +1,79 @@
+Nombre Candidato: JESSICA DENISE BETANZOS GUTIERREZ
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9531162682
+Correo Electronico: jessibetanzos@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Justicia, Derecho Familiar, Derechos Humanos, Ejecución Penal, Especialista en Derechos Humanos, Facultad de Derecho, Juicio Oral Penal., Juicios Orales, Perspectiva de Género, Sistema Acusatorio Adversarial, Sistema Penitenciario, UABJO
+Tags Propósito: Acceso a la justicia, Administración de justicia, Audiencias públicas., Derechos humanos, Digitalización, Eficacia, Empatía, Formación continua, Humanización de la justicia, Integridad humana, Inteligencia artificial, Justicia, Participación ciudadana, Perspectiva de género, Resolución de conflictos, Responsabilidad social, Sensibilidad, Transparencia, Vinculación social
+
+
+## Descripción del Candidato 
+
+JESSICA DENISE BETANZOS GUTIERREZ es candidata a Jueza/es de Distrito en Oaxaca, postulándose desde el Poder Ejecutivo Federal. Cuenta con estudios concluidos a nivel de Especialidad y formación continua en temas de Derechos Humanos, Sistema Penitenciario, y Sistema Acusatorio Adversarial. Egresada de la Facultad de Derecho de la UABJO, se especializa en derechos humanos y juicio oral penal.
+
+Su motivación para el cargo es contribuir a una impartición de justicia sensible, humana y empática. Sus propuestas incluyen acercar la justicia a la ciudadanía mediante audiencias públicas y la digitalización de servicios, así como priorizar una perspectiva de género en las sentencias y fomentar la formación continua en esta área.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FVb2ZdXCD/?mibextid=wwXIfr
+- https://x.com/denisebetanzos?s=11
+- https://www.instagram.com/jessi_betanzos?igsh=MTFhejhkcTkwN3ZvZQ3D3D&utm_source=qr
+- https://www.tiktok.com/@jessibetanzos?_t=ZM-8uy8lCiF4A1&_r=1
+- https://www.facebook.com/share/1FeKsoJbG2/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Diplomada en Derechos Humanos y el acceso a la justicia, por el Consejo de la Judicatura Local
+- ,Diplomada en Sistema Penitenciario y Ejecución Penal, por AsiLegal y Escuela Judicial del Consejo
+- ,Seminario sobre la progresividad del Derecho Familiar desde la visión de los Derechos Humanos y la Perspectiva de Género,Especialista en Derechos Humanos, por el Consejo de la Judicatura Local
+- ,Especialista en sistema acusatorio adversarial (juicios orales), por el Consejo de la Judicatura Local
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52274/11
+
+
+## Trayectoria Academica
+
+- Egresada de la Facultad de la Derecho de la UABJO
+- Especializada en derechos humanos y juicio oral penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la impartición de justicia de una forma sensible, humana y empática en favor de la Sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es una labor que no solo debe verse como un trabajo, sino como una parte de nuestra vida, la dedicación, vocación y esfuerzo enmarcan las principales características de esta noble función, todo esto puesto a disposición de nuestra Sociedad. El gran compromiso al momento de analizar y proyectar la solución más justa y adecuada en cada caso concreto, deben regir nuestra actuación cotidiana. Libre de prejuicios, con una progresión de derechos humanos y con gran responsabilidad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser sensible, humana, eficaz y sobre todo responsable; los tiempos actuales que atraviesa nuestra sociedad demandan ello y un perfil no solo preparado profesionalmente en el ámbito jurídico, sino que sea capaz de empatar libre de prejuicios y poner al servicio de la justicia valores de la integridad humana que provienen de nuestra formación personal, social y cultural, para dictar las resoluciones más justas posibles.
+
+
+## Propuestas
+
+- Una administración de Justicia cercana al pueblo, es decir, la justicia no solo se enmarca en una oficina, en trasladar la resolución de los asuntos al día a día, en el sentido de que las personas juzgadoras deberán acudir a audiencias públicas al menos una vez al mes para escuchar al pueblo.
+- Sistematización y digitalización de los servicios. Las personas juzgadoras deberán procurar transitar a las herramientas digitales y remotas que faciliten al usuario el acceso a la justicia, incluyendo la inteligencia artificial. Relacionado a la vinculación social, en el sentido que la persona juzgadora deberá promover charlas y visitas dentro y fuera del juzgado con escuelas, empresas e instituciones para acercar las funciones del juzgado a la ciudadanía
+- Justicia con perspectiva de género. Como una condición sine qua non siempre deberá privilegiarse la perspectiva de género en las sentencias y actos del juzgador. esto va de la mano con el fomento a una formación continua focalizada, es decir, que la persona juzgadora deberá procurar convenir o gestionar las actualizaciones más pertinentes para su personal con el objetivo de mejorar progresivamente la técnica jurídica hacia los usuarios.
+

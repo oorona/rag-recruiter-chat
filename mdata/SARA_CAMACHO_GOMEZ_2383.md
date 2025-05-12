@@ -1,0 +1,80 @@
+Nombre Candidato: SARA CAMACHO GOMEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 9612513469
+Correo Electronico: saracmchog@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Amparo, Derecho, IJF, Instituto de la Judicatura Federal., Juicio en Línea, Licenciatura, Materia Laboral, Plenos de Circuito, Posgrado, Ref.Laboral, Secretarios PJF, Seguridad Social, Transparencia
+Tags Propósito: Accesibilidad, Acceso a la Justicia, Atención al Público, Capacitación, Carrera Judicial, Confianza Pública, Derechos Humanos, Dignidad, Discriminación, Eficiencia, Formalismos Jurídicos, Igualdad, Imparcialidad, Inclusión, Justicia, Poder Judicial, Subsistencia, Transparencia, Trato Digno.
+
+
+## Descripción del Candidato 
+
+SARA CAMACHO GOMEZ es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con una trayectoria de casi 9 años en el Poder Judicial, habiendo alcanzado el máximo nivel en su carrera judicial. Su formación académica incluye Licenciatura en Derecho, Posgrado y diversos cursos especializados en materia laboral, seguridad social, transparencia y procedimientos judiciales, todos impartidos por el Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo se basa en su experiencia y preparación.  Su visión de la función jurisdiccional se centra en la accesibilidad, la protección de los derechos de los justiciables y la expedición de justicia pronta y eficaz. Sus propuestas incluyen facilitar el acceso a los órganos jurisdiccionales, capacitar al personal en atención al público e implementar encuestas para medir la confianza en los jueces.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FTYT1TCu3/?mibextid=wwXIfr
+- https://x.com/saracamachogo?s=21
+- https://www.instagram.com/saracmcho?igsh=NmdjZzhoNTF0cHlu&utm_source=qr
+
+
+## Cursos
+
+- Diplomado Práctico en Materia Laboral, Seguridad Social y Amparo, impartido por el Instituto de la Judicatura Federal
+- ,Curso Virtual de Transparencia y Acceso a la Información Publica impartido por el Instituto de la Judicatura Federal
+- ,Curso Virtual del Tramite de Juicio en Línea, impartido por el Instituto de la Judicatura Federal
+- ,Curso Virtual de Plenos de Circuito, impartido por el Instituto de la Judicatura Federal
+- ,Curso Jornadas de Introducción a la Ref
+- Laboral Análisis de los retos y perspectivas, impartido por el IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52522/11
+
+
+## Trayectoria Academica
+
+- Posgrado
+- Curso de formación y preparación de Secretarios del PJF, impartido por el antes IJF
+- Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy preparada para este cargo labore para el Poder Judicial casi 9 años, hasta llegar al máximo de la carrera judicial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una juez de puertas abiertas a sus justiciables. Velar por los derechos de todo aquel que lo demande y lo acredite. Evitar formalismos jurídicos en los procesos a mi cargo. Tratar de expedir justicia pronta, virtud del tipo de la materia, ya que esta en juego la subsistencia de trabadores. Evitar los malos tratos dentro del órgano jurisdiccional por parte del personal a cargo. Conducirme con imparcialidad en todo momento.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Busco impartir justicia imparcial, independiente, autónoma, justa. Velar siempre por los derechos humanos. Buscar justicia para todas las personas. Aplicar la ley sin excepciones. Juzgar sin miedo.
+
+
+## Propuestas
+
+- Buscar que todos los órganos, o por lo menos el que yo ocupe, sean de fácil acceso a las personas, ya que existen a nivel nacional algunos edificios que no cuentan con esa facilidad de acceso para todos, hasta podríamos hablar de una discriminación estructural, ya que en ocasiones existen personas con discapacidad que pueden encontrar barreras arquitectónicas o de comunicación que limitan su participación social.
+- Capacitar a todo el personal en general en atención al público, para que los usuarios tengan un trato digno por parte de todos los servidores públicos.
+- Implementar encuestas de percepción, para medir anualmente la confianza de la población de los jueces, magistrados y ministros.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: JAVIER VILLASEÑOR GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: javierviga89@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Código Nacional de Procedimientos Civiles y Familiares., Derecho Laboral, Derecho Procesal Civil, Derecho Procesal Oral, Doctorado, Juicio de Amparo, Licenciatura en Derecho, Solución de Conflictos, Suprema Corte de Justicia de la Nación, Universidad Autónoma de Nuevo León, Universidad de Guadalajara
+Tags Propósito: Acceso a la justicia, Capacitación, Cercanía ciudadana, Confianza, Derechos Humanos, Derechos fundamentales, Eficiencia, Empatía, Estado de Derecho, Honestidad, Imparcialidad, Independencia judicial, Justicia, Lenguaje claro, Modernización, Poder Judicial., Simplificación, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+JAVIER VILLASEÑOR GARCIA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para el estado de Jalisco. Cuenta con licenciatura en Derecho por la Universidad de Guadalajara y actualmente es doctorando por la Universidad Autónoma de Nuevo León. Su trayectoria incluye diplomados en áreas como juicio de amparo, derecho procesal oral y familiar, materia laboral y derecho procesal civil.
+
+El candidato declara como motivación para el cargo el deseo de restaurar la confianza en la justicia, asegurando el acceso a un sistema honesto, ágil e imparcial.  Su visión se centra en la independencia de las decisiones judiciales, la protección de los derechos fundamentales y una impartición de justicia cercana a los sectores más vulnerables. Sus propuestas incluyen la modernización del sistema judicial a través de nuevas tecnologías, la simplificación del lenguaje en las resoluciones judiciales y una mayor transparencia en la labor del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/javiervg1
+- https://www.instagram.com/javiervillasenorgar/
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo  Impartido por la Suprema Corte de Justicia de la Nación
+- 14/07/2022,Diplomado Derecho Procesal Oral y Familiar conforme al Código Nacional de Procedimientos Civiles y Familiares
+- 08/2024,Diplomado en Materia Laboral
+- 03/2019,Diplomado en Derecho Procesal Civil
+- 09/2012,Simposio Internacional de: Métodos alternos de solución de conflictos
+- 10/2019
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55206/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad de Guadalajara y Doctorando por la Universidad Autónoma de Nuevo León
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero devolver a las personas la confianza y asegurarles el acceso a una justicia honesta, ágil e imparcial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar en todo momento la independencia de las decisiones de las personas juzgadoras, evitando que en sus resoluciones intervengan intereses públicos, políticos, económicos y mediáticos, debiendo asegurar en todo momento la protección de los derechos fundamentales de las personas contenidos en nuestra Constitución Política.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe existir una impartición de justicia dictada por juzgadoras y juzgadores honestos, capacitados y empáticos a la realidad social que vivimos, acercándose a los sectores más vulnerables y garantizando procesos judiciales imparciales, ágiles y de fácil entendimiento, restituyendo así la confianza de los ciudadanos en el sistema judicial mexicano.
+
+
+## Propuestas
+
+- Mi propuesta responde a la convicción de que un sistema judicial eficiente y moderno, en el que se apliquen nuevas tecnologías, es indispensable para consolidar el Estado de Derecho, garantizando el acceso a la justicia para todos los mexicanos, debiendo aprovechar los avances tecnológicos de hoy en día como un mecanismo facilitador que contribuya además a reducir el rezago y la opacidad, garantizando la capacitación de los funcionarios judiciales en materia de Derechos Humanos.
+- Considero necesario el simplificar el dictado de las resoluciones judiciales y el uso de un lenguaje de fácil comprensión, lo que dotará de confianza a todas las personas logrando un mejor entendimiento de la función jurisdiccional.
+- Informar de manera clara a las personas de la labor que se realiza en el Poder Judicial, permitiendo una mayor cercanía entre la sociedad y los juzgadores, así como un mejor entendimiento de las necesidades de la ciudadanía, para poder actuar siempre en favor de sus derechos.
+

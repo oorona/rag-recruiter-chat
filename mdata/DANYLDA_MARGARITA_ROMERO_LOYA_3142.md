@@ -1,0 +1,75 @@
+Nombre Candidato: DANYLDA MARGARITA ROMERO LOYA
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: romerodanylda@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Certificación., Derecho Procesal Constitucional, Diplomado, Ejecución de Sanciones, Estudios Judiciales, Juicios Orales, Justicia Penal, Justicia para Adolescentes, Maestría, Sistema Acusatorio, Universidad de Sonora
+Tags Propósito: Accesibilidad, Bienestar Social, Capacitación, Contexto Social, Derechos Humanos, Dignidad, Estado de Derecho, Igualdad, Imparcialidad, Justicia, Nuevas Tecnologías., Perspectiva de Género, Profesionalismo, Rendición de Cuentas, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Danylda Margarita Romero Loya es candidata a Jueza/es de Distrito por el Poder Legislativo Federal en Sonora. Cuenta con Maestría en Juicios Orales por la Universidad de Sonora y una trayectoria académica en Derecho. Ha recibido formación especializada en el Sistema de Justicia Penal Acusatorio, Derechos Humanos y Justicia para Adolescentes, incluyendo cursos y diplomados en México y Puerto Rico.
+
+Su motivación para buscar el cargo es fortalecer el Estado de Derecho a través de su experiencia, con un enfoque en garantizar la protección de los derechos humanos y una justicia accesible, imparcial y cercana a la ciudadanía. Sus propuestas incluyen promover la transparencia y rendición de cuentas, impulsar la capacitación continua del personal judicial, y priorizar un enfoque de derechos humanos en la impartición de justicia, con especial atención a grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Danylda Romero Loya
+- https://www.x.com/@DanyldaRomero
+- https://www.instagram.com/@danyldaromero
+- https://www.tiktok.com/@lic.danylda
+
+
+## Cursos
+
+- Curso Introductorio al Sistema Acusatorio (Módulo I), Instituto de Estudios Judiciales, San Juan, Puerto Rico (2022),Diplomado y especialidad en el Sistema de Justicia Penal, Acusatorio y Oral dirigido a jueces (2012),Seminario de Derecho Procesal Constitucional,Certificación en Ejecución de Sanciones y Penas en el Sistema Penal Acusatorio, Instituto de la Judicatura Sonorense
+- ,Curso Certificación en Justicia para Adolescentes y en el Sistema Penal Acusatorio y Oral (2018)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54991/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad de Sonora con estudios de Maestría en Juicios Orales por la UDS
+
+
+## Motivo para buscar el Cargo Publico
+
+Para fortalecer con mi experiencia el Estado de Derecho con justicia legal, imparcial y cercana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar la protección de los derechos humanos y procurar que la Justicia esté al servicio de las personas. Un juzgador no solo aplica la ley, también escucha, entiende el contexto y resuelve con sensibilidad y responsabilidad. La función jurísdiccional tiene un papel social fundamental: debe ser cercana, imparcial y que contribuya a que la sociedad confíe en sus instituciones y acceda a una solución justa y oportuna de sus conflictos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible, imparcial y con enfoque en derechos humanos. Su objetivo es resolver los conflictos de manera clara, oportuna y justa, con sensibilidad hacia las personas y su contexto. Es una labor que exige ética, profesionalismo y compromiso con el bienestar social y el Estado de Derecho.
+
+
+## Propuestas
+
+- Transparencia y rendición de cuentas: me comprometo a una gestión judicial abierta, en la que las decisiones y procesos sean accesibles y comprensibles para la ciudadanía, fortaleciendo así la confianza en el sistema de justicia.
+- Capacitación continua: participar y fomentar la formación constante del personal judicial en temas actuales, como derechos humanos, perspectiva de género y nuevas tecnologías, para ofrecer una justicia eficiente y sensible al contexto social.
+- Enfoque en derechos humanos: impulsar una justicia accesible para todas las personas, con respeto y apego a los derechos humanos, atención prioritaria a grupos en situación de vulnerabilidad, garantizando el ejercicio pleno de sus derechos en condiciones de igualdad y dignidad.
+

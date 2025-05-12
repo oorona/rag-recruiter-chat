@@ -1,0 +1,84 @@
+Nombre Candidato: FRANCISCO ALBERTO SANTAMARIA IBARRA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: alberto.santamariai@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Arbitraje Comercial, Derecho Penal, Derechos Fundamentales, Especialidad., Formación Judicial, Juicio de Amparo, Jurisprudencia, Licenciatura en Derecho, Maestría, Secretarios del Poder Judicial, Sistema Acusatorio Adversarial
+Tags Propósito: Accesibilidad, Apertura Procesal, Celeridad, Compromiso, Confianza Institucional, Derechos Humanos, Desarrollo Social, Eficiencia, Equidad, Estado de Derecho, Fundamentación Legal., Gestión Recursos, Honestidad, Imparcialidad, Independencia, Justicia, Objetividad, Optimización Procesal, Responsabilidad, Sistema Judicial, Tecnologías, Transparencia
+
+
+## Descripción del Candidato 
+
+Francisco Alberto Santamaria Ibarra es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en Coahuila. Cuenta con Maestría y Especialidad en Derecho, con formación específica en áreas como Juicio de Amparo, procesos penales acusatorios y arbitraje comercial. Su trayectoria académica incluye estudios en la Facultad de Jurisprudencia de la UA de C.
+
+Motivado por un compromiso con la justicia, la equidad y el fortalecimiento del sistema judicial, Francisco Alberto Santamaria Ibarra propone una función jurisdiccional basada en principios de imparcialidad, independencia y respeto a los derechos humanos. Sus propuestas se centran en garantizar el acceso a la justicia para todos, optimizar los procesos para lograr una justicia rápida y eficiente, y promover la transparencia en los procedimientos judiciales. Su perfil detallado y curriculum vitae están disponibles en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574123026047
+- https://x.com/alber_santa
+- https://www.instagram.com/albertosantamaria/
+- https://www.tiktok.com/@alber_santa?lang=es
+- https://www.facebook.com/alberto.santamariai/
+
+
+## Cursos
+
+- Maestría en Juicio de Amparo en el Sistema Acusatorio Adversarial por Instituto de Estudios Superiores en Derecho Penal
+- ,Especialidad en Curso Básico de Formación y Preparación para Secretarios del Poder Judicial de la Federación
+- ,Curso Colaboración Judicial en el Arbitraje Comercial Nacional e Internacional
+- Escuela Federal de Formación Judicial
+- ,Curso Sistema Penal Acusatorio
+- Situación Actual
+- Emitido por la Escuela Federal de Formación Judicial
+- ,Curso El Juicio de Amparo como Mecanismo de Protección de Derechos Fundamentales
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54784/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho egresado de la Facultad de Jurisprudencia de la UA de C
+- Con Maestría y Especialidad
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi postulación responde a un profundo compromiso con la Justicia, la equidad y el fortalecimiento del sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe procurar el fortalecimiento del sistema de impartición de justicia en nuestro país, aplicando entre otros, los principios de imparcialidad, independencia, objetividad, profesionalismo, transparencia y respeto por los derechos humanos que deben guiar a cualquier servidor público en el ámbito judicial. Asimismo, es vital mantener una cercanía con la población en general, que genere certeza y confianza en su actuar, así como en sus resoluciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se debe garantizar una verdadera justicia accesible para TODOS, sin distinción, la cual debe ser independiente, responsable, honesta, objetiva, imparcial, transparente y eficiente, que proteja los derechos humanos de la ciudadanía y de los justiciables. Una justicia que contribuya a la consolidación del Estado de Derecho y contribuya al desarrollo social en el país.
+
+
+## Propuestas
+
+- JUSTICIA ACCESIBLE PARA TODOS. Es fundamental que los juzgadores no sean indiferentes a los problemas sociales y dificultades reales de la gente; es decir, que no se mantengan ajenos a los obstáculos que presentan las personas en general para tener acceso a los Justicia. Por eso, MI COMPROMISO ES mantenerme cercano y no ser indiferente a la realidad de las personas que buscan acceder a la Justicia. Sin que lo anterior implique la vulneración los principios propios de la función jurisdiccional.
+- JUSTICIA RÁPIDA Y EFICIENTE. La optimización de los procesos y la correcta gestión de los recursos humanos y materiales son fundamentales para garantizar que la justicia sea pronta y expedita. Para ello, es indispensable el uso adecuado de las nuevas tecnologías como herramientas que permitirían mayor transparencia y una mejora en la eficiencia de los tribunales. MI COMPROMISO ES adoptar medidas que optimicen los procesos judiciales, garanticen la celeridad y mantengan la calidad de la Justicia.
+- TRANSPARENCIA. MI COMPROMISO sería con la apertura de los procesos judiciales, de manera que los ciudadanos tengan la certeza de que las decisiones que se toman son el resultado de un análisis exhaustivo, objetivo y fundamentado en la ley. La transparencia no solamente implica una correcta comunicación de las sentencias, sino también la garantía de que las partes involucradas tengan acceso a toda la información relevante del proceso, promoviendo así la confianza en las instituciones judiciales.
+

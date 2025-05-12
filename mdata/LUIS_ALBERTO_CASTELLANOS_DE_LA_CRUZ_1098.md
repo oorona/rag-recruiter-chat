@@ -1,0 +1,75 @@
+Nombre Candidato: LUIS ALBERTO CASTELLANOS DE LA CRUZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: coolrocker2@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Derecho Constitucional, Derecho Penal, Derecho Procesal Penal, Ejecución Penal, INDEPAC, Justicia Integral, Licenciatura en Derecho, Maestría, STJJ., Sistema Acusatorio Adversarial, Teoría del Delito, UDG
+Tags Propósito: acceso a la justicia, capacitación, ciudadanos, derechos humanos, eficiencia, estado de derecho, imparcialidad, justicia, justicia digital, justicia pronta y expedita., percepción ciudadana, procesos judiciales, toma de decisiones, transparencia
+
+
+## Descripción del Candidato 
+
+LUIS ALBERTO CASTILLANOS DE LA CRUZ es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal, Maestría en Sistema Acusatorio Adversarial y estudios de especialización en Derecho Constitucional y Penal. Su trayectoria académica incluye la Licenciatura en Derecho por la Universidad de Guadalajara.
+
+Su motivación para buscar el cargo es servir a la ciudadanía desde una perspectiva de justicia y cercanía. Su visión sobre la función jurisdiccional se centra en la eficiencia, imparcialidad y transparencia, priorizando los derechos humanos. Sus propuestas incluyen el impulso de la justicia digital, la capacitación continua del personal jurisdiccional y la promoción de la aproximación entre juzgadores y ciudadanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/grillo.castellanos
+- https://www.instagram.com/castellanosgrillo
+
+
+## Cursos
+
+- Diplomado en Teoría del Delito,Diplomado en Justicia Integral para Adolescentes y Ejecución Penal,Especialidad en Derecho Constitucional y Amparo,Especialidad en Derecho Penal,Seminario: Sistema Acusatorio Adversarial en Materia Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52643/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, UdG
+- Maestría en Derecho Procesal Penal, INDEPAC
+- Maestría Sistema Acusatorio Adversarial, STJJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Es una oportunidad para servir a las y los ciudadanos desde una perspectiva de justicia, cercanía y visibilización.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las funciones jurisdiccionales tienen que ser eficientes, imparciales y transparentes. Debe haber constante toma de decisiones justas y responsables para mejorar tanto la percepción, como la experiencia de las y los mexicanos que son parte de un proceso judicial, respetando siempre, por encima de todo, sus derechos humanos fundamentales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar la preservación del estado de derecho. Impartición de justicia pronta y expedita, reduciendo el tiempo en que se resuelve un asunto, cuidando la calidad y la visibilización de la o el ciudadano que es parte de un proceso de índole judicial.
+
+
+## Propuestas
+
+- Impulsar la justicia digital.
+- Capacitación y actualización continua de todo el personal jurisdiccional.
+- Promover y facilitar la aproximación con las y los ciudadanos por parte de los juzgadores.
+

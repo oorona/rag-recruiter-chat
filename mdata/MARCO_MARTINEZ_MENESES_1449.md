@@ -1,0 +1,79 @@
+Nombre Candidato: MARCO MARTINEZ MENESES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2215734324
+Correo Electronico: licmarcomeneses@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Jurídicas, Ciencias Sociales, Cursos, Derecho Civil, Doctorado, Especialidad, Formación Judicial, Licenciatura en Derecho, Maestría, Reforma Laboral, Seguridad Social, Seminarios, UAEH
+Tags Propósito: Acceso a la justicia, Capacitación, Congruencia, Derechos humanos, Difusión pública., Estado de Derecho, Evaluación, Imparcialidad, Justicia, Operadores jurídicos, Orden público, Paz, Productividad, Rendición de cuentas, Rezago, Sociedad, Solución de conflictos, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Marco Martinez Meneses es candidato a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulado por el Poder Ejecutivo Federal. Cuenta con un extenso perfil académico, incluyendo licenciatura en Derecho, dos especialidades, maestría y doctorado, complementado con más de 45 cursos y seminarios. Su motivación para buscar el cargo radica en contribuir a una impartición de justicia pronta, completa e imparcial en un momento histórico para el país.
+
+Su visión de la función jurisdiccional enfatiza la responsabilidad profesional y humana, mientras que su visión sobre la impartición de justicia busca soluciones efectivas para garantizar el Estado de Derecho con cercanía a la ciudadanía. Sus propuestas centrales incluyen mejorar el acceso a la justicia mediante sentencias claras y la reducción del rezago, fortalecer la capacitación de los operadores jurídicos y promover la rendición de cuentas a través de la transparencia y la difusión de criterios jurídicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Marco Martinez Meneses
+- https://www.x.com/@marco_meneses21
+- https://www.tiktok.com/@marco.martinez.me2
+
+
+## Cursos
+
+- Especialidad Sobre la Reforma en Materia de Justicia Laboral en la Escuela Federal de Formación Judicial
+- ,Especialidad en Derecho Civil en la Universidad La Salle
+- ,Maestría en Ciencias Jurídicas y Sociales en la Universidad de las Naciones
+- ,Doctorado en Ciencias Jurídicas, Administrativas y de la Educación en la Universidad de la Naciones
+- ,Diplomado en Materia de Seguridad Social (120 horas), impartido por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53947/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en la UAEH
+- Dos especialidades, maestría y doctorado
+- Más de 45 cursos y seminarios
+
+
+## Motivo para buscar el Cargo Publico
+
+Es un momento histórico, deseo contribuir a una verdadera impartición de justicia pronta, completa e imparcial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional constituye una de las tareas del sector público de mayor multiplicidad de matices de desarrollo profesional (implica conocimientos especializados) y humano (adecuada inteligencia intelectual y emocional). La función jurisdiccional implica la más alta responsabilidad de ejercer un cargo público con compromiso a la sociedad y el propio ámbito interno de quienes desempeñan el cargo, como es la familia, los colaboradores de trabajo y la población en general.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una actividad constante de otorgar soluciones efectivas a las problemáticas surgidas en la sociedad para garantizar la paz, el orden público y el Estado de Derecho, sin perder la cercanía con la ciudadanía y el acceso a los servicios que la justicia provee en relación directa con las particularidades de las condiciones generales de vida los mexicanos y quienes radican en este país.
+
+
+## Propuestas
+
+- Acceso a la justicia: Sentencias concisas y claras. Incrementar considerablemente la productividad, debe abatirse el rezago. Evaluación de cumplimiento de objetivos enfocados también en la calidad del ejercicio del quehacer público. Implementación de criterios que en su mayoría prioricen el acceso a la justicia. Contar con una visión de priorización a los asuntos que entrañen necesidades de trascendencia para la sociedad, bajo jerarquía de ponderación de derechos humanos.
+- Operadores Jurídicos: Capacitación constante en los ámbitos jurídico, administrativo y humano. Realización de la función jurisdiccional con congruencia entre el comportamiento público y privado de quienes la ejercen. Fortalecer los valores de los Códigos de Ética del Poder Judicial de la Federación. Siempre estar disponible para recibir a las partes, para escuchar el conocido ¿alegato de oídas¿. Privilegiar solución de conflictos de fondo sobre cuestiones de forma o procesales.
+- Rendición de cuentas: Difusión a la sociedad de los criterios jurídicos imperantes en diversos tipos de controversias. Rendir informe de la productividad y especificar cómo se está abatiendo el rezago. Generar cercanía con la sociedad a través de mensajes colectivos, entrevistas o programas de difusión pública para mayor conocimiento sobre los funcionarios que ejercen la administración de justicia. Transparencia en la emisión de las resoluciones para que la sociedad tenga conocimiento.
+

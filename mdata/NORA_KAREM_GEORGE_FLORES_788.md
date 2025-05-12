@@ -1,0 +1,85 @@
+Nombre Candidato: NORA KAREM GEORGE FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5620556646
+Correo Electronico: NoraKGF@proton.me
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: CJF, Derecho Constitucional, Derecho Procesal, Derechos Humanos, Especialización en Derecho, Igualdad de género, Juicio Contencioso Administrativo, Juicio de Amparo, Licenciatura en Derecho., Máster en Derecho, Relaciones de género, SCJN, UNAM
+Tags Propósito: Acceso a la Justicia, Acompañamiento Jurídico, Bienestar Social, Defensoría de Oficio, Derechos Humanos, Discriminación, Gratuidad, Igualdad, Inclusión, Justicia, Marginación., Paz Social, Poblaciones Vulnerables, Poder Judicial, Restitución de Derechos, Simplificación del Lenguaje, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Nora Karem George Flores es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con maestría en Derecho y especializaciones en Derecho Constitucional e Institutos de Derecho Procesal, todas cursadas en la Universidad Nacional Autónoma de México (UNAM) y la Universidad Panamericana (UP). 
+
+Su motivación para buscar el cargo público se centra en contribuir a una justicia más cercana, igualitaria y humana. Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la resolución justa de conflictos, el respeto a la igualdad, la accesibilidad, la protección de los derechos humanos y la atención a grupos históricamente discriminados. Sus propuestas incluyen promover la sinergia entre los poderes judiciales y la sociedad civil, simplificar el lenguaje jurídico y fortalecer el acompañamiento a los justiciables a través de las defensorías de oficio.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Nora_K_GF
+- https://www.x.com/NoraKGF1
+- https://www.instagram.com/norakgf1
+- https://www.tiktok.com/Norakgf
+
+
+## Cursos
+
+- Diplomado Relaciones de género, edición XVI, CIEG UNAM Centro de Investigación y Estudios de Género de la Universidad,Curso Puntos Importantes a considerar en el Juicio Contencioso Administrativo, impartido por el TFJA,Diplomado Juicio de Amparo, impartido por la Dirección General de Casas de la Cultura Jurídica, SCJN,Curso Igualdad de género, estereotipos y justicia, impartido por la Escuela Federal de Formación Judicial, CJF,Diplomado La Suprema Corte y los Derechos Humanos, Dirección General de Casas de la Cultura Jurídica, SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53161/10
+
+
+## Trayectoria Academica
+
+- Mtra
+- en Dcho
+- UNAM, Esp
+- en Dcho
+- Constitucional
+- UNAM, Esp
+- en Inst
+- de Dcho
+- Proc
+- UP, Lic
+- en Dcho
+- UP
+
+
+## Motivo para buscar el Cargo Publico
+
+Atendiendo a mi formación, busco contribuir a una justicia más cercana a la gente, igualitaria y humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe enfocarse en resolver los conflictos de manera justa, siempre respetando la igualdad entre las partes y considerando las circunstancias de quienes buscan justicia. Es fundamental que los derechos de los ciudadanos sean restituidos de manera plena. Además, la justicia debe ser ágil y accesible, sin que esto signifique sacrificar su calidad. Debe ser gratuita para garantizar que todos puedan acceder a ella, y siempre debe proteger de manera firme los derechos humanos
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser el pilar que impulse el bienestar y la paz social, y para ello, la función jurisdiccional debe llevarse a cabo en condiciones de igualdad, inclusión y cercanía con las personas. La impartición de justicia debe estar al alcance de todos, especialmente de quienes históricamente han sido excluidos, como mujeres, niños, niñas, adolescentes, personas mayores, indígenas y todas aquellas que han sido discriminadas y marginadas por las instituciones y la sociedad.
+
+
+## Propuestas
+
+- Promover una sinergia entre el Poder Judicial de la Federación, los poderes judiciales locales, el resto de las instituciones del Estado y la sociedad civil, con el objetivo lograr una impartición de justicia más integral, cercana a la ciudadanía y que mejore sus condiciones de vida, especialmente las de aquellas personas y poblaciones históricamente discriminadas: las mujeres, los niños, niñas y adolescentes, las personas mayores, entre otras.
+- Insistir en la simplificación del lenguaje para permitir a las partes un mejor entendimiento de las decisiones tomadas durante la tramitación y resolución de los juicios.
+- Impulsar políticas de acompañamiento a los justiciables dentro de los órganos jurisdiccionales, contemplando la participación de las defensorías de oficio, con el objetivo de brindarles claridad sobre los juicios en los que están involucrados, garantizando la plena restitución de los derechos cuando hubiesen indebidamente afectados.
+

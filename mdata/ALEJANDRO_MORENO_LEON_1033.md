@@ -1,0 +1,84 @@
+Nombre Candidato: ALEJANDRO MORENO LEON
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3337778200
+Correo Electronico: lic.alejandro.ml@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Constitución., Derecho Administrativo, Derecho Fiscal, Derecho Procesal Constitucional, Derechos Humanos, Diplomado, EFFJ, Formación Judicial, ITAM, Impuestos, Licenciatura, Maestría, SCJN, ULSAB, UNAM, UdeG
+Tags Propósito: calidad, capacitación, corrupción, derechos humanos, dignidad, eficiencia, estándares de justicia, excelencia, imparcialidad, justicia, legalidad, ley, objetividad, organización administrativa, profesionalismo, pronta resolución., resolución de conflictos, respeto, trato sensible, tribunales
+
+
+## Descripción del Candidato 
+
+Alejandro Moreno León es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Administrativo (UNAM) y en Derechos Humanos (EFFJ), así como un extenso historial de cursos y diplomados en áreas como Derechos Humanos, Argumentación Jurídica, Derecho Fiscal y Procesal Constitucional.
+
+Su motivación para buscar el cargo se centra en servir a la sociedad impartiendo justicia de calidad, con respeto a la ley y a los derechos humanos. Sus propuestas incluyen mejorar la organización administrativa de los tribunales para agilizar la resolución de casos, garantizar un trato digno y sensible a personal y justiciables, y vigilar la integridad en el ámbito judicial, denunciando cualquier acto de corrupción.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alejandro.morenoleon7
+- https://x.com/Alejand61690831
+- https://www.instagram.com/alex_moreno_ml
+- https://www.tiktok.com/@lic_alejandro_moreno
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos a la Luz del Artículo Primero Constitucional
+- Escuela Federal de Formación Judicial (EFFJ),Diplomado en Argumentación Jurídica
+- Univ
+- Panamericana, Univ
+- de Alincante, y Escuela Federal de Formación Judicial
+- ,Diplomado Automatizado en Impuestos
+- Instituto Tecnológico Autónomo de México (ITAM)
+- ,Diplomado en Derecho Fiscal
+- Suprema Corte de Justicia de la Nación (SCJN)
+- ,Diplomado en Derecho Procesal Constitucional
+- Suprema Corte de Justicia de la Nación (SCJN) y Univ de Guadalajara (UdeG)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54504/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (ULSAB), con dos maestrías, una en Derecho Admistrativo (UNAM) y otra en Derechos Humanos (EFFJ)
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir a la sociedad impartiendo una justicia de calidad, con un trato digno para las personas y respeto a la ley
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que un magistrado está obligado a proporcionar a las personas una solución adecuada a sus conflictos, siempre buscando proteger sus derechos humanos y respetando la ley. Además, debe atender con dignidad, calidad y sensibilidad tanto al personal jurisdiccional a su cargo, como a las personas justiciables, mostrando en todo momento una conducta ejemplar en el ámbito profesional, como en lo personal, conforme a principios de excelencia y profesionalismo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que es importante que los tribunales estudien y resuelvan de manera profesional y cuidadosa los asuntos que les corresponda conocer, respetando en todo momento los derechos humanos de las personas, emitiendo sentencias justas y apegadas a la ley, conforme a estándares altos de calidad, buscando que la sociedad encuentre en los tribunales una forma efectiva, confiable y segura de resolver sus conflictos de manera imparcial y objetiva.
+
+
+## Propuestas
+
+- Quiero mejorar la función jurisdiccional estableciendo una adecuada organización administrativa del tribunal, enfoncando los recursos con que cuente para agilizar y acelerar la resolución de los asuntos, con la finalidad de que la sociedad cuente con una justicia pronta y expedita, que permita abatir, o en su caso, evitar el rezago que pueda existir en el tribunal en donde trabaje, además de mantener una capacitación adecuada tanto del suscrito como del personal del tribunal.
+- Como magistrado proporcionaré al personal jurisdiccional y a las personas justiciables, un trato adecuado y sensible, a fin de que reciban una atención de calidad, que sea acorde con el reclamo de la sociedad, que ha manifestado su deseo de que los tribunales los escuchen y resuelvan sus conflictos con un sentido humano, con respeto al marco legal.
+- Como magistrado procuraré vigilar en ámbito de mis atribuciones, que no se incurra en actos de corrupción en el tribunal en donde labore, denunciando cualquier conducta que no se apegue a la legalidad y al estrico cumplimiento de los principios y estándares de impartición de justicia.
+

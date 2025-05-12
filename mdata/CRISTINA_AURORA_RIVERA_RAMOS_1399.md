@@ -1,0 +1,80 @@
+Nombre Candidato: CRISTINA AURORA RIVERA RAMOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9511820623
+Correo Electronico: holamagistrada@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Consejo de la Judicatura, Instituto de Especialistas de Concursos Mercantiles., Instituto de la Judicatura Federal, Universidad Iberoamericana, derecho concursal, derecho fiscal, derecho indígena, desarrollo humano, especialización judicial, justicia penal acusatoria, licenciatura en derecho
+Tags Propósito: Estado de Derecho, acceso a la justicia, confianza social, derechos humanos, digitalización, empatía., equidad social, imparcialidad, inclusión, integridad judicial, justicia cercana, justicia imparcial, justicia social, legalidad, lenguaje ciudadano, rendición de cuentas, sectores excluidos, transparencia
+
+
+## Descripción del Candidato 
+
+CRISTINA AURORA RIVERA RAMOS es candidata a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Ejecutivo y Legislativo Federal. Su formación incluye una Licenciatura en Derecho, Especialización Judicial, y diversos diplomados en áreas como derecho fiscal, concursal y el Nuevo Sistema de Justicia Penal Acusatorio. 
+
+La candidata basa su motivación en un compromiso con la justicia imparcial, la integridad judicial y la equidad social. Su visión para la función jurisdiccional se centra en una judicatura cercana a la realidad de las personas, accesible y comprensible, con propuestas que incluyen la digitalización de procesos, un lenguaje ciudadano en las sentencias y la integración transversal de los principios de derechos humanos en las resoluciones judiciales, buscando fortalecer la confianza social y la rendición de cuentas del Poder Judicial Federal.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/crisriveramos?utm_source=linktree_profile_share&ltsid=06b62839-ad06-4e0a-9d35-73f7ef0b154c
+
+
+## Redes Sociales
+
+- https://www.facebook.com/cristiriverar
+- https://x.com/crisriverar_
+- https://www.instagram.com/crisriverar_
+- https://www.youtube.com/@crisriverar
+- https://www.tiktok.com/@crisriverar_
+- https://www-linkedin.com/in/cristinariveraramos/
+
+
+## Cursos
+
+- Especialización judicial impartida por el Instituto de la Judicatura Federal en la extensión Oaxaca
+- ,Diplomado en derecho fiscal, impartido por la Universidad Iberoamericana en colaboración con el Consejo de la Judicatura,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Derecho concursal, impartido por el Instituto de Especialistas de Concursos Mercantiles
+- ,Actualización en materia jurídica y derecho indígena
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54648/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho; especialización judicial, diplomado en derecho fiscal; en derecho concursal,y desarrollo humano
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a ser magistrada por un compromiso firme con la justicia imparcial, la integridad judicial y la equidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Propongo una judicatura cercana a la realidad de las personas, que escuche, comprenda y resuelva con sensibilidad los asuntos sometidos a su potestad, sin ceder a presiones externas ni intereses particulares. Una función jurisdiccional que defienda el Estado de Derecho, promueva la legalidad y actúe conforme a lo que dispone la ley y la justicia social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Propongo una visión de justicia que se funde en la cercanía con el pueblo, en donde la ley no sea un privilegio de unos cuantos, sino una garantía para todos. Una justicia que no solo resuelva conflictos, sino que sane desigualdades históricas y devuelva la confianza a quienes por mucho tiempo fueron ignorados o silenciados; propongo un sistema de impartición de justicia que escuche con empatía, actúe y decida con imparcialidad.
+
+
+## Propuestas
+
+- El sistema judicial debe ser comprensible, accesible y útil para toda la población, especialmente para quienes históricamente han estado excluidos, por ello se debe garantizar el acceso real a la justicia para todos, a través de fomentar una cultura judicial basada en la cercanía con el pueblo, líneas de acción; digitalización de procesos y consulta pública de expedientes; sobre todo establecer un lenguaje ciudadano en sentencias y procedimientos.
+- Garantizar que todas las resoluciones del Poder Judicial Federal integren de forma transversal los principios de derechos humanos, equidad, inclusión y justicia social, con lo que se logrará su objetivo que es proteger a los sectores históricamente excluidos, promover una justicia más humana y cercana a la realidad del País.
+- Fomentar un Poder Judicial Federal completamente abierto al escrutinio público, donde cualquier ciudadano pueda conocer y entener cómo se imparten las decisiones judiciales, a fin de fortalecer la confianza social, promover la rendición de cuentas y prevenir abusos.
+

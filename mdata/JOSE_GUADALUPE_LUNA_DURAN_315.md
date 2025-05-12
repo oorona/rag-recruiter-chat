@@ -1,0 +1,76 @@
+Nombre Candidato: JOSE GUADALUPE LUNA DURAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: HOMBRE
+Telefono: 6241223901
+Correo Electronico: joseguadalupe9300@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo Directo, Derecho, Derecho Civil, Derecho Constitucional, Derecho Laboral, Derecho Procesal Penal, Doctorado, Ejecución, Justicia para Adolescentes, Lenguaje Inclusivo, Máster., No Sexista, Perspectiva de Género, Sistema Penitenciario
+Tags Propósito: acceso a la justicia, adolescentes, capacitación, derechos humanos, diversidad sexual, eficiencia, estado de derecho, grupos vulnerables, independencia judicial, indígenas, infraestructura, justicia, modernización, mujeres, niñas, niños, personas con discapacidad, rezago judicial, transparencia.
+
+
+## Descripción del Candidato 
+
+Jose Guadalupe Luna Duran es candidato a las Magistraturas de Tribunales Colegiados de Circuito en Baja California Sur, postulándose a través del Poder Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con estudios de Doctorado concluidos y una amplia trayectoria académica con maestrías en Derecho Laboral, Civil, Procesal Penal, Constitucional y Amparo.
+
+Su motivación para buscar el cargo es el deseo de servir al pueblo e impartir justicia, buscando reducir el rezago judicial. Su visión se centra en una función jurisdiccional independiente, eficiente, confiable y protectora de los derechos humanos. Sus propuestas incluyen facilitar el acceso a la justicia, la protección inmediata de grupos vulnerables y la modernización de la infraestructura y capacitación del personal judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/joseglunaduran/
+- https://x.com/joseglunaduran
+- https://www.instagram.com/joseglunaduran/#
+- https://www.tiktok.com/@tujuezsudcaliforniano
+
+
+## Cursos
+
+- Diplomado Jueces de ejecución y sistema penitenciario,Diplomado sistema integral de justicia para adolescentes,Curso uso de lenguaje inclusivo y no sexista,Curso amparo directo,Curso juzgar con perspectiva de genero
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53704/10
+
+
+## Trayectoria Academica
+
+- Dr en dcho, Mtr en dcho laboral, Mtr en dcho civil, Mtr en dcho procesal penal, Mtr en dcho constitucional y amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es un honor servir al pueblo, me gusta y disfruto impartir justicia quiero ayudar a reducir el rezago judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que sea independiente, eficiente y confiable para el pueblo, protegiendo y garantizando los derechos humanos establecidos en la constitución y tratados internacionales de los que México es parte.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que sea eficiente, confiable y trasparente que garantice el estado de derecho.
+
+
+## Propuestas
+
+- Que sea accesible para todas y todos en igualdad de circunstancias.
+- Protección inmediata a los grupos vulnerables niñas, niños, adolescentes, personas con discapacidad, diversidad sexual, indígenas, mujeres, entre otros.
+- Modernización de la infraestructura por lo que hace a los equipos de cómputo de trabajo y programar capacitaciones más eficientes para el personal en diversas materias.
+

@@ -1,0 +1,84 @@
+Nombre Candidato: CARLOS ADRIAN LOPEZ SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5565869743
+Correo Electronico: carlos.adrian.lopezsanchez82@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Civil, Derecho Familiar, Derecho Mercantil, Docencia, Doctorando, EFFJ, Formación Judicial., IMEXAR, Igualdad de Género, Judicatura Federal, Licenciatura en Derecho, Maestría en Derecho, Perspectiva de Género, Prueba, UNAM, Universidad de las Américas
+Tags Propósito: Acceso a la justicia, Claridad, Derechos ciudadanos, Desarrollo, Desigualdad, Eficiencia, Empatía, Estado de Derecho, Impacto social, Justicia social, Paz social, Políticas públicas, Rendición de cuentas., Resolución de conflictos, Sentencias transformadoras, Simplificación, Transparencia, Tribunal
+
+
+## Descripción del Candidato 
+
+Carlos Adrian Lopez Sanchez es candidato a Magistraturas de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con un doctorado en Derecho y una trayectoria académica que incluye la docencia en IMEXAR y la Escuela Federal de Formación Judicial. Su candidatura se basa en su conocimiento, experiencia y empatía para fortalecer el Estado de Derecho y promover la justicia social.
+
+Su visión sobre la función jurisdiccional se centra en una justicia accesible, cercana a la gente y orientada a resolver problemas reales, enfatizando la necesidad de eliminar formalismos y burocracia. Sus propuestas incluyen remover obstáculos injustificados en los procedimientos, emitir sentencias transformadoras que contribuyan al cambio social y difundir las decisiones del tribunal de manera clara y comprensible para el público.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18murauHYz/?mibextid=wwXIfr
+- https://x.com/calsadrian?s=21&t=OowgzMFHta8R4jWFDXC-0g
+- https://www.instagram.com/carlosadrianls?igsh=MWpoNnc2dXExa2JtYQ==
+- https://www.tiktok.com/@calopsan?_t=ZM-8usOt6fH6ff&_r=1
+
+
+## Cursos
+
+- Especialización en Derecho Civil
+- Facultad de Derecho UNAM,La oralidad en el proceso mercantil
+- Instituto de la Judicatura Federal,Diplomado Racional de la Prueba
+- Universidad de la Américas,Curso género como herramienta para la igualdad
+- Novena edición
+- Escuela Federal de Formación Judicial,Curso Juzgar con perspectiva de género en materia familiar
+- Segunda edición Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54133/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y especialista en Derecho Civil UNAM
+- Maestro en Derecho y Doctorando
+- Docente en IMEXAR y EFFJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo conocimiento, experiencia y empatía para dar justicia social, fortalecer el Estado de Derecho y servir al pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser cercana a la gente, entender sus preocupaciones y brindar soluciones reales. Una sentencia que resuelve pero no imparte justicia, sólo es noticia. Las sentencias impactan en la vida de las personas y deben contribuir al cambio social. La función jurisdiccional debe dejar de lado formalismos y burocracia que sólo retrasan el dictado de sentencias, que impiden que llegue a quien más lo necesita.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser sencilla, clara y verdaderamente accesible. Reconozcamos que no todas las personas cuentan con las mismas oportunidades para acudir a los tribunales, hay que mirar de frente, afrontar y corregir esas desigualdades. Eliminemos las trabas injustificadas, los requisitos que obstaculizan las demandas, los retrasos en el dictado de las sentencias. Al resolver es nuestra obligación y compromiso estar conscientes de las necesidades de la gente.
+
+
+## Propuestas
+
+- Remover obstáculos injustificados y evitar formalismos que sólo retrasan la impartición de justicia. No más reposiciones de procedimiento por requisitos innecesarios que pueden ser subsanados sin afectar el equilibrio entre las partes. No concederé amparos para efectos que no vayan a modificar el sentido de la decisión, esos amparos dan una falsa sensación de justicia, en realidad retrasan los juicios.
+- Sentencias que den respuesta a la problemática que se presenta, más allá de lo que se diga en los escritos. Las sentencias deben ser transformadoras, contribuir a la paz social y al desarrollo de las políticas públicas que se implementan para el beneficio de la sociedad.
+- Difundir las sentencias que yo emita y el resultado de las que aprobemos en el Tribunal. Cada semana subiré un resumen que explique las decisiones que tomamos, cómo impactan y cuál es su utilidad. Que las personas sepan cuáles son sus derechos y cómo hacerlos valer. La explicación será breve y con vocabulario sencillo para que las personas interesadas puedan entenderlas sin necesidad de intermediarios.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: ASAEL MANJARREZ ESQUIVEL
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5660257353
+Correo Electronico: asaelmanjarreze@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Derecho Penal, Derecho Procesal Penal, Doctorado, Intensivista, Juicios Orales, Maestría, Medicina Interna, Medicina del Enfermo en Estado Crítico, Título en trámite.
+Tags Propósito: accesibilidad, atención al ciudadano, auditorías, corrupción, código de conducta, denuncias anónimas, derecho médico, derechos del paciente, derechos humanos, equidad, humanización, integridad, justicia, legalidad, participación ciudadana, sistema judicial., transparencia, valoración del acto médico, ética
+
+
+## Descripción del Candidato 
+
+Asael Manjarrez Esquivel es candidato a Juez de Distrito en México, postulando a través del Poder Judicial de la Federación. Cuenta con formación académica en Medicina Interna e Intensivista, además de estudios en Derecho con maestría en Juicios Orales, Derecho Procesal Penal y Doctorado en Derecho Penal.
+
+Su motivación para buscar el cargo se basa en la necesidad de humanizar y hacer más accesible la justicia, promoviendo la equidad, honestidad y transparencia. Sus propuestas incluyen fomentar la participación ciudadana a través de encuestas y buzones de sugerencias, combatir la corrupción mediante códigos de conducta y sistemas de denuncia, e impulsar la creación de un marco legal que proteja los derechos de los pacientes y profesionales de la salud, conocido como “derecho médico”.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573892742481
+- https://www.instagram.com/asael_manjarrez/
+- https://www.youtube.com/@asaelmanjarreze
+- https://www.tiktok.com/@asaelmanjarreze
+
+
+## Cursos
+
+- Maestría en Juicios Orales
+- ,Maestría en Derecho Procesal Penal
+- ,Doctorado en Derecho Penal
+- Titulación en trámite
+- ,Especialidad en Medicina Interna en el Instituto Nacional de Ciencias Médicas y Nutrición Salvador Zubirán
+- ,Especialidad en Medicina del Enfermo en Estado Crítico en el Instituto Nacional de Ciencias Médicas y Nutrición SZ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53939/11
+
+
+## Trayectoria Academica
+
+- Médico internista e intensivista, abogado, con maestría en juicios orales, y maestría y doctorado en derecho penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para sanar y humanizar la justicia, haciéndola más accesible, equitativa, honesta, transparente y cercana a la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como juez, me basaré en principios fundamentales: integridad, derecho, ética, atención y legalidad (IDEAL). La integridad me llevará a tomar decisiones honestas y justas, mientras que mi compromiso con el derecho asegurará la protección de cada ciudadano. La ética será esencial para mantener la confianza en el sistema judicial, y la atención a cada caso me permitirá escuchar todas las voces involucradas. La legalidad regirá mis decisiones, garantizando que se basen en el marco establecido.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema de justicia debe centrarse en la participación ciudadana, la humanización del proceso judicial, la transparencia y la lucha contra la corrupción. Esto implica escuchar activamente a la población, garantizar un trato digno a las víctimas, mantener prácticas transparentes y cero tolerancia a actos corruptos. Además, es fundamental crear el derecho médico para proteger la salud como derecho fundamental, promoviendo un sistema judicial más accesible, justo, equitativo y empático.
+
+
+## Propuestas
+
+- Me comprometo a escuchar a cada ciudadano, creando un puente entre la comunidad y el sistema judicial. Realizaré encuestas y habilitaré un Buzón de Sugerencias para conocer sus inquietudes. Además, implementaré capacitación en derechos humanos y atención al ciudadano para que todos, especialmente las víctimas, sean tratados con dignidad. Juntos, construiremos un sistema de justicia que refleje las necesidades de nuestra sociedad, donde cada voz cuente y se respete la dignidad de todos.
+- Bajo mi administración, la corrupción no tendrá cabida. Implementaré un código de conducta y un sistema de denuncias anónimas para que tanto empleados como ciudadanos puedan reportar irregularidades. Publicaré informes sobre casos de corrupción y fomentaré auditorías independientes. La justicia debe ser un proceso transparente y accesible, donde cada ciudadano confíe en que sus derechos serán respetados. Juntos, lograremos un sistema judicial libre de corrupción y más justo para todos.
+- Me comprometo a iniciar la creación del derecho médico, protegiendo tanto a pacientes como a profesionales de la salud. Organizaré seminarios y capacitaré a jueces y al personal del tribunal en la valoración del acto médico. Difundiré guías sobre los derechos de los pacientes y brindaré atención prioritaria a quienes hayan sufrido violaciones a su derecho a la salud. Juntos, construiremos un marco legal que garantice la justicia en el ámbito de la salud, promoviendo un entorno más equitativo.
+

@@ -1,0 +1,80 @@
+Nombre Candidato: GABRIELA ARROYO NAVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2221107581
+Correo Electronico: tucitaarroyo@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Penales, Democracia., Derecho Administrativo, Derechos Humanos, Género, Igualdad, Justicia para Adolescentes, Legislación, Sistema Penal Acusatorio, Violencia
+Tags Propósito: Actualización Legislativa, Derechos Humanos, Género, Honestidad, Imparcialidad, Independencia, Integridad, Justicia, Ley, Sensibilidad., Violencia Estructural, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gabriela Arroyo Nava es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulando desde el Poder Judicial de la Federación. Cuenta con Maestría en Ciencias Penales y Derecho, y Especialidad en Derechos Humanos y Democracia, respaldada por diversos cursos de actualización en áreas como justicia para adolescentes, violencia de género y el sistema penal acusatorio.
+
+Su motivación para el cargo se centra en impartir justicia imparcial, con perspectiva de género y respeto a los derechos humanos. Sus propuestas incluyen una justicia independiente y la actualización legislativa continua, priorizando la sensibilidad hacia grupos vulnerables y la erradicación de la violencia estructural en sus sentencias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574754842980&mibextid=wwXIfr&mibextid=wwXIfr
+- https://x.com/tucitaarroyo?s=11&t=C0-pBMA3Bha2GTWG9J5tCw
+- https://www.instagram.com/gaby.arroyo.nava?igsh=MXBncWdzbDVjdDVuNw==
+- https://www.tiktok.com/@gabyarr4?_t=ZM-8v2H5DAYgZp&_r=1
+
+
+## Cursos
+
+- Curso Para Generar Espacios Libres de Violencia
+- ,Actualización Legislativa
+- Módulo Materia Administrativa
+- ,Género como Herramienta para la Igualdad
+- ,Retos y Perspectivas en el Sistema Penal Acusatorio
+- ,Especialidad en Justicia para Adolescentes
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52320/10
+
+
+## Trayectoria Academica
+
+- Maestra en Ciencias Penales y Derecho
+- Especialidad en Derechos Humanos y Democracia
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia imparcial, con perspectiva de género, con pleno respeto de los derechos humanos de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser juzgador implica resolver de forma imparcial e independiente, sin ceder a las presiones externas ni conforme con cuestiones subjetivas, lo que se logra únicamente a través de una trayectoria laboral íntegra y honesta, observando y cumpliendo la ley sin buscar beneficios personales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es velar por el cumplimiento de la ley pero no sólo mediante la aplicación de ésta, sino también con sensibilidad hacia los grupos vulnerables existentes en nuestro país, con perspectiva de género y sin perpetuar la violencia estructural que sufren dichos grupos.
+
+
+## Propuestas
+
+- Justicia imparcial e independiente.
+- Actualización legislativa permanente.
+- Juzgar con perspectiva de género y sensibilidad hacia los grupos vulnerables.
+

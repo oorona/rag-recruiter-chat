@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN CARLOS UGALDE GUZMAN
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5510134504
+Correo Electronico: ugalde100@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Adolescentes, Certificación, Derecho, Diplomado, Doctorado, Educación continua., Especialidad, Juicios orales, Maestría
+Tags Propósito: Autoridad, Ciudadanía, Confianza, Culpables, Funcionario capacitado, Imparcialidad, Impartición de justicia., Inocentes, Juicios justos, Justicia, Leyes, Reparação, Ética
+
+
+## Descripción del Candidato 
+
+Juan Carlos Ugalde Guzman es candidato a Juez/a de Distrito en México, postulándose al Poder Judicial de la Federación. Cuenta con maestría, así como con estudios de especialidad, diplomado, y actualmente cursa un doctorado. Su trayectoria académica incluye la Licenciatura en Derecho.
+
+Ugaldé busca el cargo para ejercer su profesión con ética e imparcialidad, sirviendo a la ciudadanía. Su visión se centra en aplicar la ley de forma correcta para garantizar justicia, reparar el daño a las víctimas y evitar la impunidad. Sus propuestas incluyen juicios justos, recuperar la confianza de los ciudadanos en las autoridades y asegurar la correcta impartición de justicia. Se puede encontrar más información en su currículum vitae disponible en línea y en sus perfiles de redes sociales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/juancarlos.ugaldeguzman.5
+- https://x.com/Car2560031Juan?t=6QuSVmoV54lbEEeE1wzb6g&s=08
+- https://www.instagram.com/juancarlosugaldeguzman?igsh=ZHI3d3p3Z29xc2Y0
+- https://www.tiktok.com/@juancarlosugaldeguzman?_t=ZM-8v31lV6jcjm&_r=1
+
+
+## Cursos
+
+- Diplomado juicios orales, especialidad, dos maestrías, certificación en adolescentes, en curso mi doctorado
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54798/11
+
+
+## Trayectoria Academica
+
+- Lic
+- Derecho, Especialidad, Diplomado, dos Maestrías, y curso el Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ejercer correctamente mi profesión en la impartición de Justicia de forma ética e imparcial; y servir a la ciudanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mis valores, principios y conocimiento los desempeñare para impartir justicia dentro de mi adscripción respetando en todo momento las leyes y aplicándolas de forma adecuada para que los culpables no queden impunes y al inocente se le repare el daño.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La situación en la que vivimos actualmente requiere de funcionarios capacitados que apliquen de forma correcta las leyes y erradiquen todos los vicios; demostrando con hechos los resultados de una adecuada impartición de justicia
+
+
+## Propuestas
+
+- Juicios justos que garanticen una adecuada impartición de justicia
+- Retomar la confianza de los ciudadanos en las autoridades que imparten la justicia
+- Me comprometo a realizar de forma correcta mi trabajo para garantizar que el culpable no quede impune, a la victima se le repare el daño
+

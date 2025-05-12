@@ -1,0 +1,71 @@
+Nombre Candidato: EDGAR DIDIER LOPEZ MENDIVIL
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó información, sin etiquetas.
+Tags Propósito: No proporcionó, ausencia, inexistente, nulo, silencio, vacío
+
+
+## Descripción del Candidato 
+
+Edgar Didier Lopez Mendivil es candidato a Magistratura de Tribunales Colegiados de Circuito en Sonora, postulado por el Poder Ejecutivo Federal.  Su perfil en los datos disponibles indica que es de sexo masculino y no proporcionó información de contacto, escolaridad, trayectoria académica, motivos para buscar el cargo, ni propuestas específicas.
+
+El estatus de su información en el sistema es "Sin captura", lo que implica la ausencia de datos adicionales en el momento de la consulta.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

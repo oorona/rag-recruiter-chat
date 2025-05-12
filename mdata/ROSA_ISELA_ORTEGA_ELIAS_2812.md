@@ -1,0 +1,76 @@
+Nombre Candidato: ROSA ISELA ORTEGA ELIAS
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: MUJER
+Telefono: 5530324067
+Correo Electronico: rosaiselaortegaelias@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Autónoma, Educación, Estudios en el extranjero., Feminicidios, Género, Igualdad, Maestría, Nayarit, Secretaria de Juzgado, Violencia contra las mujeres
+Tags Propósito: acceso a la justicia, capacitación, conflictos, derechos humanos, eficiencia, equidad, imparcialidad, juicio justo, justicia, paz, procesos judiciales, resolución de conflictos., respeto a la ley, servidores públicos, sistema judicial, transparencia
+
+
+## Descripción del Candidato 
+
+ROSA ISELA ORTEGA ELIAS es candidata a Jueza/Juez de Distrito en Nayarit, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría y cédula profesional, con formación académica en Nayarit y estudios en el extranjero. Su trayectoria incluye cursos en temas de igualdad de género y violencia contra las mujeres.
+
+Su motivación para buscar el cargo se centra en la administración de justicia, la defensa de los derechos humanos y su respeto. Propone impartir justicia de manera imparcial, equitativa y respetuosa de los derechos humanos, agilizar los procesos judiciales y fomentar la capacitación continua del personal judicial. Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la imparcialidad, el acceso universal a la justicia y el respeto a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://chat.whatsapp.com/JgkHvzvBaeI5kZgY3qwbYJ
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ROSAORTEGA.ELIAS
+- https://x.com/rosaorteli
+- https://www.instagram.com/rosaortega.elias/
+- https://www.youtube.com/@rosaisela6146
+- https://www.tiktok.com/@rosa.ortega892
+
+
+## Cursos
+
+- Curso Género como herramienta para la igualdad,Concurso Escolarizado para Acceder a la Categoría de Secretaria y Secretario de Juzgado edición 2025,Curso de Género como herramienta para la igualdad
+- ,Mesa Redonda: Feminicidios y violencia contra las mujeres en México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55167/11
+
+
+## Trayectoria Academica
+
+- Orgullosamente formada en Nayarit, egresada de la Autónoma, con maestría y estudios en el extranjero
+
+
+## Motivo para buscar el Cargo Publico
+
+Me apasiona la administración de justicia, la defensa de los derechos humanos y asegurarme que se respeten los derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser imparcial, objetiva y garantizar el acceso a la justicia para todos, sin discriminación. Busco que el ejercicio de la jurisdicción sea transparente, eficiente y respetuoso de los derechos humanos, promoviendo soluciones justas que resuelvan los conflictos de manera equitativa y en conformidad con la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se basa en la imparcialidad, la equidad y el respeto a los derechos humanos. Busco garantizar que todas las personas, sin importar su condición, tengan acceso a un juicio justo y transparente. Considero fundamental que el sistema judicial sea eficiente, accesible y confiable, resolviendo los conflictos de manera clara y justa. El objetivo es fortalecer la confianza de la sociedad en la justicia, promoviendo un entorno de paz y respeto a la ley.
+
+
+## Propuestas
+
+- Impartir justicia imparcial, equitativa, respetuosa de los derechos humanos, garantizando un juicio justo y accesible para todos.
+- Agilizar los procesos judiciales para evitar la sobrecarga del Juzgado y respetar el horario laboral de las personas servidoras públicas.
+- Fomentar la capacitación de las personas servidoras públicas, asegurando que el personal judicial esté actualizado.
+

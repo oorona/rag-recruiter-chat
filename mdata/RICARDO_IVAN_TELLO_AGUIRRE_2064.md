@@ -1,0 +1,77 @@
+Nombre Candidato: RICARDO IVAN TELLO AGUIRRE
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6142501766
+Correo Electronico: tello-21@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo Directo, Derecho Internacional Público, Derechos Humanos, Derechos Socioeconómicos, Especialización Secretarial, Formación Judicial, Interpretación Jurídica, Licenciatura, Maestría., PJF, Suprema Corte, UACH
+Tags Propósito: Acceso a la Justicia, Capacitación, Derechos Humanos, Difusión de Criterios Jurídicos., Dignidad Humana, Empatía, Formación Continua, Imparcialidad, Independencia, Justicia, Justicia Cercana, Justicia Ágil, Nuevas Tecnologías, Perspectiva de Género, Resolución de Conflictos, Sentencias Accesibles, Transparencia
+
+
+## Descripción del Candidato 
+
+Ricardo Iván Tello Aguirre es candidato a Juez/a de Distrito en Chihuahua, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derechos Humanos por la UACH y formación especializada en el área a través de la Escuela Judicial del PJF. Su motivación para buscar el cargo se centra en servir a la ciudadanía con justicia, empatía y protección de los derechos humanos.
+
+Su visión de la función jurisdiccional y la impartición de justicia se basa en un enfoque humanista, técnico e imparcial, priorizando la dignidad humana y el acceso a la justicia para todos. Sus propuestas incluyen la elaboración de sentencias accesibles, la capacitación continua en derechos humanos y nuevas tecnologías para el personal jurisdiccional, y un acceso abierto y empático a la resolución de conflictos, evitando formalismos excesivos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ricardo.tello.397
+- https://www.instagram.com/ricardo_itello/
+
+
+## Cursos
+
+- Diplomado: La Suprema Corte y los Derechos Humanos, impartido por la Escuela Federal de Formación Judicial
+- ,Curso: Derechos Socioeconómicos: Contenido y Aplicación, impartido en el campus virtual del PJF
+- ,Curso: Introducción a la Interpretación Jurídica, fundamentos teóricos y prácticos
+- ,Curso: Introducción al Derecho Internacional Público, bases esenciales del derecho internacional
+- ,Curso: Amparo Directo en Revsión
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55196/11
+
+
+## Trayectoria Academica
+
+- Lic y Mtro
+- en Derechos Humanos por la UACH, con especialidad en Preparación Secretarial por la Escuela Judicial del PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la ciudadanía con justicia y empatía, protegiendo derechos humanos desde una visión comprometida y humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con un enfoque humanista, empático y técnico, teniendo siempre presente la dignidad humana de las personas justiciables y de quienes colaboran en el órgano jurisdiccional. Se debe ser un juez cercano, imparcial y comprometido, que escuche y comprenda el contexto de cada persona justiciable, teniendo como pilar fundamental la independencia frente a cualquier presión externa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+No debemos perder de vista que la impartición de justicia es, ante todo, un servicio a nuestro amado país. Es fundamental que se mantenga alejada de privilegios y sea cercana a cada persona. Para ello, la resolución de conflictos debe realizarse con una mirada sensible, pero sobre todo con aspecto técnico, garantizando así un trato justo, accesible y transparente para todos. La capacitación constante será un principio rector en la forma en que se imparte justicia.
+
+
+## Propuestas
+
+- Hacer las sentencias de manera accesible, que permita a todas las personas entender el alcance de sus derechos y las decisiones que les afectan, además la difusión de los criterios que se dicten para que toda persona ciudadana, conozca sus derechos.
+- Una constante actualización en cada una de las ramas del Derecho, con especial énfasis en derechos humanos, perspectiva de género y el manejo de nuevas tecnologías, debe ser fundamental para todo el personal jurisdiccional. Asimismo, es indispensable implementar procesos de formación continua para quienes colaboran en el Juzgado.
+- Un acceso abierto a todas las personas usuarias del sistema, que sepan que existirá un juzgador que pueda escuchar su problemática jurídica, para de esa manera promover una justicia empática, ágil, evitando a toda costa formalismos excesivos.
+

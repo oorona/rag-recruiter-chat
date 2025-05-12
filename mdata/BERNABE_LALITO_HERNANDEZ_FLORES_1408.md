@@ -1,0 +1,75 @@
+Nombre Candidato: BERNABE LALITO HERNANDEZ FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: floreshbe@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Consejo de la Judicatura Federal, Derecho Constitucional, Doctorado, Licenciatura, Maestría, Mención Honorífica., Poder Judicial de la Federación, Reforma Laboral, SÍLEX Formación Jurídica
+Tags Propósito: Acceso a la Justicia, Corrupción, Cumplimiento Normativo, Derechos Humanos, Desigualdad, Formación Judicial., Humanismo, Imparcialidad, Justicia, Poder Judicial, Responsabilidad Social
+
+
+## Descripción del Candidato 
+
+Bernabe Lalito Hernandez Flores es candidato a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de doctorado en Derecho, con mención honorífica en maestría, y posee cédula profesional. Su trayectoria académica se centra en el Derecho Constitucional.
+
+El candidato manifiesta su interés en contribuir a mejorar la impartición de justicia en el país, proponiendo la formación de jueces con un enfoque humanista, la lucha contra la corrupción dentro del Poder Judicial y la creación de un sistema normativo que asegure el cumplimiento de las sentencias. Su visión de la función jurisdiccional y la impartición de justicia se centra en un acercamiento a la gente, considerando las desigualdades y garantizando los derechos humanos. Se puede encontrar información adicional en su currículum vitae disponible en línea y en sus perfiles de redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15sFCbXHFE/?mibextid=qi2Omg
+- https://x.com/BernabeLalito?t=bbnyz4uvcUzEWSbpsk53vw&s=09
+- https://www.instagram.com/bernabelalito?igsh=MWVoOHI2N2Q5OHBtaw==
+- https://www.tiktok.com/@bernabelalito?_t=ZM-8uzfaXrSKG6&_r=1
+
+
+## Cursos
+
+- Curso de Especialización sobre la Reforma en Materia Laboral impartido por el Consejo de la Judicatura Federal,Diplomado Internacional de Argumentación Jurídica por parte de SÍLEX Formación Jurídica
+- ,Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación 2019
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53425/10
+
+
+## Trayectoria Academica
+
+- Licenciado, maestro en Derecho Constitucional y doctor en Derecho, los dos últimos con mención honorífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir para mejorar la impartición de justicia del país, con un rostro diferente y responsabilidad social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe administrar una justicia más cercana a la gente, capaz de garantizar los derechos humanos de las personas que acuden a los tribunales, con una justicia de ojos abiertos capaz de entender las diferencias y desigualdades de quienes acuden ante ella.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser más cercana a la gente, con los ojos abiertos capaz de entender las diferencias y desigualdades de quienes acuden ante ella.
+
+
+## Propuestas
+
+- Necesitamos formar nuevos jueces que abandonen la idea de la imparcialidad como sinónimo de indiferencia, jueces con una formación más humanista capaz de ver las desigualdades de quienes acuden a los tribunales.
+- Combatir la corrupción al interior del Poder Judicial.
+- Construir un sistema normativo capaz de asegurar el cumplimiento de las sentencias.
+

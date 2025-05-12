@@ -1,0 +1,82 @@
+Nombre Candidato: GUILLERMO PABLO LOPEZ ANDRADE
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5594394185
+Correo Electronico: gp@lopezandrade.com
+Numero de lista en boleta: 53
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Derecho, Derecho Corporativo, Derecho Financiero Internacional, Derecho de la Propiedad Intelectual, Derecho del Trabajo, Doctorante, LLM, Maestría, Mención Honorífica, Posgrado, UAEMEX., Universidad Panamericana, Warwick University
+Tags Propósito: Absolutismo, Arbitrariedad, Audiencias públicas, Bienestar personas, Carta Magna, Causas públicas, Concentración de poder, Conducta judicial, Confianza ciudadana, Democracia, Derechos humanos, Dignidad Corte, División de poderes, Función judicial, Igualdad, Imparcialidad, Independencia judicial, Interés general, Justicia, Libertad, Libertades, Patria, Procesos orales, Relevancia nacional., República, Selección de casos, Suprema Corte
+
+
+## Descripción del Candidato 
+
+Guillermo Pablo López Andrade es candidato al cargo de Ministro/a de la Suprema Corte de Justicia de la Nación, postulándose a través del Poder Judicial de la Federación con el número 53 en la boleta. Cuenta con una formación académica sólida, incluyendo una Maestría en Derecho y Desarrollo (Warwick University) y diversos posgrados en áreas especializadas del Derecho por la Universidad Panamericana. 
+
+Su motivación para buscar el cargo público se centra en preservar la independencia de la Corte y restaurar la confianza ciudadana.  En cuanto a su visión, propone defender los principios de la división de poderes y la defensa de los derechos humanos, priorizando el bienestar de las personas frente al Estado. Sus propuestas incluyen la implementación de la regla de comunicaciones ex parte, la priorización de las funciones judiciales sobre actividades personales, y el desarrollo de procesos orales en los casos que conoce el Alto Tribunal.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.lopezandrade.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BaSa8ixSG/?mibextid=wwXIfr
+- https://x.com/gp18186?s=11&t=dmuMwoApraBeJ9hX6BSKZw
+- https://www.instagram.com/gplopezandrade?igsh=MWlwbGw5MnQzYWc1Mg3D3D&utm_source=qr
+- https://youtube.com/@guillermopablolopezandrade?si=o0OpGiRSsCNsPUzf
+- https://www.tiktok.com/@gplopezandrade?_t=ZM-8uxo4YWaouD&_r=1
+- https://mx.linkedin.com/in/gplopezandrade
+
+
+## Cursos
+
+- Maestría en Derecho y Desarrollo (LLM)
+- Warwick University
+- ,Especialidad en Derecho Corporativo, Universidad Panamericana (UP)
+- ,Posgrado en Derecho Financiero Internacional, UP (Mención Honorífica)
+- ,Posgrado en Derecho de la Propiedad Industrial e Intelectual, UP (Mención Honorífica)
+- ,Posgrado en Derecho del Trabajo, UP (Mención Honorífica)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/4049/6
+
+
+## Trayectoria Academica
+
+- Abogado (UAEMEX); Maestro en Derecho y Desarrollo (Warwick), Posgrados y Doctorante en Derecho (Univ
+- Panamericana)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para preservar con absoluta independencia la dignidad de la Corte y reinstaurar en ella la confianza de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Defender con honor, incluso a costa de mi vida y mi libertad, los principios y valores sagrados que han forjado nuestra patria durante al menos 219 años, en los que México ha optado por defender una República en la que la división de poderes es sagrada, como mejor forma de gobierno para asegurar la democracia, la defensa de los derechos y libertades humanas; y, la lucha sin cuartel contra la arbitrariedad, la concentración de poder y el absolutismo; sin ceder ante presiones de ningún tipo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Conceder razón en tiempo breve, con suficiente estudio y con absoluta imparcialidad, a quien merece justicia; privilegiando siempre el bienestar de las personas frente al Estado como lo ordena así la Carta Magna; pero sin perder de vista el interés general y las causas públicas; dando también razón a la autoridad cuando corresponda si así lo dictan los principios constitucionales; defendiendo en todo momento los ideales de justicia, igualdad y libertad por los que dieron la vida nuestros héroes.
+
+
+## Propuestas
+
+- Introducir como práctica general la regla de comunicaciones ex parte, de tal forma que, como juzgador, no iniciaría, permitiría o consideraría comunicaciones con alguna de las partes de un juicio sin la presencia de la otra parte o de sus abogados, salvo aquellos casos de urgencia o que resulten justificados. De igual forma, adoptar al máximo en mi actuar público o privado los principios y valores de conducta judicial que me permitan ser percibido probadamente como un Ministro imparcial y justo.
+- Atender con velada prioridad los deberes de la función judicial, sobre cualquier actividad personal o extrajudicial; ejerciendo el máximo cuidado y suma prudencia en la atención de eventos de cualquier índole que puedan implicar una distracción innecesaria de mi máximo compromiso con la Suprema Corte de Justicia de la Nación y con la patria. Mi tiempo será para escuchar a las partes, para estudiar los expedientes, para reflexionar con detenimiento y encontrar en conciencia la decisión más justa.
+- Desarrollar iniciativas que permitan que los casos de que conoce el Alto Tribunal se sustancien a partir de procesos orales; permitiendo a las partes que, en audiencias públicas, presenten alegatos iniciales, ofrezcan pruebas, las controviertan; y, formulen conclusiones. Esto resulta viable si se introduce un mecanismo más eficiente de selección de casos de máxima relevancia nacional que puedan ser excepcionalmente del conocimiento de la Suprema Corte de Justicia de la Nación.
+

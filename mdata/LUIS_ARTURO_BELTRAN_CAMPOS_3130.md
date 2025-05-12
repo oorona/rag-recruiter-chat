@@ -1,0 +1,74 @@
+Nombre Candidato: LUIS ARTURO BELTRAN CAMPOS
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6674297047
+Correo Electronico: lic.labeltranc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Constitucional, Derechos Humanos, Especialización en Derecho Constitucional., Formación Judicial, Igualdad de Género, Licenciatura en Derecho, Perspectiva de Género, Universidad Autónoma de Sinaloa, Violencia
+Tags Propósito: acceso a la justicia, capacidad, defensorías públicas, derechos humanos, efectividad, equidad, fiscalías, honestidad, igualdad, imparcialidad, independencia, justicia, leyes, normas constitucionales, presupuesto, reforma, retraso en justicia, sistema de justicia., tejido social, vulnerabilidad, órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+LUIS ARTURO BELTRAN CAMPOS es candidato a Juez/a de Distrito en Sinaloa, postulándose por el Poder Judicial de la Federación. Es Licenciado en Derecho por la Universidad Autónoma de Sinaloa y cuenta con formación continua en áreas como derecho constitucional, derechos humanos y perspectiva de género, incluyendo cursos de la Escuela Federal de Formación Judicial. 
+
+Su motivación para buscar el cargo se centra en contribuir a una sociedad más justa a través de una impartición de justicia rápida, honesta y de calidad. Su visión de la función jurisdiccional enfatiza la honradez, independencia, capacitación, aplicación de normas constitucionales y respeto a los derechos humanos, así como la imparcialidad. Sus propuestas incluyen la creación de más órganos jurisdiccionales, la ampliación del presupuesto para defensorías públicas y una reforma a las Fiscalías General de la República y Estatales para mejorar la efectividad del sistema de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/ArturoCampos
+- https://www.x.com/arturo_camp9
+- https://instagram.com/arturobcl
+
+
+## Cursos
+
+- Curso de formación para personas secretarias de Juzgado de Distrito por la Escuela Federal de Formación Judicial,Curso para juzgar con perspectiva de género por la Escuela de Formación Judicial,Diversos congresos en materia de derecho constitucional y derechos humanos en los años 2009, 2012 y 2013,Curso para generar espacios libres de violencia,Curso género como herramienta para la igualdad
+- Cuarta edición
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52446/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho por la Universidad Autónoma de Sinaloa, con cursos y especialización en derecho constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Para conformar una sociedad más justa desde una impartición de justicia rápida, honrada y de calidad que merecemos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un juzgador debe ser honrado, honesto e independiente; estar altamente capacitado para ejercer las funciones y responsabilidades que conlleva el puesto; comprometido inquebrantablemente con la aplicación de las normas constitucionales y legales del país en favor de la sociedad y el respeto a los derechos humanos, siempre priorizando la igualdad, equidad e imparcialidad en los asuntos sometidos a su juicio; ser incorruptible y juzgar únicamente como el derecho y la justicia le indiquen.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser pronta y justa, siempre apegada a las normas constitucionales y legales. Los juzgadores no pueden ir más allá de lo que establece la norma; sin embargo, si deben aplicar la norma más favorable en favor de las personas pertenecientes a grupos vulnerables o que están en clara desventaja frente a los entes del Estado o ante un particular, siempre priorizando la protección de los derechos humanos de la población y con un enfoque dirigido a la mejora del tejido social.
+
+
+## Propuestas
+
+- Creación de más órganos jurisdiccionales en todos los niveles de la impartición de justicia. Al cierre de 2023, en México había 5.1 personas juzgadoras por cada 100 mil habitantes, eso incluye órganos jurisdiccionales federales y estatales. La Organización para la Cooperación y Desarrollo Económicos estima que para una rápida y eficaz impartición de justicia debe haber 65 jueves por cada 100 mil habitantes. El bajo número de juzgadores en el país genera retraso en la impartición de justicia.
+- Ampliar y proporcionar más presupuesto a las defensorías públicas estatales y federales. Ante la alta demanda de los usuarios del sistema de justicia, los defensores públicos se ven rebasados e incapaces de atender de la manera correcta los asuntos que les son asignados, esto ocasiona que las personas tengan que acudir con abogados particulares, lo que genera que los asuntos se vuelvan más onerosos y que la justicia sea accesible sólo para la población que pueda pagar por esos servicios.
+- Reforma a las Fiscalía General de la República y a las Fiscalías Estatales. La función de las fiscalías para la impartición de justicia en la materia penal en México es fundamental, toda vez que son los entes encargados de investigar los hechos delictivos probablemente constitutivos de delito y solicitar ante los juzgadores órdenes de aprehensión o controles de detención en casos de flagrancia delictiva, por lo que su poco personal y su baja efectividad afectan gravemente la aplicación de la ley
+

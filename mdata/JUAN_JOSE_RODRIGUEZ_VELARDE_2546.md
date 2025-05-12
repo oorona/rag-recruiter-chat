@@ -1,0 +1,78 @@
+Nombre Candidato: JUAN JOSE RODRIGUEZ VELARDE
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3344073332
+Correo Electronico: jjoserdzvelarde@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Derecho Público, Juicios Orales, Perspectiva de Género, Poder Judicial, STJ Jalisco., Sistema Penal Acusatorio, Sistema Procesal Penal, Universidad Panamericana, Universidad de Guadalajara, Valoración de Prueba
+Tags Propósito: accesibilidad, cercanía, ciudadanía, claridad, cumplimiento, escucha, firmeza, honestidad, imparcialidad., integridad, justicia, ley, transparencia
+
+
+## Descripción del Candidato 
+
+Juan José Rodríguez Velarde es candidato a Jueces/as de Distrito en Jalisco, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y cédula profesional, complementada con formación en temas de perspectiva de género y el Sistema Penal Acusatorio. Su trayectoria académica incluye estudios en la Universidad de Guadalajara y la Universidad Panamericana, así como especialización en Juicios Orales.
+
+El candidato expresa su motivación para buscar el cargo como una oportunidad para poner su experiencia al servicio de la sociedad, enfocándose en una justicia firme, limpia y cercana a las personas. Su visión de la función jurisdiccional destaca la importancia de la escucha, la comprensión y la decisión responsable. Sus propuestas incluyen una atención directa a la ciudadanía, sentencias claras y sencillas, y un estricto cumplimiento de la ley.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/mtrojuanjo
+- https://x.com/MtroJuanJo
+- https://www.instagram.com/mtrojuanjo/
+- https://www.youtube.com/@MtroJuanJo
+- https://www.tiktok.com/@juanjoserodriguezvelarde
+
+
+## Cursos
+
+- Taller Retos del Poder Judicial ante la incorporación de la Perspectiva de Género,Taller para jueces y magistrados sobre argumentación e interpretación jurídica en el Sistema Penal Acusatorio,Curso Sistema Procesal Penal adversarial con orientación a jueces e interinstitucional,Taller de sensibilización y capacitación sobre el protocolo para juzgar con perspectiva de género,Curso Taller, especializado para jueces y magistrados en el sistema de justicia penal, la valoración de la prueba
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54978/11
+
+
+## Trayectoria Academica
+
+- Abogado Universidad de Guadalajara
+- Maestro Dcho
+- Público Universidad Panamericana
+- Maestro Juicios Orales STJ Jalisco
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero poner mi experiencia al servicio de la sociedad, brindar justicia firme, limpia, cercana a las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Juez no es un simple aplicador de leyes. Es alguien que escucha, entiende y decide, con la cabeza fría y el corazón despierto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una justicia que mire a los ojos, que no se esconda detrás de papeles y tecnicismos y que no tiemble ante las presiones.
+
+
+## Propuestas
+
+- Atención directa a la ciudadanía. Mi puerta y mi oído estarán siempre abiertos. Nadie tendrá que hablarle a una pared.
+- Justicia clara y cercana. Sentencias escritas en palabras sencillas, para que quien lea comprenda, aunque no sea abogado.
+- Cumplimiento estricto de la ley. Aplicar la Ley con firmeza y sin atajos. La justicia no debe ser negociable.
+

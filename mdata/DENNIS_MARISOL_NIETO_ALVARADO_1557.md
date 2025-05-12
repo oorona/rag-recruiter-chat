@@ -1,0 +1,76 @@
+Nombre Candidato: DENNIS MARISOL NIETO ALVARADO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4443351503
+Correo Electronico: contactodmna@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Actividades Vulnerables, Administración, Administrativa., Calidad, Competencias Laborales, Dirección Financiera, Fiscal, Impuestos Internos, Ley del Impuesto al Valor Agregado, Ley del Impuesto sobre la Renta, Prevención Lavado Dinero
+Tags Propósito: accesibilidad, colaboración civil, comunidades marginadas, derechos humanos, equidad, estado de derecho, imparcialidad, independencia judicial, integridad, justicia, justicia sobre ruedas, magistratura cercana, magistratura participativa, participación ciudadana, puente ciudadano, rendición de cuentas, responsabilidad, soluciones reales, tecnología, verdad, víctimas, zonas rurales.
+
+
+## Descripción del Candidato 
+
+DENNIS MARISOL NIETO ALVARADO es candidata a Magistratura de Tribunales Colegiados de Circuito en San Luis Potosí, postulada por el Poder Judicial de la Federación. Cuenta con maestría en Dirección Financiera y experiencia en materia fiscal y administrativa. Su motivación para el cargo público es actuar como un puente entre la ciudadanía y las instituciones, asegurando que todas las voces sean escuchadas. 
+
+Su visión de la función jurisdiccional y la impartición de justicia se centra en la protección de los derechos humanos, la independencia e imparcialidad de los juzgadores, y la rendición de cuentas. Sus propuestas incluyen fortalecer la participación ciudadana a través de programas de interacción directa, llevar la justicia a comunidades rurales con unidades móviles informativas, y promover la búsqueda activa de la verdad y justicia para víctimas de violaciones a derechos humanos, en colaboración con organizaciones civiles y familias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/DennisNietoMX
+- https://x.com/marisol_dmna?s=11
+- https://www.instagram.com/dennisnietomx/
+- https://www.youtube.com/@Sol_dmna
+- https://www.tiktok.com/@soldmna?_t=ZM-8uxq4E2esOz&_r=1
+- https://www.linkedin.com/in/marisol-nieto/
+
+
+## Cursos
+
+- Programa Formativo en Materia de Impuestos Internos,Diplomado en introducción a la administración, calidad y competencias laborales,Ley del Impuesto sobre la Renta,Prevención de lavado de dinero en materia de actividades vulnerables,Ley del Impuesto al Valor Agregado y su Reglamento
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54607/10
+
+
+## Trayectoria Academica
+
+- Abogada, Maestra en Dirección Financiera con amplia experiencia en materia fiscal y administrativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ser un puente entre la ciudadanía e instituciones, asegurando que todas las voces sean escuchadas y respetadas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En un estado de derecho y democracia, es fundamental la protección y promoción de los derechos humanos. Es crucial que los juzgadores actúen con independencia e imparcialidad, asegurando que sus decisiones estén basadas en la ley, la justicia y el respeto a los derechos humanos, protegiendo a cada individuo de cualquier abuso o arbitrariedad. Además, debe existir una rendición de cuentas efectiva por parte de jueces y magistrados, promoviendo una cultura de integridad y responsabilidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quienes juzgan deben actuar con equidad y justicia, respetando y protegiendo los derechos humanos. El sistema judicial debe mejorar la calidad de vida de las personas, asegurando que todas las voces, especialmente las vulnerables, sean escuchadas y respaldadas. La justicia debe ser imparcial, accesible y comprensible, fomentando un entorno donde todos vivan con dignidad y seguridad. Los juzgadores deben mantenerse actualizados y en constante formación para adaptarse a los cambios sociales.
+
+
+## Propuestas
+
+- Magistrada Participativa y Cercana: Fortaleceré la participación ciudadana en la impartición de justicia a través de tres programas clave, orientados a desarrollar mecanismos efectivos de participación en el proceso judicial, tales como consultas públicas, mesas de diálogo y encuentros comunitarios. Utilizando tecnologías de la información y acercamientos comunitarios que me permitan interactuar directamente con la comunidad.
+- Justicia sobre Ruedas: Implementaré visitas informativas móviles que se desplacen a comunidades rurales y zonas marginadas, con el objetivo de brindar información y facilitar el acceso a la justicia a aquellas personas que tienen dificultades para llegar a los tribunales tradicionales. Esta iniciativa mejorará la cobertura y el alcance del sistema judicial, al mismo tiempo que promoverá la protección de los derechos humanos en las comunidades más necesitadas.
+- Magistrada Buscadora: Promoveré la figura enfocada en la búsqueda de la verdad y la justicia para las víctimas de violaciones a los derechos humanos. En estricto apego a nuestra obligación como impartidores de justicia de respetar, promover y garantizar los derechos humanos. Colaborar con organizaciones civiles y con las familias de las víctimas, para asegurar que no solo se escuchen las inquietudes, sino que también se tomen medidas concretas que lleven a soluciones reales.
+

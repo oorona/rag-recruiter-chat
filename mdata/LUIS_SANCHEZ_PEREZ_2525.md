@@ -1,0 +1,71 @@
+Nombre Candidato: LUIS SANCHEZ PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3328162807
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Doctorado, IEXE Universidad, Maestría, Políticas Públicas, Seguridad Pública, Universidad de Guadalajara
+Tags Propósito: Acceso a la justicia, Celeridad, Control de convencionalidad, Derechos humanos, Estado de Derecho, Grupos vulnerables, Imparcialidad, Intereses en conflicto., Justicia administrativa, Medidas provisionales, Motivación de resoluciones, Protección de derechos, Rendición de cuentas, Transparencia
+
+
+## Descripción del Candidato 
+
+LUIS SANCHEZ PEREZ es candidato a Jueces/es de Distrito en JALISCO, postulándose a través del Poder Legislativo Federal. Cuenta con doctorado y formación en derecho y políticas y seguridad públicas, siendo abogado por la Universidad de Guadalajara. Su motivación para buscar el cargo público se centra en la justicia administrativa imparcial y transparente, al servicio de la ciudadanía.
+
+Su visión para la función jurisdiccional y la impartición de justicia se enfoca en garantizar el acceso a una justicia administrativa pronta, completa, accesible e imparcial. Sus propuestas incluyen la implementación del control de convencionalidad ex officio para proteger a grupos vulnerables, la priorización de medidas provisionales y cautelares efectivas para prevenir daños a los derechos humanos, y la motivación exhaustiva de las resoluciones con un enfoque en la transparencia y rendición de cuentas. Su curriculum vitae detallado está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1CS4ketPuT/
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54912/11
+
+
+## Trayectoria Academica
+
+- Doctorante y maestro en Políticas y Seguridad Públicas en IEXE Universidad, abogado por la Universidad de Guadalajara
+
+
+## Motivo para buscar el Cargo Publico
+
+Por justicia administrativa imparcial y transparente, al servicio de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar el acceso a una justicia administrativa pronta, completa e imparcial, fortaleciendo el Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es una impartición de justicia administrativa pronta, accesible y garante de los derechos de los ciudadanos frente al poder público, construyendo confianza y fortaleciendo el Estado de Derecho.
+
+
+## Propuestas
+
+- En aquellos casos donde concurran intereses de grupos vulnerables (menores de edad, mujeres, grupos indígenas) Implementar el control de convencionalidad ex officio en cada caso, asegurando que las normas y actos administrativos se ajusten a los tratados internacionales de derechos humanos. Aplicación que será implementada de manera integral de forma que proteja en la mayor medida posible a los grupos vulnerables, incluso sin petición de parte.
+- Priorizar la adopción de medidas provisionales y cautelares efectivas para prevenir daños irreparables a los derechos humanos mientras se resuelve el fondo del asunto, actuando con celeridad y sensibilidad ante situaciones de urgencia.
+- Motivar exhaustivamente las resoluciones explicando de manera clara y accesible cómo se aplicaron los derechos humanos al caso concreto y cómo se ponderaron los intereses en conflicto, fomentando la transparencia y la rendición de cuentas en mi actuar judicial.
+

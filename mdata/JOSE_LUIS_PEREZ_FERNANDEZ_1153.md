@@ -1,0 +1,75 @@
+Nombre Candidato: JOSE LUIS PEREZ FERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5561836589
+Correo Electronico: joseluisperezfernandez2033@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Congreso Universitario, Derecho, Derechos Humanos, Derechos Sociales, Doctorado, FES Acatlán., Ley de Adquisiciones, Licenciatura, Maestría, Mención Honorífica, Posgrado, Responsabilidad Patrimonial, Subcontratación Laboral, UNAM, Universidad de la República Mexicana
+Tags Propósito: acceso a la justicia, capacitación judicial, cercanía, certeza jurídica., confianza ciudadana, criterios jurídicos, derechos humanos, eficacia, estado de derecho, honestidad, igualdad, indicadores de desempeño, interpretación normativa, justicia, justicia social, legalidad, procesos judiciales, rendición de cuentas, resoluciones justas, sectores vulnerables, seguridad jurídica, tecnología, transparencia, transparencia judicial
+
+
+## Descripción del Candidato 
+
+Jose Luis Perez Fernandez es candidato al Poder Legislativo Federal, con trayectoria como Magistrado de Tribunales Colegiados de Circuito. Cuenta con un Doctorado en Derecho por la Universidad Nacional Autónoma de México (UNAM), así como estudios de Maestría y Licenciatura en la misma institución. Su motivación para buscar el cargo público es impartir justicia con honestidad, eficacia y cercanía.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia se centra en garantizar un sistema judicial pronto, imparcial, accesible, transparente y basado en el respeto a los derechos humanos.  Sus propuestas incluyen la implementación de criterios jurisprudenciales claros, el fomento del uso de tecnología en los procesos judiciales, y el establecimiento de indicadores de desempeño jurisdiccional con acceso público para promover la transparencia y la responsabilidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1YG7Ha1rbt/
+- https://www.instagram.com/jlpf2033/
+- https://youtube.com/@joseluisperezfernandez2033?si=a_3fCE1-6tcNSr8v
+- https://www.tiktok.com/@jlpf_
+
+
+## Cursos
+
+- Mesa redonda: Aspectos de la Subcontratación Laboral / Asociación Nacional de Abogados de Empresa, colegio de Abogados,Primer Congreso Universitario de Derechos Humanos / participación como ponente, UNAM 2016,Segundo Congreso de Posgrado / participación con el proyecto ¿AFECTACIÓN DE LOS DERECHOS SOCIALES POR INEFICACIA EN EL,Tercer Congreso de Posgrado/ Asistencia, UNAM 2013,Responsabilidad Patrimonial del Estado y Reformas a la Ley de Adquisiciones / Universidad de la República Mexicana 201
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54465/10
+
+
+## Trayectoria Academica
+
+- Doctor con Mención Honorífica, Maestro y Lic
+- en Derecho por la Universidad Nacional Autónoma de México, FES Acatlán
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con honestidad, eficacia y cercanía, garantizando resoluciones justas para todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizarse bajo la óptica de una justicia pronta, imparcial y accesible, basada en la legalidad y el respeto a los derechos humanos. Por tal motivo, es fundamental fortalecer la confianza ciudadana con decisiones justas, eficientes y transparentes. Un sistema judicial sólido debe ser cercano a la sociedad, asegurar seguridad jurídica y contribuir al desarrollo del Estado de Derecho en beneficio de todas las personas
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser imparcial, transparente y eficiente, además de accesible a la ciudadanía, afín de establecer el respeto a los derechos fundamentales. Asimismo, el interés de contribuir al sistema judicial es bajo la óptica de la aplicación de criterios jurídicos claros, el uso de tecnología y la promoción de una justicia social que impulse la igualdad, la seguridad jurídica y la confianza de la sociedad en las instituciones.
+
+
+## Propuestas
+
+- Implementar criterios jurisprudenciales claros y consistentes es esencial para orientar la toma de decisiones judiciales. Esto proporcionará un marco sólido que garantice la previsibilidad y coherencia en las resoluciones. Además, es crucial promover la actualización y capacitación continua de jueces y magistrados en interpretación normativa y técnicas de argumentación jurídica, asegurando que estén al día con las mejores prácticas y puedan aplicar la ley de manera justa y eficaz.
+- Fomentar el uso de tecnología en los procesos judiciales para agilizar la presentación y seguimiento de juicios, haciendo el sistema más eficiente y accesible. Es fundamental garantizar mecanismos de orientación legal y asesoría gratuita para sectores vulnerables, asegurando que todas las personas tengan igual acceso a la justicia, independientemente de su situación económica. Esto no solo mejora la equidad, sino que también fortalece la confianza pública en el sistema judicial.
+- Establecer indicadores de desempeño jurisdiccional con acceso público permite evaluar la eficiencia en la resolución de asuntos, promoviendo la transparencia y responsabilidad. Reforzar la publicación de criterios y sentencias relevantes es vital para fortalecer la certeza jurídica y la confianza en el sistema. La transparencia en las decisiones judiciales y la rendición de cuentas son pilares esenciales para un sistema judicial robusto y confiable, que responda a las expectativas de la sociedad
+

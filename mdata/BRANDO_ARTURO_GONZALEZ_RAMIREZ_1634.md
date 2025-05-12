@@ -1,0 +1,71 @@
+Nombre Candidato: BRANDO ARTURO GONZALEZ RAMIREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6641283012
+Correo Electronico: bagr_pjf@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Academia, Amparo, Corte Interamericana, Defensa Penal, Derecho, Estudios Judiciales, Jurisprudencia, Justicia Penal, Litigación Oral, PJF., Reforma Constitucional, Trayectoria Profesional
+Tags Propósito: Acceso a la justicia, Capacitación, Comunidad, Confianza, Corrupción, Derechos, Derechos humanos, Discriminación, Igualdad, Instituciones, Justicia, Justicia para todos., Magistrados, Paz, Poder Judicial, Profesionalismo, Respeto, Simplificación, Solidaridad, Transparencia, Tribunales
+
+
+## Descripción del Candidato 
+
+BRANDO ARTURO GONZALEZ RAMIREZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Sonora, postulando en funciones. Cuenta con más de 24 años de trayectoria profesional y académica en el Poder Judicial de la Federación, respaldada por una especialidad concluida y cursos en áreas como litigación oral, derechos humanos y reforma constitucional en materia de amparo.
+
+Su motivación para buscar el cargo se centra en la necesidad de contar con magistrados profesionales y bien preparados para garantizar los derechos de los ciudadanos.  Propone mecanismos para transparentar y simplificar los procesos legales, reducir la corrupción y fortalecer la confianza en las instituciones, priorizando la accesibilidad a la justicia, la transparencia en los procedimientos y la capacitación continua del personal del Poder Judicial. Su perfil está disponible en línea a través de su currículum vitae en la página del INE y su cuenta de TikTok.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.tiktok.com/@magistrado.brando?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Impacto de la jurisprudencia de la Corte Interamericana de Derechos Humanos,Destrezas en Litigación Oral, por el Institute  Criminal Defense Advocacy, California Western School  Law San Dieg,Estudios Judiciales, Instituto de Estudios Judiciales, por lDepartamento de Justicia de EEUU, San Juan Puerto Rico,Nociones Generales Sobre la Reforma Constitucional en Materia de Amparo y su Ley Reglamentaria,El juicio de amparo en materia penal, enfoque al nuevo sistema de justicia penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53445/10
+
+
+## Trayectoria Academica
+
+- Cuento con licenciatura y postgrados en Derecho, con más de 24 años de trayectoria profesional y académica en el PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Es importante contar con Magistrados profesionales, y sobre todo, con preparación sólida que garantice tus derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Propondré mecanismo para transparentar y simplificar procesos legales, reducir la corrupción y fortalecer la confianza en nuestras instituciones. Trabajaré de la mano con la comunidad, fomentando un ambiente de paz y respeto, para construir un un Sonora más justo y solidario. Capacitación Constante: Fomentaré la capacitación continua de los jueces y personal del Poder Judicial. Un equipo bien preparado garantiza decisiones justas y actualizadas, adaptándose a los cambios sociales y legales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Queremos un sistema judicial que sea fácil de acceder para cualquier persona, sin importar su situación económica o social. La justicia debe estar al alcance de todos. Transparencia: Asegurar que los procesos judiciales sean claros y comprensibles. Cada decisión y procedimiento estará disponible para que la ciudadanía los conozca, porque la transparencia genera confianza. Derechos humanos e igualdad ante la ley. No permitiré que la discriminación ni injusticias al pueblo
+
+
+## Propuestas
+
+- Justicia para Todos: Es prioridad transformar al sistema judicial para que sea fácil a cualquier persona acceder al servicio que se presta en los Tribunales, sin importar su situación económica o social. La justicia debe estar al alcance de todos.
+- Transparencia: Implementaré medidas que aseguren que los procesos judiciales sean claros y comprensibles. Cada decisión y procedimiento estará disponible para que la ciudadanía los conozca, porque la transparencia genera confianza.
+- Capacitación Constante: Fomentaré la capacitación continua del personal del Poder Judicial. Un equipo bien preparado garantiza decisiones justas y actualizadas, adaptándose a los cambios sociales y legales.
+

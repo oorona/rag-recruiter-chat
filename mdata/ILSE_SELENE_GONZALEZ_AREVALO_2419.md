@@ -1,0 +1,78 @@
+Nombre Candidato: ILSE SELENE GONZALEZ AREVALO
+Cargo: Juezas/es de Distrito
+Entidad: DURANGO
+Sexo: MUJER
+Telefono: 6182170253
+Correo Electronico: ilseselenegonzalez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la justicia, Conciliación, Derecho Constitucional, Derechos Humanos, Derechos de la infancia, Formación, Jurisdicción, Justicia Penal, Mediación, Semanario Judicial, Vocación.
+Tags Propósito: Acceso a la Justicia, Bienestar Social, Compromiso, Derechos Laborales, Dignidad, Equidad, Equilibrio, Experiencia, Igualdad de Género, Imparcialidad, Independencia Judicial, Justicia Laboral, Ley., Meritocracia, No Discriminación, Principios de Justicia, Vocación de Servicio, Ética
+
+
+## Descripción del Candidato 
+
+Ilse Selene Gonzalez Arevalo es candidata a Jueza/es de Distrito en Durango, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con licenciatura y cédula profesional, complementada por formación en derechos de la infancia, derecho constitucional y derechos humanos, sistemas de consulta del Semanario Judicial, conciliación y mediación laboral, y jurisdicción en el Sistema de Justicia Penal.
+
+La candidata expresa su motivación para el cargo como una oportunidad para servir a la sociedad, aportando su talento y experiencia en la justicia laboral, a la cual considera fundamental para la estabilidad económica y social. Sus propuestas se centran en garantizar la independencia del Poder Judicial, promover el acceso al cargo basado en el mérito y la ética profesional, y fomentar la igualdad de oportunidades en el ámbito laboral, particularmente en lo que respecta a la equidad de género.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FfuUJhBfW/?mibextid=wwXIfr
+- https://www.instagram.com/ilsegonzalezdurango?igsh=MWtzZ2plemp1NGlraA3D3D&utm_source=qr
+- https://www.tiktok.com/@ilsesgonzaleza?_t=ZM-8v4md1jQsNj&_r=1
+
+
+## Cursos
+
+- Los derechos de la infancia y el acceso a la justicia
+- ,Debates desde la Judicatura sobre Derecho Constitucional y Derechos Humanos
+- ,Taller de actualización en los sistemas de consulta del Semanario Judicial de la Federación
+- ,Taller sobre Conciliación y mediación y elaboración de convenios en materia de trabajo
+- ,Programa de formación: Jurisdicción en el Sistema de Justicia Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53089/11
+
+
+## Trayectoria Academica
+
+- Soy una mujer comprometida con su vocación,motivada a poner sus talentos al servicio de las personas
+
+
+## Motivo para buscar el Cargo Publico
+
+Representa para mí la oportunidad de seguir sirviendo a la sociedad desde un espacio en el que pueda aportar mi talento.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+A lo largo de mi trayectoria en la carrera judicial, he trabajado con responsabilidad, ética y compromiso, convencida de que la justicia laboral es un pilar fundamental para la estabilidad económica y social, al garantizar un equilibrio entre los derechos de los trabajadores y las necesidades legítimas de los empleadores. El derecho laboral es una de las áreas más sensibles dentro del sistema judicial, porque en cada caso están en juego tanto el sustento y la dignidad de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser candidata a jueza laboral representa para mí la oportunidad de seguir sirviendo a la sociedad desde un espacio en el que pueda aportar mi conocimiento y compromiso con una justicia laboral equilibrada y efectiva. Sé que el acceso a esta responsabilidad debe basarse en el mérito, la experiencia y la vocación de servicio, y es con estos principios que asumo este reto con determinación y convicción.
+
+
+## Propuestas
+
+- La independencia del Poder Judicial es esencial para garantizar resoluciones objetivas y apegadas a derecho. Mi compromiso es con la imparcialidad absoluta, asegurando que las decisiones que tome se basen en los principios de justicia, equidad y respeto a la ley, sin influencias externas ni presiones ajenas al derecho laboral. Estoy aquí porque creo en la justicia, porque sé que mi experiencia y vocación pueden hacer la diferencia.
+- Creo firmemente en que el acceso y el crecimiento dentro del Poder Judicial deben basarse en el mérito, la preparación y la ética profesional. He recorrido este camino con esfuerzo y dedicación, convencida de que cada paso en la carrera judicial debe ser producto del conocimiento, la experiencia y el compromiso con la impartición de justicia. Por ello, mi compromiso es firme: garantizar que la justicia laboral siga siendo un instrumento para la dignidad, la equidad y el bienestar de todos.
+- La igualdad de oportunidades en el ámbito laboral sigue siendo un desafío en nuestra sociedad. Desde mi labor, he procurado garantizar que los principios de equidad de género sean una realidad en cada caso, asegurando que tanto hombres como mujeres puedan desarrollarse en entornos laborales libres de discriminación, fomentando condiciones justas para todos los sectores
+

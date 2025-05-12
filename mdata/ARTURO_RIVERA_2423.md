@@ -1,0 +1,78 @@
+Nombre Candidato: ARTURO RIVERA
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 5525237058
+Correo Electronico: arturorivera_358@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Datos Personales, Derecho, Derechos Humanos, Derechos de Autor, Estancia de Investigación, Licenciatura, Maestría., Posgrado, Transparencia, UNAM
+Tags Propósito: Arte, Calidad de Justicia, Combate a la Corrupción, Derechos Humanos, Error Judicial, Espacios Públicos, Justicia, Mejora Social, Participación Ciudadana, Principios, Rendición de Cuentas, Retardo Judicial, Sentencias Claras, Servicio Ciudadano, Transparencia, Valores.
+
+
+## Descripción del Candidato 
+
+Arturo Rivera es candidato a Juez de Distrito en Guanajuato, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho por la UNAM y ha realizado especializaciones en Derechos de Autor, Transparencia, Datos Personales y Derechos Humanos, así como una estancia de investigación en España.
+
+Su motivación para buscar el cargo es la necesidad de una transformación profunda en la impartición de justicia. Su visión se centra en la aplicación de principios y el respeto a los derechos humanos, buscando una función jurisdiccional que responda a las necesidades del pueblo, combata la corrupción y sea transparente. Sus propuestas incluyen responder por errores o retardos judiciales, promover la mejora social a través de la función de juez y asegurar que las sentencias sean claras y comprensibles para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1HH1qaEiUU/?mibextid=qi2Omg
+- https://www.instagram.com/arturorivera.33?igsh=MXBmbzV5dmprdjQ0Ng==
+- https://youtube.com/@arturorivera_333?si=Q2fnQw959z8UfD0E
+- https://www.tiktok.com/@arturo.rivera.33?_t=ZM-8v35DDTC5Dy&_r=1
+
+
+## Cursos
+
+- Especialización en Materia de Derechos de Autor Curso en materia de Transparencia Curso en materia de Datos Personales,Cursos en materia de Transparencia,Curso en materia de Datos Personales,Curso en materia de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55572/11
+
+
+## Trayectoria Academica
+
+- Lic
+- y Maestro
+- en Derecho por la Universidad Nacional Autónoma de México (UNAM)
+- Estancia de Inv
+- de 3 meses en España
+
+
+## Motivo para buscar el Cargo Publico
+
+Es necesaria una transformación profunda en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+1. Impartir justicia con base en principios. 2. Respetar los derechos humanos. 3. Escuchar las voces del pueblo. 4. Colaborar en el rescate de los espacios públicos e impulsar el arte con tu voz, mi voz, la voz de todos. 5. Contribuir a que la impartición de justicia responda en caso de error judicial o retardos. 6. Fortalecer la cultura de servicio para corresponder a la confianza ciudadana. 7 Elevar la calidad para la buena impartición de justicia con transparencia y rendición de cuentas
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe servir a las personas. Solucionar prontamente y dar a cada quien lo que le corresponda. Ser un instrumento que atienda las necesidades de justicia del pueblo. La buena impartición de justicia nace escuchando la experiencia de vida de las personas. Los principios y valores deben ser el faro que conduzca todos los tramos de la impartición de justicia. La impartición de justicia debe ser una herramienta para combatir la corrupción.
+
+
+## Propuestas
+
+- Contribuir para que la impartición de justicia responda por errores judiciales o retardos injustificados.
+- La función de juez debe promover y favorecer la mejora social.
+- Abonar significativamente a que las sentencias sean claras, precisas y entendidas por todos.
+

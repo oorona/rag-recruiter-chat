@@ -1,0 +1,74 @@
+Nombre Candidato: ZYANYA CECILIA LAZARO HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: 7711350186
+Correo Electronico: zyanlazaro@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acoso Sexual, Conciliación, Convenios, Derecho Colectivo, Derecho Laboral, Hostigamiento Sexual, Justicia Laboral, Licenciatura., Maestría, Mediación, Perspectiva de Género, Reforma Laboral, Seguridad Social, Violencia de Género
+Tags Propósito: acceso a la justicia, bienestar ciudadano, derechos vulnerables, inmediatez procesal, justicia comprensible, justicia de campo, justicia laboral, litigio, participación ciudadana, pronta resolución, resolución de conflictos, sentencias claras, soporte judicial., transparencia judicial
+
+
+## Descripción del Candidato 
+
+ZYANYA CECILIA LAZARO HERNANDEZ es candidata a Jueza/es de Distrito en Hidalgo, postulándose a través del Poder Legislativo Federal. Cuenta con un doctorado y una trayectoria académica enfocada en Derecho, con especialidad en la reforma laboral y maestría en Derecho Laboral y Seguridad Social. Ha realizado cursos en prevención de hostigamiento, conciliación, justicia laboral y perspectiva de género.
+
+Su motivación para buscar el cargo es mejorar la justicia para los trabajadores, buscando una aplicación de la ley más cercana a la realidad.  Propone acercar la justicia a la sociedad a través de foros y difusión de criterios judiciales, la participación activa en diligencias de los procesos laborales, y la transformación de las sentencias en documentos comprensibles para cualquier ciudadano, incluyendo soporte para su explicación detallada.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AYD2UBJzd/?mibextid=wwXIfr
+- https://x.com/zyanyalazaro
+- https://www.instagram.com/zyanyalazaro
+- https://www.tiktok.com/@zyanyalazaro
+
+
+## Cursos
+
+- Taller para la Prevención de Hostigamiento Sexual, Acoso Sexual y/o Violencia de Género en Órganos Jurisdiccionales,Taller Sobre Conciliación y Mediación y Elaboración de Convenios en Materia de Trabajo,Especialización y Sensibilización Sobre la Reforma en Materia de Justicia Laboral,Especialización en Perspectiva de Género,Seminario de Derecho Colectivo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53812/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho con especialidad en materia de la reforma laboral y Maestría en Derecho Laboral y Seguridad Social
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la capacidad para mejorar la justicia para los trabajadores, con una visión más apegada a la realidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La sociedad requiere jueces comprometidos con la ciudadanía, de modo que cada resolución refleje el valor que damos a cada asunto, como representación de la vida, patrimonio, familia, trabajo y bienestar de cada justiciable que acude a los tribunales en búsqueda de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no debe limitarse a la aplicación de la ley; sino que debe buscar resolver el conflicto de tal forma que se garantice que los derechos de los grupos vulnerables serán respetados en lo subsecuente. Para tal efecto, el juez debe asegurarse que las personas accedan a la justicia de manera pronta y efectiva; evitando revictimizar a las partes a causa de la demora en el trámite y resolución de los juicios.
+
+
+## Propuestas
+
+- De puertas abiertas, con foros de debate e informativos. Se busca acercar la justicia a la sociedad a través de la difusión de los criterios del juzgado; asimismo, se pretende invitar al público en general a participar con propuestas para mejorar el servicio a la ciudadanía; y, generar espacios informativos y académicos para los estudiantes, litigantes y abogados en general.
+- De campo. Participación de la persona juzgadora en las diligencias que forman parte del proceso laboral; lo anterior, a efecto de materializar el principio de inmediación en todas las etapas del procedimiento. Con esta propuesta, se busca acercamiento con los justiciables, y garantizar el cumplimiento de las determinaciones emitidas dentro del procedimiento, en el momento en que se ejecutan.
+- Justicia comprensible. Transformar las sentencias y acuerdos judiciales en documentos fáciles de entender para cualquier persona. Además, implicará implementar un soporte en su modalidad, con la finalidad de explicar clara y detalladamente a quien lo solicite, el sentido de los acuerdos o sentencias.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: MIGUEL ANGEL RAMIREZ ESTEVEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: miguestevez_@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización Jurisprudencial., Argumentación, Derecho, Derecho Electoral, Derecho Procesal Civil, Formación, Justicia Constitucional, Licenciatura en Derecho, Maestría en Derecho Constitucional, Poder Judicial de la Federación, Redacción de Sentencias, Universidad Autónoma de Aguascalientes
+Tags Propósito: Acceso, Bien Común, Constitución, Derechos, Dignidad, Equipo Profesional, Función Jurisdiccional, Igualdad, Justicia, Leyes, No Discriminación, Privilegios., Sociedad, Transparencia, Tribunal
+
+
+## Descripción del Candidato 
+
+MIGUEL ANGEL RAMIREZ ESTEVEZ es candidato a Magistrado de los Tribunales Colegiados de Circuito del Poder Judicial de la Federación en Aguascalientes. Cuenta con Maestría en Derecho Constitucional y Administrativo, y es Licenciado en Derecho por la Universidad Autónoma de Aguascalientes. Su formación complementaria incluye diversos cursos en áreas como justicia constitucional, argumentación jurídica y derecho procesal civil.
+
+Su motivación para buscar el cargo se basa en su conocimiento de la responsabilidad que implica la toma de decisiones en esta función. Su visión de la función jurisdiccional se centra en la justicia e igualdad, buscando el bien común y el acceso equitativo a los derechos. Sus propuestas incluyen la apertura de los tribunales, la divulgación de la función jurisdiccional a la población y la formación de un equipo de trabajo profesional y cercano a la sociedad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573527853011
+- https://x.com/ramirezestevezm?s=11
+- https://www.instagram.com/ramirezestevezangel/?igsh=YjVjdHNqY2d1OGF3&utm_source=qr#
+- https://www.tiktok.com/@miguelngelramirez078?_t=ZS-8v1OWqNRhod&_r=1
+
+
+## Cursos
+
+- CURSO Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, ciclo escolar 2014
+- ,Diplomado en Justicia Constitucional y Actualización Jurisprudencial
+- ,Taller de Argumentación y Redacción de Sentencias
+- ,Segunda semana en Derecho Electoral
+- ,Curso en ¿Derecho Procesal Civil¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54435/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Aguascalientes
+- Maestría en Derecho Constitucional y Administrativo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque conozco la responsabilidad y trascendencia de las decisiones que en dicho cargo se toman.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Justicia e igualdad, vistos como virtudes que buscan el bien común y que implica que todas y todos tengan acceso a los mimos derechos y que sean tratados con dignidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Proteger los derechos de las personas y garantizar el cumplimiento de la Constitución y las leyes, sin privilegios y sin discriminaciones.
+
+
+## Propuestas
+
+- Tribunal de puertas abiertas.
+- Dar a conocer a la población en general la función jurisdiccional.
+- Formar un equipo de trabajo profesional, humano y cercano a la sociedad.
+

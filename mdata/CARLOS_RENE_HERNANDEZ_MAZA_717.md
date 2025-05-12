@@ -1,0 +1,78 @@
+Nombre Candidato: CARLOS RENE HERNANDEZ MAZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5564765921
+Correo Electronico: maza55333@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización, Código de Comercio, Derecho, Especialización Judicial, Inducción, Judicatura Federal, Materia Civil, Materia Mercantil, Reformas, Universidad Autónoma del Estado de México, Violencia
+Tags Propósito: Acceso a la justicia, Agilización de procesos, Cargas de trabajo, Derechos de los justiciables, Empleados públicos, Gobierno, Honestidad, Justicia, Juzgados., Ley, País, Poder Judicial, Profesionalismo, Reformas legales, Resolución de conflictos, Tribunales
+
+
+## Descripción del Candidato 
+
+Carlos Rene Hernandez Maza es candidato a Magistrado de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose para el Poder Legislativo Federal. Es Licenciado en Derecho, egresado de la Universidad Autónoma del Estado de México y cuenta con cédula profesional. Su trayectoria incluye más de 26 años dentro del Poder Judicial de la Federación, respaldada por cursos de especialización en áreas como derecho civil, mercantil y prevención de violencia.
+
+Su motivación para buscar el cargo es poner su experiencia y conocimiento al servicio de quienes enfrentan problemas legales. Propone aumentar el número de juzgados y tribunales para agilizar la resolución de conflictos, impulsar reformas que simplifiquen los procedimientos judiciales y fortalecer el Poder Judicial de la Federación, enfatizando la profesionalización y transparencia de su trabajo. Busca garantizar un acceso a la justicia más rápido y justo para todos los mexicanos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16PJtM8iKE/?mibextid=wwXlfr
+- https://x.com/carlosmaza41587?s=21
+- https://www.instagram.com/maza_carl?ighs=MThsY242MXRIZ3BpNg3D&utm_source=qr
+- https://www.tiktok.com/@carlos.maza034?t=ZM-8v6RRoD2daZ&_r=1
+
+
+## Cursos
+
+- Curso de Especialización Judicial impartido por el Instituto de la Judicatura Federal
+- ,Cursos de Inducción en Materia Civil y Mercantil
+- ,Curso para Generar Espacios Libres de Violencia
+- ,Curso de Reformas al Código de Comercio
+- ,Cursos de Actualización Módulos Materia Civil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53761/10
+
+
+## Trayectoria Academica
+
+- Soy egresado de la Facultad de Derecho en la Universidad Autónoma del Estado de México, generación
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero poner mi trabajo, esfuerzo, experiencia y conocimiento en beneficio de las personas que tienen problemas legales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En nuestro país  es tan  con tantos contrastes en todos los aspectos de la vida social, la función jurisdiccional ocupa un papel muy importante y sin duda es un aspecto que atañe al Gobierno, es una necesidad de todos los mexicanos, la cual en la gran mayoría de las veces corresponde a la solución de conflictos de todo tipo y que deben ser atendidos desde la óptica de dar a los justiciables la respuesta a sus demandas de modo que les sea aplicada la ley sin distingos de ningún tipo
+
+
+## Vision sobre la Imparticion de Justicia
+
+A lo largo de más de veintiséis años de trabajar dentro del Poder Judicial de la Federación,  esta noble profesión de solucionar los conflictos entre las  tengo la satisfacción de haber trabajado a lado de personas extraordinariamente talentosas y muy trabajadoras, todas muy admirables y verdaderas eminencias en la función jurisdiccional  también como  lo que afortunadamente vivo hasta la fecha de quienes he aprendido lo necesario con su ejemplo de trabajo y honestidad.
+
+
+## Propuestas
+
+- Definitivamente que aumentaran el número de juzgados y tribunales pues en un país con una población de más de ciento treinta millones ayudaría a que la solución de conflictos sea más rápida, pues en innegable que las cargas de trabajo tan importantes que históricamente ha enfrentado el Poder Judicial de la Federación dificultan que se cumpla con el derecho de acceso a la justicia a que tenemos derecho todos en tiempos más reducidos, no obstante lo cual siempre se ha sacado el trabajo adelante.
+- También que haya más reformas que ha faciliten los procedimientos, poco a poco afortunadamente ha seguido lo cual redunda en la agilización de lo asuntos y que los lapsos sean más breves, así como también que todos los mexicanos tengamos la certeza de que nuestro asunto no tardará tanto ni serán los plazos tan prolongados, además de que las personas que acudan a los juzgados y tribunales sea cual fuera el resultado que obtengan tengan la seguridad de que su asunto se resolvió con justicia.
+- Finalmente, que haya un Poder Judicial de la Federación fuerte, unido y profesional en que el trabajo que se desempeña sea más conocido por todas las personas, que sepan que aquí se trabaja con mucho esfuerzo para que sus demandas de justicia sean atendidas con profesionalismo, que somos empleados del Gobierno que amamos nuestro trabajo y que estamos poniendo nuestro granito de arena para que nuestro país sea mejor y que las personas sepan que estamos haciendo nuestro mejor esfuerzo.
+

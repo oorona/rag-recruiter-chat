@@ -1,0 +1,74 @@
+Nombre Candidato: JOSUE SAN MIGUEL MORA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 7774107448
+Correo Electronico: josuesmm@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: California Western School Law, Control de Fraude Fiscal, Curso Interdisciplinario, Derecho Administrativo y Fiscal, Derechos Humanos, Doctorado en Derecho, Escuela Libre de Derecho, IJF., Juicios Orales, Licenciado en Derecho, Prevención de Blanqueo de Capitales, Sistema Penal Acusatorio, Universidad Alberto Hurtado, Universidad Castilla La Mancha
+Tags Propósito: Acceso a la justicia, Burocracia, Casos vulnerables, Compromiso judicial, Derechos humanos, Facilitadores de justicia, Flexibilidad, Función jurisdiccional, Impartición de justicia, Jurisdicción indígena, Justicia real, Justicia transformadora, Políticas públicas, Sector indígena., Sentencias relevantes, Sociedad, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+JOSUE SAN MIGUEL MORA es candidato a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulado por el Poder Ejecutivo Federal. Cuenta con formación académica de posgrado, incluyendo un Doctorado en Derecho, y una trayectoria de casi veinte años en el ámbito judicial. 
+
+Su motivación para el cargo se basa en una vocación por la justicia transformadora y su visión se centra en una reforma integral de la función jurisdiccional, buscando priorizar la resolución de fondo de los asuntos y facilitar el acceso a la justicia, especialmente para los sectores más vulnerables. Sus propuestas incluyen la promoción de sentencias relevantes y criterios novedosos que beneficien a la sociedad, la priorización de acciones y resultados sobre la mera reducción de cargas de trabajo, y el fortalecimiento de la justicia transformadora a través de políticas públicas y decisiones judiciales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://sites.google.com/view/josuesanmiguelmora/pC3A1gina-principal
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jos.smiguel.9
+- https://x.com/jsmm1
+- https://www.instagram.com/josuesmm6?igsh=MXB0dTZqcXRsNHV1aQ==
+- https://www.tiktok.com/@josu.san.miguel.mo?_t=ZM-8v4tbwuSaov&_r=1
+
+
+## Cursos
+
+- Especialización Control de Fraude Fiscal y Prevención de Blanqueo de Capitales, Universidad Castilla La Mancha, España,XXXIV Curso Interdisciplinario en el Instituto Interamericano de Derechos Humanos en San José, Costa Rica,Seminario de Capacitación en Juicios Orales, California Western School Law, San Diego California, Estados Unidos,Certificado Académico expedido por el Instituto Interamericano de Derechos Humanos en San José, Costa Rica,Diplomado en el Sistema Penal Acusatorio, impartido por la Universidad Alberto Hurtado de Chile y el IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55368/10
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho Escuela Libre de Derecho Puebla Maestría en Derecho Administrativo y Fiscal Licenciado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Vocación por la justicia, en cada sentencia he logrado que la justicia transformadora llegue a la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+A lo largo de la carrera judicial, he advertido que es necesaria una transformación integral en la función jurisdiccional, un factor que impide que la justicia sea real, deriva fundamentalmente de aspectos meramente estadísticos, ya que varios órganos judiciales, en lugar de resolver de fondo los asuntos, prefieren privilegiar la reducción de sus números, a través de desechamientos y sobreseimientos, en muchas ocasiones infundados, rechazando en forma injusta la peticiones de los justiciables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La experiencia judicial, después de casi veinte años, permite alcanzar la conciencia para comprender que los justiciables necesitan una justicia real, flexible y accesible, en que los operadores judiciales asuman un papel de facilitadores de acceso a la justicia, sobre todo en favor de los sectores más vulnerables, sin poner trabas innecesarias y remover los obstáculos que impiden el acercamiento entre la sociedad y la justicia, por lo que se deben erradicar los laberintos de burocracia.
+
+
+## Propuestas
+
+- Por una justicia transformadora. Durante mi trayectoria, he elaborado múltiples sentencias relevantes y criterios novedosos que hacen de la utópica justicia una realidad posible, protegiendo los derechos humanos para el bienestar de la sociedad, mi compromiso es continuar reforzando esa justicia transformadora, logrando el acercamiento entre el sistema de impartición de justicia y la sociedad, para maximizar las bondades de nuestro sistema judicial, y así erradicar los laberintos de burocracia.
+- Más evidencias y hechos que palabras. Quienes aspiramos a una magistratura debemos predicar con el ejemplo, no solo debemos querer pertenecer a la judicatura, sino realmente tener la vocación y compromiso por la impartición de justicia, asumiendo el papel de facilitadores de acceso a la justicia, mediante políticas públicas y acciones positivas, a través de nuestras sentencias, buscando en mayor medida que nuestras decisiones tengan esa vocación transformadora.
+- Predicar con ejemplo. Podría citar una lista interminable de casos que he tenido donde se han protegido los derechos de varios grupos vulnerables, por ejemplo, nuestro importante sector de mujeres indígenas, cuando parecía que su caso estaba perdido, logrando así que la justicia sea transformadora, para el bienestar de nuestra sociedad; también puedo mencionar la sentencia que consolidó la jurisdicción indígena por primera vez en nuestra historia Mexicana, y que tuve la oportunidad de elaborar.
+

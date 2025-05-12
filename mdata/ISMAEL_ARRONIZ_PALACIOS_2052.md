@@ -1,0 +1,77 @@
+Nombre Candidato: ISMAEL ARRONIZ PALACIOS
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 2292070982
+Correo Electronico: arronizisma@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derechos Humanos, Educación Pública, Formación, Igualdad de Género, Justicia Laboral., Maestría en Derecho, Poder Judicial, Reforma Laboral
+Tags Propósito: Acceso a la Justicia, Adultos Mayores, Compromiso, Conciliación Laboral, Derechos Humanos, Digitalización, Dignidad Humana., Discapacidad, Eficiencia, Empatía, Igualdad de Género, Imparcialidad, Justicia Laboral, LGBTIQ+, Lenguaje Claro, Paz Social, Pueblos Originarios, Rendición de Cuentas, Sensibilidad Social, Servicio Público, Tecnologías, Transformación, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ismael Arroniz Palacios es candidato a Juez/a de Distrito en Chiapas, postulándose a través del Poder Legislativo Federal. Cuenta con maestría y cédula profesional, además de una trayectoria académica que resalta su paso por escuelas públicas desde la primaria hasta el nivel de posgrado. 
+
+Su motivación para buscar el cargo público se centra en transformar la justicia laboral, acercándola a la ciudadanía y utilizando un lenguaje accesible. Sus propuestas incluyen fortalecer la protección de derechos laborales de grupos vulnerables, fomentar la conciliación laboral como método de resolución de conflictos y la implementación de tecnologías para agilizar procesos, transparentar información y facilitar la comprensión de las sentencias.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Ex5Edp4if/?mibextid=wwXIfr
+- https://x.com/arronizismael?s=21
+- https://www.instagram.com/ismaarroniz?igsh=MWd3Y2QwbHR0MjJrag3D3D&utm_source=qr
+- https://youtube.com/@arronizisma?si=ChIcEYwLrZ_SqMfD
+- https://www.tiktok.com/@ismael.arroniz?_t=ZM-8v68rlvIZwD&_r=1
+- https://www.threads.net/@ismaarroniz?igshid=NTc4MTIwNjQ2YQ==
+
+
+## Cursos
+
+- Especialización sobre la Reforma en Materia de Justicia Laboral,Especialidad en Curso Básico de Formación y Preparación para secretarios del Poder Judicial de la Federación,XLII Curso Interdisciplinario en Derechos Humanos 2024: Temas y Dilemas Contemporáneos a la Luz de los Derechos Humanos,Especialidad en Derechos Humanos,curso sobre Genero como Herramienta para la Igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52318/11
+
+
+## Trayectoria Academica
+
+- De una primaria rural a la maestría en Derecho, siempre en escuelas públicas, con orgullo y raíces
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero transformar la justicia laboral con cercanía, empatía, compromiso, cercana y que hable el idioma del pueblo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional implica un compromiso ético y técnico orientado a garantizar los derechos fundamentales con imparcialidad, independencia y profundo sentido humano. No basta con dominar el conocimiento jurídico; es indispensable contar con sensibilidad social, empatía y una visión transformadora que permita generar un impacto positivo en la vida de las personas que acuden al sistema de justicia en busca de respuestas reales, eficaces y justas a sus problemáticas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe entenderse como un servicio público orientado al respeto de la dignidad humana. Debe ser pronta, completa, comprensible y transparente, utilizando lenguaje claro, herramientas tecnológicas modernas y un enfoque cercano a la ciudadanía. El acceso a la justicia no debe tener barreras, sino puentes para generar confianza y resolver de fondo los conflictos laborales, detrás de cada caso hay personas con historias, preocupaciones y derechos que deben ser protegidos.
+
+
+## Propuestas
+
+- Me comprometo a fortalecer la protección de los derechos laborales de grupos en situación de vulnerabilidad como mujeres, pueblos originarios, adultos mayores, personas con discapacidad y comunidad LGBTIQ+. Además, promoveré la rendición de cuentas mediante la publicación de estadísticas y sentencias, así como canales de retroalimentación ciudadana para evaluar el servicio judicial
+- Fomentaré la conciliación laboral como un mecanismo ágil, justo y menos costoso para la resolución de conflictos. La conciliación voluntaria fortalece la paz social y permite acuerdos que realmente atienden los intereses de las partes, privilegiando el diálogo, el respeto mutuo y la solución colaborativa
+- Impulsaré el uso de tecnologías que permitan agilizar los procedimientos, publicar sentencias en formatos abiertos y capacitar al personal jurisdiccional en el uso de lenguaje claro. La digitalización, la transparencia y la claridad en la comunicación permitirán una justicia más comprensible, eficiente y cercana a quienes más la necesitan
+

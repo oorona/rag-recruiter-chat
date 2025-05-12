@@ -1,0 +1,73 @@
+Nombre Candidato: ISRAEL NAVARRETE GUERRERO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: navarrete.israel.magcyt@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Conciliación y Arbitraje, Código de Procedimientos Civiles, Derecho, Formación, Justicia Laboral, PJF, Resoluciones., Sistema de Justicia Laboral, UVM, Ética
+Tags Propósito: Actualización, Capacitación, Constitución Mexicana., Derechos Humanos, Eficiencia, Imparcialidad, Integridad, Jurisprudencia, Justicia, Legalidad, Liderazgo, Objetividad, Personal, Profesionalismo, Promoción, Puerta Abierta, Recompensas, Recursos Públicos, Rendición de Cuentas, Responsabilidad, Servicio Público, Transparencia, Visión Amplia, Ética
+
+
+## Descripción del Candidato 
+
+ISRAEL NAVARRETE GUEERRO es candidato a las Magistraturas de Tribunales Colegiados de Circuito, postulándose desde COAHUILA al Poder Legislativo Federal. Cuenta con licenciatura en Derecho y ha participado en diversos cursos de actualización en justicia laboral y procedimientos civiles, así como en ética en la administración pública.
+
+Su motivación para buscar el cargo es impartir una justicia digna, coherente y apegada al derecho. Su visión de la función jurisdiccional se centra en la ética, objetividad, profesionalismo e integridad, extendiendo estos principios a la gestión de personal y la administración de recursos. Sus propuestas incluyen la valoración y promoción del personal, el ahorro en el gasto público, el fomento de la capacitación, la apertura a la comunicación y la rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A46UvXgRJ/?mibextid=wwXIfr
+- https://www.instagram.com/navarreteg_israel?igsh=dG9tZmlvZGF6Ymk0&utm_source=qr
+- https://www.tiktok.com/@navarrete.g.israel?_t=ZM-8v0dUbSwxjL&_r=1
+
+
+## Cursos
+
+- Jornadas de Sensibilización sobre la Reforma en Materia de Justicia Laboral,Seminario Especializado en el Nuevos Sistema de Justicia Laboral,Jornadas de Introducción al Estudio del Código Nacional de Procedimientos Civiles y Familiares,Elaboración de Resoluciones de la Junta Federal de Conciliación y Arbitraje,Ética en la Administración Pública Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54587/10
+
+
+## Trayectoria Academica
+
+- Licenciatura de Derecho en la UVM; Curso Básico de Formación y Preparación de Secretarios del del PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir una Justicia digna , coherente, real y apegada al Derecho que día a día se reforma y evoluciona
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El servicio público en la función jurisdiccional debe ejercerse con ética, objetividad, profesionalismo e integridad. El servicio público es un privilegio y una gran responsabilidad y compromiso con la sociedad. Asimismo, como titular de un órgano jurisdiccional, se deben respetar los referidos principios con el personal a cargo, pues un buen juzgador debe empezar a ser justo en casa. Finalmente, un buen servidor público debe demostrar su integridad aún fuera de su centro de trabajo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los principales principios son los de legalidad e imparcialidad. Legalidad, es aplicar la Constitución Mexicana, leyes y jurisprudencias. Imparcialidad es valorar resolver sin prejuicios ni inclinación hacia una de las partes. Sin embargo, la impartición de justicia no se limita a esos principios, de lo contrario el juzgador sería un mero aplicador de la ley. Un buen juzgador debe tener una visión amplia, real y objetiva para impartir justicia como lo establecen y permiten los derechos humanos
+
+
+## Propuestas
+
+- En lo administrativo, valorar al personal a cargo, promocionarlo por sus capacidades y esfuerzos, recompensarlos cuando su compromiso sea mayor a sus obligaciones. Vigilar la compra de recursos materiales e insumos, a fin de ahorrar en el gasto público; cuidar los recursos y herramientas de trabajo que se nos proporcionen.
+- Como titular, contratar a personal capacitado, fomentar la actualización y estudio en impartición de justicia. Ser un líder que acompañe al personal en su labores y resuelva todas las dudas. Ser un ejemplo en la honradez, eficiencia y profesionalismo, que respalde y escuche todas las propuestas que ayuden a mejorar la función jurisdiccional
+- Como Magistrado, trabajar bajo la política de puerta abierta, no solo para el personal, sino también para toda persona que tenga interés en exponer su asunto y aportar argumentos para una mejor visión al resolver, coloquialmente, no ser un Magistrado inalcanzable. Rendir cuentas exhaustivamente sobre los ingresos. En su caso, aprender de los argumentos de los otros Magistrados integrantes. Ser un verdadero impartidor de justicia
+

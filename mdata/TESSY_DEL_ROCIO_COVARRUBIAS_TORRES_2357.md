@@ -1,0 +1,86 @@
+Nombre Candidato: TESSY DEL ROCIO COVARRUBIAS TORRES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5534223791
+Correo Electronico: tessycovarrubiasjuezamercantil@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Anáhuac, Comercio Exterior, Concursos Mercantiles, Derecho Financiero, Derecho Internacional, Derecho de las Empresas, Derechos Humanos, Formación Judicial, Juicio de Amparo, Licenciatura en Derecho., Operación Aduanera, UNAM, Universidad Iberoamericana, Universidad del Valle de México
+Tags Propósito: acceso a la justicia, capacitación, concursos mercantiles, derechos humanos, desarrollo económico, eficiencia, evaluación de desempeño, humanización, igualdad, imparcialidad, justicia, justicia sensible., participación ciudadana, procesos transparentes, realidad social, rendición de cuentas, retroalimentación, seguridad jurídica, transparencia
+
+
+## Descripción del Candidato 
+
+Tessy del Rocío Covarrubias Torres es candidata a Jueza/o de Distrito en la Ciudad de México, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Instituciones de Derecho Financiero y Derecho de las Empresas, complementada por diversos diplomados en áreas como Concursos Mercantiles, Juicio de Amparo, Comercio Exterior, Derechos Humanos y Derecho Internacional.
+
+Su motivación para el cargo se basa en su formación académica, experiencia y vocación de servicio, buscando contribuir a la impartición de justicia. Su visión se centra en una función jurisdiccional transformadora, basada en la imparcialidad, eficiencia y el respeto a los derechos humanos, así como en una justicia accesible, cercana a la sociedad y que garantice la igualdad. Sus propuestas incluyen el fortalecimiento de la transparencia y rendición de cuentas en el sistema judicial, el fomento de la participación ciudadana y la capacitación continua de los jueces, con un enfoque en la realidad social y los principios humanistas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/tessydelrocioabogadamercantil/
+- https://x.com/TessydelRocioCo?t=OHBkwOt2bQzDv1clHxMpZA&s=08
+- https://www.instagram.com/tessy_abogada_mercantil?igsh=MWVvZXI5eXpvc2YwYQ==
+- https://www.tiktok.com/@tessy_abogada_mercantil?is_from_webapp=1&sender_device=pc
+- https://linktr.ee/tessy.covarrubiastorres
+
+
+## Cursos
+
+- Diplomado de Concursos Mercantiles
+- Escuela Federal de Formación Judicial
+- 2023
+- ,Diplomado Virtual ¿Juicio de Amparo¿, Casa de la Cultura Jurídica
+- 2021
+- ,Diplomado Online de ¿Comercio Exterior y Operación Aduanera¿, Universidad del Valle de México e Ibaktor
+- 2021
+- ,Curso ¿El Derecho Internacional y el Juez Mexicano¿, Instituto de Investigaciones Jurídicas de la UNAM
+- 2020
+- ,Diplomado en ¿Derechos Humanos¿, Universidad Iberoamericana en unión con la Escuela Judicial del IJF
+- 2012
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52925/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho (UP)
+- Maestrías en: Instituciones de Derecho Financiero (UP) y Derecho de las Empresas (Anáhuac)
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con formación académica, experiencia y vocación de servicio sólidos para contribuir a la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser instrumento de transformación social basado en la imparcialidad, eficiencia y compromiso no solo para aplicar la ley, sino para hacer efectivos los derechos humanos, garantizar la igualdad y el acceso a esa justicia sensible a la realidad social, mediante sentencias debidamente fundadas y motivadas. Para ello, el juez debe ser proactivo, analítico y con criterio sólido que garantice procesos transparentes, ágiles y eficaces en beneficios concretos para todos y el desarrollo económico.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Imparcial, accesible, eficiente y cercana a la sociedad. La justicia no sólo es aplicar la ley, sino garantizar que cada resolución sea clara, efectiva y promueva la igualdad, protegiendo los derechos de todas las partes y permita la estabilidad social y jurídica. En concursos mercantiles creo en un modelo de justicia que priorice la transparencia, la seguridad jurídica y la eficiencia procesal, siempre con un enfoque humanista y pleno respeto a los principios constitucional y derechos humanos.
+
+
+## Propuestas
+
+- Fortalecimiento de la transparencia y rendición de cuentas. Establecer mecanismos de evaluación objetiva de desempeño de los juzgadores, accesibles al público, lo que contribuiría a generar mayor confianza en el sistema judicial y aseguraría que las decisiones sean tomadas de manera imparcial y justa. Estos mecanismos también incluiría información de quejas promovidas por los trabajadores o litigantes contra los juzgadores, así como la publicación de criterios relevantes de forma continúa.
+- Fortalecer la participación ciudadana mediante canales de diálogo y plataformas digitales donde la ciudadanía pueda seguir el funcionamiento del sistema judicial, expresar sus necesidades y aportar ideas para mejorar los mecanismos puestos a su disposición que impacte en la forma material en que se da acceso a la justicia, o bien, escuchar quejas de estos. Así se facilitaría la retroalimentación directa y permitiría ajustar los procesos en función a las expectativas sociales.
+- Capacitación y humanización de los jueces para garantizar que las decisiones respondan a la realidad cotidiana de las personas y se acerquen a sus necesidades. En materia de concursos mercantiles añadiría que esto debe enfocarse a capacitar a todos los actores clave del proceso concursal (jueces, conciliador, síndico, visitador) con el objetivo de optimizar los tiempos y la calidad de las decisiones con miras a una justicia sensible a la sociedad y el desarrollo económico del país.
+

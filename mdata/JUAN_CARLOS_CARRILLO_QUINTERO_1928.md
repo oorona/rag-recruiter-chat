@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN CARLOS CARRILLO QUINTERO
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jc.carrillo.quintero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación, Derecho de Ejecución Penal, Derechos Fundamentales, Formación Judicial, Interpretación Jurídica, Juicio de Amparo, Licenciatura en Derecho, Maestría en Análisis Tributario, Maestría en Derechos Humanos., Poder Judicial Federal, Secretarios Judiciales, Sistema Penal Acusatorio
+Tags Propósito: acceso a la justicia, cultura del derecho, derechos humanos, educación jurídica, estado de derecho, excelencia, imparcialidad, independencia judicial, justicia, moralidad, participación ciudadana, resolución de conflictos, responsabilidad social, servicio público., transparencia
+
+
+## Descripción del Candidato 
+
+JUAN CARLOS CARRILLO QUINTERO es candidato a Jueces/as de Distrito en Baja California, postulando a través de En Funciones. Cuenta con Maestría concluida y una trayectoria académica que incluye Licenciatura en Derecho y estudios de dos Maestrías en Análisis Tributario y Derechos Humanos. Ha participado en diversos cursos de formación judicial, incluyendo temas de ejecución penal, juicio de amparo y el sistema penal acusatorio.
+
+Su motivación para el cargo público se basa en servir a México con su conocimiento jurídico y cualidades personales. Su visión de la función jurisdiccional se centra en la excelencia, independencia, rectitud y humanismo, priorizando una justicia adecuada y comprensible para las personas. Propone mantener una comunicación cercana con la población a través de medios electrónicos y reuniones presenciales, emitir resoluciones claras y tutelando los derechos humanos, y promover la educación jurídica general y la transmisión de conocimiento a nuevos profesionales del derecho.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AEV3q8DgC/?mibextid=wwXIfr
+- https://www.instagram.com/jccq153/
+- https://www.youtube.com/@SimplificandoLaJusticia
+- https://linktr.ee/juancarloscarrilloq
+
+
+## Cursos
+
+- Fundamentos del Derecho de Ejecución Penal, Escuela de Formación Judicial,Interpretación jurídica y argumentación: bases teóricas y trabajo práctico, Escuela de Formación Judicial,El Juicio de amparo como mecanismo de protección de derechos fundamentales,Capacitación Intensivo para Juezas y Jueces del Sistema Penal Acusatorio, Escuela de Formación Judicial,Curso de formación de Secretarios del Poder Judicial Federal, Escuela de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52490/11
+
+
+## Trayectoria Academica
+
+- Licenciatura como Abogado, y estudios de dos Maestrías, una en Analisis Tributario y otra en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a México con lo mejor que puedo ofrecer, mi conocimiento jurídico, así como mi calidad moral y personal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional siempre debe apuntar por la excelencia e independencia para una justicia adecuada; el sacrificio personal para asegurar que la justicia sea oportuna; la rectitud moral y personal para evitar la corrupción y desviaciones del derecho; y lo más importante, el humanismo, para entender que las leyes se hicieron para servir a las personas, y que son éstas la primordial razon de la existencia de los tribunales judiciales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El juzgador, además de la responsabilidad jurídica de preservar el estado de derecho, también tiene una responsabilidad social de emitir decisiones que sean satisfactorias para la población, ya que una sentencia solo podrá considerarse democrática cuando sea entendida y aceptada por el pueblo, pues las leyes son el reflejo de la voluntad colectiva de la nación, y las sentencias judiciales deben ser la aplicación particular de esa voluntad.
+
+
+## Propuestas
+
+- Mantener una cercanía con la población para informar sobre los procesos que se llevan a cabo, y las decisiones que se toman; esto se realizaría, en principio, a través de medios electrónicos como redes sociales, pero también de manera presencial a través de reuniones generales periódicas anuales o semestrales, donde se puedan aclarar dudas o proporcionar información sobre la manera en que las personas pueden ayudar a mejorar la impartición de justicia.
+- Dictaré resoluciones con excelencia, e independencia judicial, donde se tutelarán todos los derechos humanos de todos, imputados, victimas, o cualquier otro que esté en contacto con el sistema penal. Estas resoluciones se harán con la mayor simpleza posible, sin tecnicismos innecesarios, para que cualquier persona pueda entender de manera directa, sin intermediarios, la razón de porqué se resolvió de esa forma.
+- Promoveré la educación jurídica general para las personas que no tienen una formación especializada, fomentando la cultura del derecho en la comunidad; además, me comprometo a transmitir el conocimiento a nuevos profesionales en la impartición de justicia para un mejor futuro.
+

@@ -1,0 +1,72 @@
+Nombre Candidato: HENRY MENDEZ URBINA
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 9612426231
+Correo Electronico: lic.mendez@live.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Centros de Justicia Penal, Derecho, Derecho Procesal Penal, Disertante, Formación Continua, Formación Judicial, Instituto Estudios Judiciales, Judicatura Federal, Justicia Penal Federal, Ponente., Secretarios Poder Judicial, Universidad Autónoma de Chiapas
+Tags Propósito: acceso a la justicia, celeridad, derechos humanos, eficiencia, honestidad, igualdad, imparcialidad, independencia., justicia, justicia alternativa, justicia restaurativa, sectores vulnerables, transparencia
+
+
+## Descripción del Candidato 
+
+Henry Mendez Urbina es candidato a Juez/a de Distrito para el Poder Ejecutivo Federal en México. Licenciado en Derecho por la Universidad Autónoma de Chiapas y Maestro en Derecho Procesal Penal, cuenta con una Maestría concluida y especialización en temas de justicia penal, incluyendo cursos del Instituto de Estudios Judiciales de los Estados Unidos y del Poder Judicial de la Federación.
+
+Su motivación para postularse al cargo es servir al pueblo, basándose en su proyecto de vida.  Su visión de la función jurisdiccional y la impartición de justicia se centra en la honestidad, accesibilidad, eficacia, transparencia y respeto a los derechos humanos. Sus propuestas incluyen mejorar la celeridad de los procesos judiciales, promover la justicia alternativa y restaurativa, y fortalecer el acceso a la justicia para sectores vulnerables. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/henrymendezurbina/
+- https://www.facebook.com/henrymendezurbina/
+
+
+## Cursos
+
+- Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Curso de Manejo de Cortes del Instituto de Estudios Judiciales, por el Departamento de Justicia de los Estados Unidos,Disertante en la conferencia aspectos generales de los Centros de Justica Penal Federal, casa de la cultura SCJN,Ponente en el intercambio de experiencias en materia de visitas de inspección a Centros de Justicia Penal Federal (CJF),Programa de Formación: Jurisdicción en el Sistema de Justicia Penal (Instituto de la Judicatura Federal)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54159/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Chiapas y Maestro en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+En una palabra, por coherencia con mi proyecto de vida y por el honor de servir al pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tengo la convicción de ejercer el cargo de una forma honesta que sea más accesible, eficaz, eficiente y transparente para los usuarios, mejorando la calidad y el tipo de justicia impartida, en el que los derechos humanos sean siempre respetados y las decisiones judiciales sean tomadas de manera imparcial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión está orientada a garantizar un acceso justo, igualitario y eficiente con apego a los derechos humanos, la imparcialidad, la independencia, la transparencia y la honestidad; procurando una justicia más expedita y accesible para el pueblo.
+
+
+## Propuestas
+
+- Mejorar la celeridad de los procesos judiciales
+- Promover la justicia alternativa y restaurativa
+- Fortalecer el acceso a la justicia para sectores vulnerables
+

@@ -1,0 +1,82 @@
+Nombre Candidato: JORGE JESUS BELTRAN PINEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 5513917352
+Correo Electronico: jjbeltranp0122@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho Administrativo, Derecho Tributario, Formación Judicial, Igualdad de Género, Instituto de Investigaciones Jurídicas., Instituto de la Judicatura Federal, Licenciatura en Derecho, Maestría en Derecho, Sistema Nacional Anticorrupción, Universidad Nacional Autónoma de México
+Tags Propósito: Accesibilidad, Calidad, Celeridad, Cercanía, Derechos, Eficacia, Equidad, Formalidades, Humanitarismo, Imparcialidad, Justicia, Litigio., Protección, Resolución de conflictos, Transparencia, Trámite, Verdad
+
+
+## Descripción del Candidato 
+
+Jorge Jesús Beltrán Pineda es candidato al Poder Legislativo Federal, proveniente de Guerrero, con trayectoria como Magistrado de Tribunales Colegiados de Circuito. Cuenta con Maestría en Derecho y es egresado de la Universidad Nacional Autónoma de México, además de diversas especializaciones en áreas como administración de justicia, derecho administrativo, anticorrupción y derecho tributario.
+
+Su motivación para buscar el cargo se centra en contribuir a una impartición de justicia de calidad, pronta, accesible y eficaz. Propone eliminar obstáculos burocráticos en los tribunales, fomentar una justicia más cercana a la sociedad, permitiendo el contacto directo entre justiciables y juzgadores, y acelerar los tiempos de resolución de controversias para garantizar el ejercicio oportuno de los derechos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/jorgejesus.beltran
+- https://www.x.com/Jorgebeltranp22
+
+
+## Cursos
+
+- Especialidad en Administración y Procuración de Justicia
+- Universidad Nacional Autónoma de México
+- ,Curso Género Como Herramienta para la Igualdad
+- Cuarta Edición
+- Escuela Federal de Formación Judicial
+- ,Curso de Actualización en Derecho Administrativo
+- Escuela Federal de Formación Judicial
+- ,Curso de Inducción al Sistema Nacional Anticorrupción
+- Instituto de la Judicatura Federal
+- ,Diplomado en Derecho Tributario
+- Instituto de Investigaciones Jurídicas de la Universidad Nacional Autónoma de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52448/10
+
+
+## Trayectoria Academica
+
+- Maestro y Licenciado en Derecho por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero contribuir a que toda persona reciba una impartición de justicia de calidad, pronta, accesible y eficaz.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar necesario para un correcto funcionamiento de un sistema legal justo y equitativo, la cual debe centrarse en la persona que la necesita de manera imparcial y accesible, con el único propósito de proteger los derechos que cada una de las personas tiene. Debe enfocarse en estudiar a profundidad cada uno de los hechos que cada caso presenta, entendiendo la situación particular del justiciable, a fin de dar a cada quien lo que le corresponde.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta, eficaz y siempre con una visión humanitaria, cercana y accesible a toda persona sin importar su clase social, situación económica, creencia, raza o religión.
+
+
+## Propuestas
+
+- Eliminar obstáculos contra los que se enfrentan las personas que acuden a los tribunales, como son el exceso de formalidades en los diversos trámites que se llevan ante los órganos jurisdiccionales y que impiden que el juzgador pueda entrar al fondo del asunto, permitiendo así que el gobernado tenga certeza de que su caso será analizado en lo que realmente pretende, con una atención de calidad.
+- Impartir justicia bajo la premisa fundamental de cercanía a la sociedad, permitiendo que toda persona que tenga un asunto en tribunales pueda acercarse al juzgador que conoce de su caso para presentar de manera directa sus pretensiones y necesidades. Así, el juzgador podrá conocer cada caso en particular y a las partes que lo integran, para dar una justicia basada en la verdad.
+- Acelerar los tiempos en los cuales se deben resolver las controversias ante los órganos jurisdiccionales para que los gobernados puedan tener soluciones y ejercer sus derechos de manera pronta. Con esto se permitirá que las personas no detengan sus vidas cotidianas por más tiempo del necesario debido a un retraso en un juicio de cualquier naturaleza.
+

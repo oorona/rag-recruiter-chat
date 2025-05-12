@@ -1,0 +1,76 @@
+Nombre Candidato: LIBIA ZULEMA TORRES TAMAYO
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, CJF, Capacitación Judicial., Género, IJF, Impartición de Justicia, Licenciatura en Derecho, Poder Judicial de la Federación, Procesos Judiciales Federales, Reformas Constitucionales, Secretarios de Juzgados, Secretarios de Tribunales, Suprema Corte de Justicia de la Nación
+Tags Propósito: Acoso laboral, Actualización jurídica, Administración de justicia, Capacitación judicial, Celeridad judicial, Combate a la corrupción, Derechos humanos, Desarrollo del personal, Expedientes electrónicos (SISE), Funcionamiento de juzgados, Igualdad laboral, Impartición de justicia, Justicia social, Notificaciones electrónicas, Resolución de conflictos., Responsabilidad judicial, Sentencias relevantes, Transparencia judicial, Ética judicial
+
+
+## Descripción del Candidato 
+
+Libia Zulema Torres Tamayo es candidata a Juez/a de Distrito en Baja California Sur, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho y diversos diplomados y cursos impartidos por el Poder Judicial de la Federación, incluyendo temas de reformas constitucionales, procesos judiciales federales y género en la impartición de justicia.
+
+Su motivación para el cargo es colaborar en el mejoramiento de la administración e impartición de justicia a nivel federal. Su visión se centra en una debida administración de justicia con responsabilidad y atención al desarrollo del personal. Sus propuestas incluyen motivar al personal, fomentar el uso de expedientes electrónicos para agilizar los juicios y promover la capacitación continua tanto para la Juez como para su equipo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/libia.zulema.torres.tamayo/
+- https://www.instagram.com/libiazulematorrestamayo/p/DHjvO38uBUG/?img_index=3
+- https://tiktok.com/@libiazulematorrestamayo
+- https://www.facebook.com/profile.php?id=61573762629186
+
+
+## Cursos
+
+- Diplomado sobre Reformas Constitucionales en Materia de Amparo impartido por la Suprema Corte de Justicia de la Nación
+- ,Diplomado en Procesos Judiciales Federales impartido por la Suprema Corte de Justicia de la Nación
+- ,Curso de Preparación y Capacitación para Secretarios de Juzgados de Distrito impartido por el IJF,Curso de Preparación y Capacitación para Secretarios de Tribunales Unitarios y Colegiados impartido por el IJF,Seminario El Género en la Impartición de Justicia impartido por el Comité de Equidad de Género del CJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54928/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, y diversos diplomados, seminarios, cursos y foros del Poder Judicial de la Federación
+
+
+## Motivo para buscar el Cargo Publico
+
+Para colaborar como Juez de Distrito en el mejoramiento de la administración e impartición de justicia a nivel federal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe existir una debida administración e impartición de justicia, dirigida tanto a la sociedad en general como a los propios miembros del Poder Judicial de la Federación, para lo cual se requiere contar con Juezas y Jueces de Distrito que asuman verdaderamente su responsabilidad y que se empeñen en lograr el correcto funcionamiento de sus Juzgados, atendiendo debidamente los asuntos que sean sometidos a su consideración y procurando continuamente el buen desarrollo del personal a su cargo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe haber un interés en advertir y corregir la injusticia en los asuntos que son puestos a consideración de las Juezas de Distrito, mediante decisiones que se traduzcan en acuerdos y sentencias que sean más convincentes para la sociedad, así como en una mayor celeridad en la tramitación y conclusión de los juicios, entre otras determinaciones, siempre atendiendo a los derechos humanos, incluyendo la búsqueda de una mayor cercanía y sensibilización hacia las personas involucradas y el personal.
+
+
+## Propuestas
+
+- Motivar al personal en el debido cumplimiento de su trabajo y en la observancia de sus responsabilidades, y reconocer sus méritos, así como evitar el surgimiento de malas prácticas que podrían resultar desfavorables y llevar a su desánimo, como los favoritismos hacia determinadas personas y los tratos inadecuados o indignos hacia otras dentro del Juzgado, al igual que el acoso laboral y el hostigamiento, entre otras, a fin de lograr un mejor desarrollo en el funcionamiento del Juzgado.
+- Fomentar entre las partes y los abogados el uso de los expedientes electrónicos del Sistema Integral de Seguimiento de Expedientes (SISE) para atender sus asuntos, y para la recepción de sus notificaciones, a fin de que haya una mayor celeridad en la tramitación de los juicios, y exhortar a las autoridades para que se notifiquen por el sistema de interconexión y no a través de Correos de México, a fin de que haya más rapidez en la integración de los expedientes y una más pronta resolución.
+- Capacitación continua de la Juez y su personal, para mantener la actualización de sus conocimientos y conocer los asuntos y criterios más relevantes, promoviendo la asistencia a cursos relacionados con su labor, y difundiendo internamente las sentencias emitidas por los Tribunales Colegidos y la Suprema Corte cuando se haya interpuesto algún medio de impugnación, a fin de adecuar el criterio del Juzgado para resolver debidamente asuntos futuros.
+

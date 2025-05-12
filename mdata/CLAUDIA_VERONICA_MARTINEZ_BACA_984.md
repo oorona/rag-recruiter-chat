@@ -1,0 +1,77 @@
+Nombre Candidato: CLAUDIA VERONICA MARTINEZ BACA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: claudiavmbaca@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Capacitación, Curso Escolarizado, Democracia, Derecho, Derecho del Trabajo, Derechos Humanos, Especialidad, Formación., Justicia Laboral, Licenciatura, Maestría, Poder Judicial de la Federación, Secretarios de Tribunal, Trabajo Remoto
+Tags Propósito: Accesibilidad, Derechos fundamentales, Eficiencia, Equidad, Igualdad, Imparcialidad, Justicia, Procesos judiciales, Protección de derechos., Simplificación, Sistema judicial, Tecnologías de la información, Transformación judicial, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+CLAUDIA VERONICA MARTINEZ BACA es candidata a Magistratura de Tribunales Colegiados de Circuito en Hidalgo, postulándose desde el Poder Legislativo Federal. Cuenta con Maestría en Derechos Humanos y Democracia, y ha realizado diversos cursos de especialización en áreas jurídicas, argumentación y tecnologías aplicadas al ámbito judicial.
+
+Su motivación para buscar el cargo es contribuir a un sistema judicial más eficiente en beneficio de la sociedad. Su visión se centra en la transformación del sistema judicial hacia un modelo accesible, eficiente y confiable, con énfasis en la tecnología y el respeto a los derechos fundamentales. Sus propuestas incluyen el uso de tecnologías para agilizar procesos, garantizar la equidad en las decisiones, y asegurar el acceso a la justicia para todos, especialmente los grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FZGs5u1p4/?mibextid=wwXIfr
+- https://x.com/Claudia_VMB
+- https://www.instagram.com/claudia_vmb?igsh=MW44cmcwdTRoeGFuYw3D3D&utm_source=qr
+- https://www.tiktok.com/@claudia.vmb?_t=ZS-8v5vyjwNQvA&_r=1
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica
+- ,Capacitación para Trabajo Remoto en Órganos Jurisdiccionales
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral,Curso Escolarizado de Formación para personas secretarias de Tribunal de Circuito
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54294/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestra en Derechos Humanos y Democracia
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque contribuir a contribuir a construir un sistema más eficiente y eficaz, en beneficio de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi compromiso en la magistratura es contribuir a la transformación del sistema judicial en un modelo accesible, eficiente y confiable. Incentivando el uso de tecnologías de la información que permitan mejorar los procesos judiciales, garantizando que las decisiones sean imparciales, en un respeto irrestricto de los derechos fundamentales de todas las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión para la impartición de justicia es crear un sistema judicial donde cada persona, sin importar su condición social, económica o de cualquier índole, pueda acceder a la justicia en condiciones de igualdad. La justicia debe ser pronta y accesible para todas y todos, contribuyendo a la deconstrucción de las desigualdades., donde sus derechos sean siempre protegidos y que cada resolución se base en los principios de justicia, equidad y transparencia.
+
+
+## Propuestas
+
+- Promover un cambio hacia la eficiencia, utilizando tecnologías de la información y procedimientos simplificados para asegurar que cada caso reciba atención oportuna.
+- Asegurar que la justicia se imparta conforme a la ley , garantizando la equidad en cada decisión y procurando siempre a los grupos más vulnerables.
+- Garantizar que todas las personas, sin importar su edad, género, nacionalidad, religión categoría diferenciada encuentren en el sistema judicial un espacio justo y accesible en que tengan la certeza que se protegen sus derechos fundamentales.
+

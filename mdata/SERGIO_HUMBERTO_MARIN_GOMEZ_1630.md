@@ -1,0 +1,81 @@
+Nombre Candidato: SERGIO HUMBERTO MARIN GOMEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: sergiohumbertomaring@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Control de Convencionalidad, Derecho Administrativo, Derecho Financiero, Derecho Fiscal, Derecho Penal, Derechos Humanos, Doctorado, Especialista., Juicio de Amparo, L.D., Maestría, Suprema Corte de Justicia de la Nación, UNAM
+Tags Propósito: Accesibilidad, Animales, Derechos Humanos, Diversidad, Eficiencia, Estado de Derecho, Expeditez., Grupos LGTBIQ+, Honestidad, Igualdad, Imparcialidad, Inclusión, Integridad, Justicia, Justicia Social, Lectura Fácil, Legalidad, Mujeres, Objetividad, Participación Ciudadana, Profesionalismo, Rendición de cuentas, Traducción, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Sergio Humberto Marin Gomez es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde Sonora al Poder Legislativo Federal. Cuenta con un Doctorado en Derecho y maestría en Derecho Fiscal y Administrativo, complementado por diversos cursos y diplomados en áreas como Derechos Humanos, Juicio de Amparo y Administración Pública.
+
+Su motivación para el cargo público es contribuir a un Estado justo en México. Su visión de la función jurisdiccional se centra en la lealtad a la ciudadanía y la emisión de sentencias justas, objetivas y respetuosas de los derechos humanos.  Propone una justicia pronta, expedita e inclusiva, la emisión de sentencias en formatos accesibles, y la creación de espacios abiertos para la participación ciudadana en el ámbito judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FrmkX2W19/
+- https://x.com/SergioMarinG?t=QOr63CChWQBdZ3cid58ODA&s=09
+- https://www.instagram.com/dr.sergiomarin?igsh=enFxbDVlZm9hdXVx
+- https://www.tiktok.com/@dr.sergio.marin?_t=ZM-8v6VGshWyVZ&_r=1
+
+
+## Cursos
+
+- Especialista en Derecho Penal y Adminstrativo del Capítulo Sonora ILBPA, International Legal Bar   Professionals A
+- ,Especialista en Derecho Financiero, Facultad de Derecho, UNAM
+- ,Diplomado: Derechos Humanos y Control de Convencionalidad, Suprema Corte de Justicia de la Nación,Diplomado: Juicio de Amparo, Suprema Corte de Justicia de la Nación,Curso: La Administración Pública del Estado Mexicano, Instituto Nacional de Administración Pública
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54016/10
+
+
+## Trayectoria Academica
+
+- L
+- D
+- (mención honorifica) UNAM, Mtro
+- en Derecho Fiscal y Administrativo, Dr
+- en Derecho y maestrante en Admón
+- Publica
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero hacer de nuestro país un Estado justo, aportando mis capacidades, experiencia, valores y amor por México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe ser leal, en cuanto que la ciudadanía confía en los juzgadores y tribunales, dictando sentencias justas, considerando las particularidades de cada asunto, trabajando bajo los principios de disciplina, legalidad, objetividad, profesionalismo, honradez, imparcialidad, integridad, rendición de cuentas a la ciudadanía y justiciables, eficiencia, y eficacia; un tribunal debe de estar al servicio de la justicia y no de intereses de unos cuantos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Un juzgador debe de resolver conforme a derecho, pero aún más buscando la justicia, en cada caso concreto, debe prevalecer la impartición de justicia más aún que simplemente aplicar la ley, las sentencias deben ser justas, resolviendo conforme los elementos propios de cada asunto, ya que se resuelven cuestiones que impactan aspectos como el patrimonio, y la libertad de las personas por lo que debe resolverse de manera minuciosa y respetando los derechos humanos.
+
+
+## Propuestas
+
+- La justicia debe ser pronta, expedita, e inclusiva, por lo que cada asunto deberá de resolverse en los tiempos previstos en la ley, salvaguardando en todo momento los derechos humanos y prerrogativas de todas las personas, sin ningún tipo de distinción en capacidades, religión, raza o ideas, especialmente de los grupos vulnerables, protección de los derechos de las mujeres, atención a los grupos de la comunidad LGTBIQ+, así como de los derechos de los animales y todos los seres vivos.
+- Emisión de sentencias en formato de lectura fácil, contando con apoyo de traducción en los casos de grupos vulnerables, menores, y grupos indígenas, así como en todos los demás casos que, por su naturaleza así lo requieran y soliciten.
+- Se promoverá un sistema de justicia social y de puertas abiertas, en la que se abrirá a la semana espacios, para que la ciudadanía que así lo desee pueda ser escuchada y manifiesten sus situaciones e inquietudes respecto de los asuntos que se tramiten en el tribunal.
+

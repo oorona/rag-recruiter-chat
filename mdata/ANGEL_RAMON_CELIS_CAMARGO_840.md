@@ -1,0 +1,84 @@
+Nombre Candidato: ANGEL RAMON CELIS CAMARGO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5551816543
+Correo Electronico: angelc_161@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de Justicia, Amparo, Derecho Constitucional, Educación Superior, Formación Continua., Perspectiva de Género, SCJN, Transparencia Judicial, Técnica Legislativa, UCLM, UNAM, Universidad de Guanajuato
+Tags Propósito: Acceso a la Justicia, Administración de Justicia, Confianza, Control Público, Corrupción, Derechos Humanos, Eficacia, Estado de Derecho, Evaluación Judicial, Grupos Vulnerables, Honestidad, Igualdad, Imparcialidad, Impartición de Justicia, Integridad, Interés Público, Justicia, Justicia Abierta, Justicia Accesible., Objetividad, Responsabilidad, Sociedad, Transparencia, Tutela Judicial
+
+
+## Descripción del Candidato 
+
+Ángel Ramón Celis Camargo es candidato a Magistratura de Tribunales Colegiados de Circuito para el Poder Legislativo Federal en Ciudad de México. Cuenta con Maestría y especialidad en Derecho Constitucional por la UNAM, complementada con diversos cursos en técnica legislativa, perspectiva de género y transparencia judicial. 
+
+Su motivación para el cargo es transformar y fortalecer el sistema de impartición de justicia, enfocándose en un modelo humanista, transparente y accesible.  Sus propuestas centrales incluyen perfeccionar la administración de justicia como un servicio público eficiente, garantizar el acceso a la justicia para grupos vulnerables e implementar mecanismos para fortalecer la transparencia y el control público de la actuación judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/profile.php?id=61574164816059
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100000913558004
+- https://x.com/Angg316
+- https://www.instagram.com/angg_316/
+- https://www.youtube.com/@angeloc9889
+- https://www.tiktok.com/@angel.3.1.6
+- https://www.facebook.com/profile.php?id=61574164816059
+
+
+## Cursos
+
+- Especialidad en Técnica Legislativa (Título de especialista) 10 de octubre de 2022 Universidad Castilla La Mancha,Curso Juzgar con perspectiva de género, ¿Cómo implementarla en el entorno universitario? 2021 Universidad de Guanajuato,Curso Los Efectos de las Sentencias de Amparo en los Actos Administrativos
+- 2022
+- Universidad de Guanajuato,Curso 1ª Clínica Procesal: La Administración de Justicia con Perspectiva de Género en el Entorno Universitario
+- U
+- G
+- 2022,Asistencia al Congreso de Transparencia Judicial
+- Justicia Abierta y Acceso a la Información Jurisdiccional
+- 2024
+- SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52698/10
+
+
+## Trayectoria Academica
+
+- Licenciatura y especialidad en Derecho Constitucional por la Facultad de Derecho de la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo las cualidades para transformar y fortalecer el Sistema de Impartición de Justicia y corregir desviaciones.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser realizada por las personas juzgadoras con humanismo, se debe incrementar la confianza de las personas en el Sistema de Administración de Justicia, eliminar la menor duda de que las resoluciones no estarán envueltas en vicios de corrupción, se debe fomentar el control de la función jurisdiccional a través de la opinión pública, permitir no sólo la comprensión de las resoluciones, sino también la evaluación de la actuación jurisdiccional. (Justicia Abierta).
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la impartición de justicia, las personas juzgadoras deben tener en el centro de sus decisiones a las personas, a la sociedad y al interés público. Asimismo, la persona juzgadora debe regir su actuar en la impartición de justicia por los siguientes principios y valores: justicia; objetividad; imparcialidad, que se entrelaza con los valores de honestidad, rectitud, integridad, moralidad y honradez; independencia, y profesionalismo o excelencia; cualidades que tengo acreditadas.
+
+
+## Propuestas
+
+- Perfeccionar la administración de justicia, orientándola como un servicio público, actual, ágil, eficaz y confiable que garantice el acceso a la justicia y la tutela judicial efectiva, satisfaciendo las expectativas actuales de la sociedad.
+- Justicia Accesible. Implementar mecanismos de accesibilidad para permitir a las personas integrantes de grupos vulnerables el acceso a la justicia en igualdad de condiciones. Estos grupos se integran por niñas, niños y adolescentes; mujeres y niñas; personas con discapacidad; migrantes y refugiados; personas de la comunidad LGTTTBIQ+; y personas pertenecientes a comunidades indígenas o pueblos originarios.
+- Justicia Abierta. Fortalecer el acceso a la información judicial no sólo para garantizar la comprensión de las sentencias, sino también y más importante, la evaluación de la actuación judicial. Con ello se pretende suprimir cualquier duda acerca de que mis resoluciones no estarán envueltas en vicios de corrupción y se ajustarán a la Constitución y la ley, tal como se está obligado en un Estado Constitucional de Derecho. A mayor información, mayor control, lo que promueve las responsabilidades.
+

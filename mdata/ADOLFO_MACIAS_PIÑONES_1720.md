@@ -1,0 +1,74 @@
+Nombre Candidato: ADOLFO MACIAS PIÑONES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: adolfomaciaspinones@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho Político, Derecho del Trabajo, Especialista, Formación Judicial, Género, Igualdad, Licenciatura en Derecho, Maestría en Derecho, Seguridad Social, Sistema Penal Acusatorio, Tribunal de Circuito.
+Tags Propósito: Acceso a la Justicia, Amparos Laborales, Amparos Penales., Cercanía Ciudadana, Democratización, Derechos Humanos, Formación Judicial, Honestidad, Imparcialidad, Independencia, Justicia, Magistrado Laboral, Magistrado Penal, Objetividad, Patriotismo, Paz Social, Profesionalismo, Pronta Solución, Sentencia Única, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Adolfo Macías Piñones es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal para el estado de Tamaulipas. Cuenta con estudios de Maestría en Derecho con énfasis en Derecho Constitucional y especialización en Derecho del Trabajo, respaldados por su cédula profesional. Su trayectoria académica y profesional se complementa con diversos diplomados en áreas como seguridad social, derecho político, derechos humanos y el sistema penal acusatorio.
+
+Macías Piñones busca el cargo con el objetivo de mejorar el sistema de justicia y contribuir a la paz social, enfocándose en áreas penal y laboral. Su visión para la función jurisdiccional y la impartición de justicia se centra en acercar el Poder Judicial a la ciudadanía, priorizando la transparencia, el respeto a los derechos humanos y la pronta resolución de conflictos, especialmente aquellos que afectan a personas en situación de vulnerabilidad. Sus propuestas incluyen el uso de la Escuela Nacional de Formación Judicial para fortalecer los derechos humanos, democratizar el acceso a la justicia y agilizar la resolución de amparos en materia laboral y penal.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ETkUhrouk/?mibextid=wwXIfr
+- https://www.instagram.com/adolfomacpi/?igsh=MWdoY2tjZG55bXRrdA3D3D&utm_source=qr#
+- https://www.tiktok.com/@adolfo.macias.pio?_t=ZM-8v66jjpkebF&_r=1
+
+
+## Cursos
+
+- Diplomado en Seguridad Social   Escuela Federal de Formación Judicial
+- ,Diplomado en Derecho Político   Instituto de Estudios Superiores de Tamaulipas,Género como herramienta para la igualdad   Escuela Federal de Formación Judicial,Sistema Penal Acusatorio: Situación actual   Escuela Federal de Formación Judicial,Curso de formación para Personas Secretarias de Tribunal de Circuito   Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53720/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Maestro en Derecho con énfasis en Derecho Constitucional, Especialista en Derecho del Trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado Penal y de Trabajo para mejorar el sistema de justicia, contribuyendo a la paz social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Formar parte del Poder Judicial de la Federación, exige contraer la obligación de regir tu actuar bajo los más altos principios: profesionalismo, honestidad, imparcialidad, objetividad, independencia y patriotismo; pero también, el deber de ser cercano a la gente. La labor jurisdiccional no debe concentrarse únicamente en las oficinas de gobierno, sino también en las colonias y calles de nuestras ciudades, para entender mejor los conflictos y sus consecuencias en la vida de la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es necesario transformar al Poder Judicial en una institución cercana a la ciudadanía. Que las decisiones judiciales sean transparentes y el acceso a la justicia sea para todos y no sólo para aquellos que poseen los recursos y medios para ello. Quiero ser Magistrado en materias penal y de trabajo, pues en estas áreas, frecuentemente se cometen arbitrariedades e injusticias en contra de personas en estado de vulnerabilidad o desventaja, quienes necesitan un Poder Judicial que los proteja.
+
+
+## Propuestas
+
+- Utilizar la nueva Escuela Nacional de Formación Judicial como mecanismo para fomentar el respeto a los Derechos Humanos por parte de las autoridades de los distintos órdenes de gobierno y mejorar la capacitación de quienes intervienen en los procedimientos penales y laborales, contribuyendo así, a una pronta y completa solución a los conflictos.
+- Democratizar el Poder Judicial; hacerlo más cercano a la gente. Abrir las puertas a los usuarios para que conozcan con absoluta transparencia los procesos involucrados en la resolución de sus conflictos.
+- Estudiar y resolver los amparos en materia laboral y penal priorizando la pronta y completa solución de las controversias en una sola sentencia.
+

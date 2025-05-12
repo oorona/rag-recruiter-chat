@@ -1,0 +1,78 @@
+Nombre Candidato: ROBERTO MEIXUEIRO HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 9512392686
+Correo Electronico: robertomeixueirohdz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Fiscal, Doctorado en Derecho, Formación Judicial, Historia., Inglés Legal, Justicia Penal, Razonamiento Probatorio, Reforma Justicia Civil
+Tags Propósito: Acceso a la justicia, Defensoría pública, Democracia, Derechos fundamentales, Equidad, Estabilidad social, Estado de derecho, Imparcialidad, Justicia, Lenguaje claro, Mecanismos alternativos de solución de controversias, Resolución de conflictos, Sentencias de lectura fácil, Servicio público., Transparencia, Ética judicial
+
+
+## Descripción del Candidato 
+
+ROBERTO MEIXUEIRO HERNANDEZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulando para funciones en el Poder Judicial. Cuenta con estudios de Doctorado en Derecho, además de una Licenciatura en Historia, y una trayectoria académica y profesional enfocada en el ámbito legal, con especialización en justicia penal, razonamiento probatorio y derechos humanos.
+
+Su motivación para el cargo público se centra en servir al país con imparcialidad, justicia y sensibilidad social. Su visión de la función jurisdiccional enfatiza la autonomía, la técnica jurídica, el respeto a los derechos fundamentales y la búsqueda de estabilidad social. Sus principales propuestas incluyen fortalecer las defensorías públicas, promover el uso de mecanismos alternativos de solución de controversias, y acercar la justicia a la ciudadanía a través de un lenguaje claro y accesible en las sentencias.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15HCSc4qeY/
+- https://x.com/RMeixueiro99790?t=FVuhJQ-pesixMME3p-aUiw&s=08
+- https://www.instagram.com/roberto_meixueiro?igsh=MTcyZDRjaDUzdGtvNA==
+
+
+## Cursos
+
+- Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional
+- ,Curso de especialización en Bases del Razonamiento Probatorio, por la Universidad de Girona
+- ,Curso para Generar Espacios Libres de Violencia I, impartido por la Escuela Federal de Formación Judicial
+- ,Programa Reforma a la Justicia Civil en las Américas; del Centro de Estudios de Justicia de las Américas OEA
+- ,Diplomado en Inglés Legal Básico, URSE ONU OAXACA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54581/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Derecho Fiscal, Doctor en Derecho, Licenciatura en Historia
+- , etc
+
+
+## Motivo para buscar el Cargo Publico
+
+Seguir trabajando con imparcialidad, justicia, sensibilidad hacia las realidades y compromiso de servir a mi país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se ejerce con plena autonomía e imparcialidad, exige un dominio técnico del ordenamiento jurídico, también una profunda sensibilidad hacia los derechos fundamentales y la equidad. En mi trayectoria, he comprobado que, a través de un análisis reflexivo y responsable, la judicatura no solo resuelve litigios, sino que también garantiza la estabilidad social y promueve el respeto al marco constitucional, siendo esencial para la consolidación del Estado de derecho y la democracia del país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi compromiso con la ética judicial y mi profundo respeto por la ley son los pilares sobre los que se cimienta mi trabajo. Al resolver casos, he buscado la solución más justa, siempre tomando en cuenta el contexto social y las implicaciones que sus resoluciones pueden tener para la vida de los ciudadanos. La justicia debe ser flexible para adaptarse a las nuevas circunstancias, pero siempre debe mantener la protección de los derechos de todas las personas.
+
+
+## Propuestas
+
+- Ampliar los recursos y capacidades de las defensorías públicas y construir un verdadero servicio de carrera en el ámbito local, se debe precisar que, la Defensoría se encuentra regulada constitucionalmente dentro del derecho de acceso a la justicia; por lo que una de sus vertientes constituye la protección y potencialización de dicho derecho. La evidencia empírica muestra que las defensorías públicas se encuentran saturadas actualmente y no cuentan con las condiciones necesarias para el trabajo.
+- Realzar las ventajas del uso de los mecanismos alternativos de solución de controversias, por lo que es necesario reiterar que la ciudadanía no ha acudido lo suficiente a éstos, para resolver sus problemas de índole legal, una de las principales propuestas para atender la presente temática es de índole operativa al momento de realizar mejores campañas de difusión y su promoción, no solo entre el gremio jurídico sino también haciendo partícipe a la ciudadanía en general.
+- Acercar la justicia a la gente, de tal forma que sea entendible para la ciudadanía, para entender las decisiones judiciales, es importante hacer el derecho disponible para todas las personas, mediante un lenguaje sencillo y claro, lo que resulta trascendental en la búsqueda de la verdad y acceso a la justicia. Es preciso que se redacten sentencias breves, claras y bien argumentadas. También es necesario el mayor y más frecuente uso de sentencias de lectura fácil.
+

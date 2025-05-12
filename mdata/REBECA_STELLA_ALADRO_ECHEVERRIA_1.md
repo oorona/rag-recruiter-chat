@@ -1,0 +1,79 @@
+Nombre Candidato: REBECA STELLA ALADRO ECHEVERRIA
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 7716062993
+Correo Electronico: aladrorebeca@gmail.com
+Numero de lista en boleta: 2
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acoso sexual, Administración Pública Federal, Administración de Justicia, CDN, CEDAW, Derecho, Derechos Políticos de las Mujeres, Hostigamiento sexual, Legislación Electoral, Medios Alternos de Solución de Conflictos, Tribunales de Justicia.
+Tags Propósito: acceso a la justicia, atención a víctimas, capacitación judicial, confianza ciudadana, derechos humanos, eficiencia judicial, equidad, equipos multidisciplinarios, grupos vulnerables, inclusión, inteligencia digital, juicio de amparo, justicia humana, justicia ágil., lenguaje ciudadano, oralidad, paz social, procedimientos judiciales, tecnología judicial, transformación social, transparencia
+
+
+## Descripción del Candidato 
+
+REBECA STELLA ALADRO ECHEVERRIA es candidata a Ministra/o de la Suprema Corte de Justicia de la Nación, postulada por el Poder Ejecutivo Federal y aparece en el número 2 en la boleta.  Cuenta con maestría en Administración de Justicia y en Medios Alternos de Solución de Conflictos, además de una trayectoria académica complementada por cursos en áreas como hostigamiento sexual, derechos políticos de las mujeres y control administrativo. 
+
+Su motivación para buscar el cargo se centra en fortalecer una justicia más humana, accesible y cercana a las necesidades sociales.  Propone una gestión con puertas abiertas, enfocada en el análisis de las problemáticas ciudadanas, capacitación continua de los funcionarios judiciales en temas de inteligencia digital, lenguaje ciudadano y atención a grupos vulnerables, así como agilizar los procedimientos del juicio de amparo para mejorar la eficiencia y la confianza en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/rebecaaladroecheverria
+- https://x.com/rebeca_aladroe?s=11&t=8-2dD1Fact1C7VopUDnY1g
+- https://www.instagram.com/rebecaaladroecheverria/
+- https://www.youtube.com/@RebecaAladroE
+- https://www.tiktok.com/@rebecaaladro
+
+
+## Cursos
+
+- Curso en línea: Atención a casos de hostigamiento y acoso sexual en la Administración Pública Federal (INMUJERES, 2024),Seminario Internacional: Los Derechos Políticos de las Mujeres en América
+- (Senado de la República, 2003),Curso: Control de la Administración por los Tribunales de Justicia
+- (Escuela Judicial del CGPJ, Barcelona, España, 2001),Coloquio Nacional sobre la Aplicación de la CEDAW y la CDN
+- (SRE y CNDH, 1999),Seminarios: La Nueva Legislación Electoral del Estado de Hidalgo
+- (Instituto Estatal Electoral de Hidalgo, 1998)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/3/6
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho con maestría en Administración de Justicia y en Medios Alternos de Solución de Conflictos
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco impulsar y fortalecer una justicia más humana, accesible y cercana a las necesidades sociales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es una tarea dinámica y flexible que va más allá de emitir sentencias. Debe ser imparcial, transparente, accesible y eficiente, equilibrando la ley con la protección de los derechos humanos. Para ello resulta clave que los operadores jurídicos cuenten con el conocimiento y las habilidades para ser auténticos agentes de cambio que busquen agilizar procesos mediante el uso de la tecnología y la oralidad, evitando el uso del juicio de amparo solo para dilatar la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser visible a través de decisiones judiciales debidamente motivadas, claras y fundamentadas, cuyo resultado final sea el aumento de la confianza y seguridad de los ciudadanos en el sistema de justicia. No solo debe castigar, sino transformar, ser inclusiva, enfocada en la paz y la integración de toda la sociedad. Trabajaremos para que se convierta en realidad que todo aquel que sufra una violación a sus derechos humanos, reciba una atención oportuna y eficaz.
+
+
+## Propuestas
+
+- Promoveré una dinámica de puertas abiertas, al integrar un equipo multidisciplinario altamente capacitado, encargado de escuchar y analizar las necesidades y problemáticas de la ciudadanía. Nuestro equipo contará con los conocimientos, habilidades y aptitudes necesarias para identificar con precisión el área correspondiente para su canalización y de esta manera, poder brindarles una atención rápida y acorde a cada situación, garantizando así un acceso ágil, efectivo y con sentido humano.
+- La capacitación continua deber ser un pilar fundamental en la formación de los funcionarios judiciales, por lo que participaré, junto con mi equipo de trabajo en programas sobre inteligencia digital y cursos integrales que aborden temas claves como lenguaje ciudadano y atención a grupos vulnerables, que nos permita estar preparados para emitir decisiones judiciales no solo técnicamente correctas, sino también justas, inclusivas y sensibles a la realidad social.
+- Para fortalecer la confianza pública en el sistema judicial y asegurar un ejercicio justo y equitativo de la función jurisdiccional, promoveré el estudio y análisis de los procedimientos en el juicio de amparo, en el que buscaré que dichos juicios sean ágiles, cercanos a las y los justiciables, que se promuevan sin formalidades especiales, buscando la oralidad y evitando que sean utilizados para un eminente retardo de la justicia.
+

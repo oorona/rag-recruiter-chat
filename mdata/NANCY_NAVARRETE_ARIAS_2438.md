@@ -1,0 +1,79 @@
+Nombre Candidato: NANCY NAVARRETE ARIAS
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: nancynavarretelaboral@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Laboral, Derecho Penal, Derecho de Amparo, Especialista, Formación Judicial, Formación continua., Justicia, Maestría, Poder Judicial de la Federación, Procesal Penal, Secretarios de Tribunal, Trayectoria PJF
+Tags Propósito: accesibilidad, acceso digital, acoso, derechos laborales, discriminación, diálogo, equidad, expediente digital, firmeza, humanidad, imparcialidad, incorruptible., justicia laboral, justicia rápida, lenguaje accesible, mediación, productividad, rapidez, solución de conflictos, transformación, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+NANCY NAVARRETE ARIAS es candidata a Jueza/es de Distrito por el Poder Ejecutivo Federal en Guanajuato. Cuenta con maestría y 24 años de experiencia en el Poder Judicial de la Federación, complementados por diversos cursos de especialización en derecho laboral, penal y de amparo.
+
+Su candidatura se basa en la necesidad de un cambio en la justicia laboral, buscando un sistema imparcial, humano y firme. Propone una justicia laboral rápida, equitativa y accesible, enfocándose en la solución alternativa de conflictos a través del diálogo y la implementación de herramientas digitales para aumentar la transparencia y facilitar el acceso a la justicia para todos. Su visión incluye promover juicios imparciales, rápidos y justos, y defender un trabajo digno con cero tolerancia al acoso y la discriminación.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/163EGcJkjy/
+- https://www.instagram.com/nancynavarretejuez?igsh=Zm13ZDVta3NqMDF1
+- https://www.tiktok.com/@nancy.navarrete.a4?_t=ZM-8uY3sWT8YPH&_r=1
+
+
+## Cursos
+
+- Curso de Profesionalización en Justicia y Derecho Laboral 1a Edición
+- Escuela Federal de Formación Judicial
+- ,Curso de Formación para personas Secretarias de Tribunal de Circuito concurso escolarizado edición 2022
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación 2020
+- Especialidad
+- ,Diplomado en Derecho de Amparo
+- ,Diplomado en Derecho Penal y Procesal Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54589/11
+
+
+## Trayectoria Academica
+
+- Especialista en derecho con mención honorífica y maestría, formación en justicia y derecho laboral y 24 años en el PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy el cambio que la justicia laboral necesita: imparcial, humana y firme. La gente merece jueces justos y con corazón.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es una justicia laboral moderna, equitativa y accesible, donde los juicios sean ágiles y justos, sin demoras innecesarias. Promuevo la solución de conflictos a través del diálogo, evitando litigios prolongados. La transparencia y accesibilidad garantizarán que todos comprendan sus derechos. Defenderé un trabajo digno, sin afectar la productividad, con cero tolerancia al acoso y la discriminación, construyendo así un sistema laboral más justo para todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como futura Jueza Laboral, mi visión es transformar un sistema donde los trabajadores han sido vulnerables y la justicia favoreció a unos pocos. Romperé con los privilegios, garantizando juicios imparciales, rápidos y justos. De llegar, seré una jueza diferente: cercana a la gente, incorruptible y firme. Impulsaré transparencia, mediación efectiva y acceso digital, asegurando que el derecho laboral no sea solo para unos, sino una realidad para todos. ¡El cambio en la justicia comienza ahora!
+
+
+## Propuestas
+
+- 1. Justicia Laboral Rápida y Equitativa. Los juicios laborales no deben prolongarse por años. Es esencial garantizar tiempos razonables para que tanto trabajadores como empleadores obtengan justicia sin demoras. Además, las resoluciones deben ser imparciales, sin ventajas indebidas para ninguna de las partes. Un sistema judicial eficiente y justo fortalece la confianza en la ley y permite que los conflictos laborales se resuelvan de manera efectiva, protegiendo los derechos de todos.
+- 2. Diálogo y Solución Alternativa de Conflictos. Antes de llegar a un juicio, es fundamental promover la mediación como una vía rápida y efectiva para resolver conflictos laborales. Espacios de diálogo equitativos permiten que trabajadores y empleadores encuentren soluciones sin recurrir a largos litigios. Esto no solo ahorra tiempo y dinero para ambos, sino que fomenta relaciones laborales más armoniosas y sustentables, fortaleciendo la productividad sin afectar los derechos laborales.
+- 3.Transparencia y Accesibilidad. El acceso a la justicia debe ser claro y comprensible para todos. Es clave que los juicios laborales utilicen un lenguaje accesible para que las personas conozcan sus derechos y obligaciones sin complicaciones. Además, un expediente digital laboral actualizado permitirá dar seguimiento en línea a los casos, reduciendo la burocracia y evitando demoras innecesarias. Con estas herramientas, se garantiza un sistema más eficiente, accesible y confiable para todos.
+

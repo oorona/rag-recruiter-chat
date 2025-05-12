@@ -1,0 +1,74 @@
+Nombre Candidato: NICOLLINO GIUSEPPE MARIANO CANGIAMILLA ENRIQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: nce.tumagistrado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CNDH, Derecho, Derecho Procesal Penal, Derechos Humanos, Formación, INACIPE, INDEPAC., Igualdad de Género, Instituto Nacional de las Mujeres, Liderazgo Ejecutivo, Reclusión Penitenciaria, Sam Houston State University
+Tags Propósito: accesibilidad, argumentación jurídica, comunidades vulnerables, confianza institucional, derechos, dignidad humana, equilibrio democrático, evaluación cualitativa, impacto social, justicia, lenguaje ciudadano, paz, resolución de conflictos, responsabilidad ética, sentencias., transparencia
+
+
+## Descripción del Candidato 
+
+NICÓLLINO GIUSEPPE MARIANO CANGIAMILLA ENRIQUEZ es candidato al Poder Legislativo Federal, con trayectoria como Magistrado de Tribunales Colegiados de Circuito en Sonora. Cuenta con estudios de Maestría en Derecho Procesal Penal y una licenciatura en Derecho por la Universidad de Sonora. Su motivación para buscar el cargo público es dignificar el derecho y proteger a las personas con justicia y responsabilidad.
+
+Su visión de la función jurisdiccional se centra en un modelo accesible, imparcial y transparente, fundamentado en el derecho y considerando la realidad social. Sus propuestas incluyen fortalecer la argumentación jurídica con perspectiva humana, evaluar el impacto social de las sentencias y acercar la justicia a comunidades vulnerables a través de jornadas itinerantes.  Se puede encontrar información adicional en su currículum vitae disponible en el enlace proporcionado y en sus perfiles de redes sociales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/NicollinoC
+- https://x.com/NicollinoC
+- https://www.instagram.com/nicollinoc/
+- https://www.tiktok.com/@nicollino.cangiamilla
+
+
+## Cursos
+
+- Curso de formación sobre reglas de Nelson Mandela (INACIPE),Curso Derechos Humanos de las personas en reclusión penitenciaria (CNDH),Curso Inducción a la igualdad entre mujeres y hombres (INSTITUTO NACIONAL DE LAS MUJERES),EXECUTIVE LEADERSHIP FORUM (Correctional Management Institute   Sam Houston State University)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52570/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad de Sonora y Maestro en Derecho Procesal Penal por INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a ser magistrado para dignificar el derecho y proteger a las personas con justicia y responsabilidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como un ejercicio de responsabilidad ética, técnica y humana. Mi visión es consolidar un modelo de justicia accesible, imparcial y transparente, donde las decisiones se fundamenten en el derecho, pero también consideren la realidad social de las personas. El magistrado debe ser promotor de confianza institucional y factor de equilibrio democrático.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es que cada decisión judicial no solo resuelva un conflicto, sino que genere confianza, dignifique a quien acude al tribunal y contribuya a la construcción de paz. La justicia debe ser comprensible, cercana y respetuosa de la dignidad humana.
+
+
+## Propuestas
+
+- Fortalecer la argumentación jurídica con perspectiva humana: Impulsar resoluciones más claras, comprensibles y con lenguaje ciudadano, que armonicen el rigor técnico con la sensibilidad social, para acercar la justicia a las personas.
+- Evaluación cualitativa del impacto de las sentencias: Diseñar mecanismos que permitan valorar no solo la legalidad, sino los efectos sociales, económicos y humanos de las decisiones jurisdiccionales.
+- Crear jornadas itinerantes de justicia jurisdiccional en comunidades vulnerables: Acercar el quehacer judicial mediante foros públicos donde se expliquen los derechos, el acceso a la justicia y el sentido de las decisiones judiciales.
+

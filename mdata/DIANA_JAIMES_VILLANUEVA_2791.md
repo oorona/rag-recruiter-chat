@@ -1,0 +1,82 @@
+Nombre Candidato: DIANA JAIMES VILLANUEVA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: jaimesdiana644@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación judicial, Derecho, Doctorado, Juicio de Amparo, Justicia Laboral, Licenciatura, Maestría, Morelos, Poder Judicial de la Federación, Prevención del acoso., Reforma laboral, Seguridad Social
+Tags Propósito: Justicia, acceso a la justicia, burocracia, calidad de vida, derechos humanos, diálogo social, economía mexicana, eficiencia, empleadores, empleo, equidad, igualdad, justicia laboral, legalidad, participación ciudadana, protección de derechos, servicio público, sistema de justicia laboral, trabajadores., transparencia
+
+
+## Descripción del Candidato 
+
+Diana Jaimes Villanueva es candidata a Jueza/es de Distrito en Morelos, postulándose para el Poder Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con Maestría en Derecho Laboral, actualmente es Doctorante en Derecho y posee formación continua en temas de justicia laboral, administración y derechos humanos, evidenciado a través de diversos cursos y diplomados.
+
+Su motivación para el cargo público se centra en aplicar su experiencia en la carrera judicial para solucionar controversias y servir a la ciudadanía. Su visión de la función jurisdiccional se enfoca en la construcción de paz social y la protección de los derechos humanos, especialmente en el ámbito laboral, impactando positivamente en la economía y el empleo. Sus propuestas incluyen la capacitación en servicio público para agilizar procesos, la creación de “juzgados de puertas abiertas” para incorporar la voz de la ciudadanía y la aplicación de soluciones legales que protejan los derechos de trabajadores y empleadores.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/diana.jaimes.773776
+- https://x.com/DianaJa82825723?s=08
+- https://www.instagram.com/Diana20Jaimes20Villanueva/
+- https://www.tiktok.com/@diana.jaimes47
+
+
+## Cursos
+
+- Curso Inducción Administrativa para Jueces y Juezas de reciente adscripción en el Poder Judicial de la Federación
+- ,Curso de Actualización sobre la Reforma en Materia de Justicia Laboral
+- ,Seminario de Seguridad Social
+- ,Diplomado: El Nuevo Juicio de Amparo en el Sistema Jurídico Mexicano
+- ,Curso para Generar Espacios Libres de  VII
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54022/11
+
+
+## Trayectoria Academica
+
+- Doctorante en Derecho
+- Maestría en Derecho Laboral
+- Licenciatura Universidad Privada del Estado de Morelos
+
+
+## Motivo para buscar el Cargo Publico
+
+Vocación de servir a la gente. Deseo que mi experiencia en la carrera judicial sirva a la solución de controversias.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una persona juzgadora debe ser constructora de paz social, porque a través de sus sentencias hace prevalecer el orden ciudadano; protege y garantiza los derechos humanos de las personas, sanciona a quien no le asiste la razón y ejecuta la solución impuesta. Una jueza laboral decide todos los días sobre los derechos laborales y las condiciones de trabajo, nuestras decisiones fortalecen la economía mexicana e impactan en la generación de empleos y la calidad de vida de los trabajadores.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser rápida, sin trámites innecesarios, accesible para todas y todos en condiciones de equidad e igualdad, ajustada a la ley, y no arbitraria. No hay justicia si intervienen intereses ajenos a la verdad que buscan manipular la decisión de las y los jueces.
+
+
+## Propuestas
+
+- Capacitar a todos los operadores jurídicos en temas de servicio eficiente al público. El objetivo con esto sería lograr agilizar los procesos desde el momento en que la ciudadanía se acerca a un juzgado para minimizar la burocracia y que ésta no se convierta en un obstáculo para la gente.
+- Juzgado de puertas abiertas donde se escuche a todos. Con esta propuesta se busca incorporar espacios de trabajo conjunto con la ciudadanía, con personas trabajadoras y empleadoras para incorporar sus preocupaciones e intereses a la bolsa de mejoras que las y los jueces podemos implementar.
+- Soluciones apegadas a la ley, bajo los principios rectores del sistema de justicia laboral, para garantizar la protección de los derechos de trabajadores y empleadores.
+

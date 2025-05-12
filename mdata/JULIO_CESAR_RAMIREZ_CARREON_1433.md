@@ -1,0 +1,74 @@
+Nombre Candidato: JULIO CESAR RAMIREZ CARREON
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 5513197680
+Correo Electronico: julio_crc74@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CDMX, Derecho, Derecho Constitucional, Derecho Penal, Doctorado, Escuela Judicial, Igualdad, Instituto de la Judicatura Federal, Licenciatura., Maestría, No Discriminación, SCJN, Sistema Penal Acusatorio, Tec de Monterrey, UNAM, Universidad Panamericana, Universidad del Valle de Toluca
+Tags Propósito: Acceso a la justicia, Asistencia especializada, Atención personalizada, Bienestar emocional, Derechos humanos, Diversidad, Experiencia, Honestidad, Humildad, Igualdad, Imparcialidad, Innovación jurisdiccional, Justicia, Lenguaje accesible, Necesidades sociales, Profesionalismo, Psicología jurídica, Resolución de conflictos, Sensibilidad., Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Julio Cesar Ramirez Carreón es candidato a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y un amplio currículum académico que incluye especializaciones en Derecho Penal y Constitucional por instituciones como el Tec de Monterrey y la Universidad del Valle de Toluca. Su motivación para buscar el cargo público es impartir justicia con vocación de servicio, honestidad, diligencia, independencia, imparcialidad e igualdad.
+
+Su visión de la función jurisdiccional se centra en la necesidad de juzgadores preparados para adaptarse a los cambios legales y las demandas sociales. Sus propuestas incluyen garantizar la igualdad de trato a las partes, brindar orientación accesible y personalizada en los procedimientos, y establecer un área de apoyo emocional y psicológico para los involucrados en los casos. Su perfil profesional detallado está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/julio.c.ramirez.carreon?igsh=a2p5bDQ1MW0yNDRw&utm_source=qr
+
+
+## Cursos
+
+- Maestría en Derecho por la Universidad del Valle de Toluca,Maestro en Derecho Penal, con especialidad en el Sistema Penal Acusatorio por el Tec de Monterrey, CDMX,Maestro en Derecho Constitucional por la Universidad Panamericana,Curso de especialización judicial impartido por el Instituto de la Judicatura Federal (hoy Escuela Judicial),Curso de alta especialización en igualdad y no discriminación para personal jurisdiccional de la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55138/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UNAM, Mtro
+- en Derecho Penal por el Tec de Monterrey y Mtro
+- en Derecho Constitucional por la UP
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con vocación de servicio, honestidad, diligencia, independencia, imparcialidad e igualdad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El México de hoy requiere de juzgadores más y mejor preparados, con una sobresaliente capacidad de aprendizaje para entender y aplicar los cambios en las leyes, y de manera muy importante para ajustar su actividad a las exigencias de la impartición de justicia que surgen ante las crecientes y constantes necesidades sociales. Por tanto, es necesario innovar en la función jurisdiccional para encontrar mejores y más efectivas formas de aplicar el derecho en beneficio del pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe impartirse con honradez, humildad, sensibilidad, profesionalismo, experiencia, así como ser accesible al reclamo social y atender en todo momento a la realidad y necesidades que se presenten, visibilizando a los grupos vulnerables como las mujeres, las infancias, las comunidades indígenas, de la diversidad sexual, personas con discapacidad y todas aquellas que acudan en defensa de la vulneración a sus derechos humanos y que necesiten ser escuchadas, atendidas y protegidas.
+
+
+## Propuestas
+
+- La igualdad de trato hacia las partes es no sólo una prioridad sino una obligación hacia sociedad que debe maximizarse. Esto se logrará yendo más allá de dar las mismas garantías a las partes, dejando a un lado los prejuicios, partiendo de considerar que merecen la misma atención sin importar sus condiciones ya que en todo momento se trata de personas que atraviesan una situación que impacta directamente en su bienestar, bienes, relaciones familiares y en su propia persona.
+- Lo técnico de la función exige brindar orientación amplia, suficiente y en lenguaje accesible, para que toda persona, sin distinción, comprenda con facilidad los alcances e implicaciones del procedimiento y su resolución. Ello sólo es posible mediante una atención personalizada en la que se garantice un espacio confiable para solventar todas las dudas e inquietudes jurídicas, con sensibilidad hacia la problemática específica que se plantee y procurando en todo momento el respeto a la integridad.
+- Es una realidad que las personas involucradas en los procedimientos pueden estar atravesando, con motivo de la vulneración a los derechos que reclamen, situaciones que requieran de asistencia especializada que va más allá de la propia resolución del conflicto. Ante ello, propongo solicitar e impulsar la creación de un área especializada que brinde atención emocional, psicológica, psiquiátrica, entre otros aspectos, que permita el mayor bienestar posible y minimice o enmiende cualquier afectación
+

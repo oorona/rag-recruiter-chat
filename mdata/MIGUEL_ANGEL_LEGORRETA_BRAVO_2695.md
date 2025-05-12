@@ -1,0 +1,81 @@
+Nombre Candidato: MIGUEL ANGEL LEGORRETA BRAVO
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: legorretabravomiguelangel@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogacía., Certificación, Ciencias Penales, Formación Judicial, Juicio de Amparo, Justicia para adolecentes, Naciones Unidas, Política Criminal, Secretaría de Gobernación, Suprema Corte de Justicia de la Nación
+Tags Propósito: apego a derecho, celeridad, derechos humanos, dominiodel derecho, honestidad, imparcialidad, independencia judicial, juridisprudencia, justicia, justicia rápida, legalidad, procedimientos ágiles, protocolos, resolución jurídica., servicio público, transparencia, voto popular, ética
+
+
+## Descripción del Candidato 
+
+Miguel Ángel Legorreta Bravo es candidato a Juez de Distrito del Poder Judicial de la Federación, con un doctorado concluido y diversas especializaciones en áreas como justicia para adolescentes, política criminal y juicio de amparo, incluyendo formación por la Oficina de las Naciones Unidas contra la Droga y el Delito. Su trayectoria académica se fundamenta en el servicio público.
+
+Legorreta Bravo busca el cargo motivado por un deseo de servicio a la comunidad, destacando en su visión la ética, el apego a derecho y el humanismo en la función jurisdiccional y la impartición de justicia. Sus propuestas se centran en agilizar los procedimientos basándose en su experiencia como Juez de Control, evitar tecnicismos innecesarios en las audiencias y emitir pronunciamientos legales e imparciales, enfatizando que su posible elección se basaría en el apoyo ciudadano y no en influencias externas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/miguelangel.legorretabravo/
+- https://www.youtube.com/@miguelangellegorretabravo1167
+- https://www.tiktok.com/@miguelangellegorreta?_t=ZM-8v6EUxcaojf&_r=1
+
+
+## Cursos
+
+- Especialidad de Justicia para adolecentes, por parte del instituto Federal de Formacion Judicial
+- ,Curso de Política Criminal impartido por el Instituto Nacional de Ciencias Penales (INACIPE)
+- ,Cuento con la certificación emitida por la Secretaria de Gobernación a través de S
+- E
+- T
+- E
+- C
+- ,Diplomado de Juicio de Amparo emitido por La Suprema Corte de Justicia de la Nación
+- ,Constancia de participación emitida por la Oficina de las Naciones Unidas contra la Droga y el Delito
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53602/11
+
+
+## Trayectoria Academica
+
+- Con esfuerzo, determinación y un gran impulsado por el animo del servicio al projimo seleccione la carrera de abogado
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque Dios me da la posibilidad de servir a mis semejantes, siendo este el más grande honor que puede tener un abogado.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desempeñar la función con etica y con las virtudes jurisdiccionales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Trabajar todos los días con apego a derecho, aplicando los distintos protocolos de actuación, las tesis y jurisprudencias, y con humanismo, con el conocimiento de los derechos humanos, sin que esto implique que no se sancione a una persona o se imponga una medida cautelar de prisión preventiva, recordando que siempre se dictara por así considerarlo y no por favor a alguien o por deudas políticas, ya que de ganar seria únicamente por el apoyo de las personas.
+
+
+## Propuestas
+
+- No es propuesta es una garantía del dominio de la materia, esto agilizara en el desarrollo de los procedimientos, al haber sido Juez de Control en el Estado de México, resolvía en la mayoría de los casos la situación jurídica de las personas de manera rápida y no agotar tiempos de manera innecesaria,
+- No solicitar a las personas que intervengan tecnicismos innecesarios, ya que lo único que ocasiona es confusión, por la intención de agilizar se realizaran las audiencia con mayor celeridad y los abogados no tengan ese sentir de que será requerido incluso latinismos, ya que se cae en exageraciones, por lo que solo se preocuparían en desempeñar su intervención desacuerdo sus pretensiones, como fiscalía, defensa o asesores jurídicos.
+- Emitir pronunciamientos apegados a derecho, sere honrado e imparcial, non tengo intención de enriquecerme o de perjudicar a las personas, sino de poner al servicio los conocimientos que a lo largo de la vida obtuve, y que si gano es por el voto de las personas que confiaron en mi, jamas estaré sujeto a algún  o  la  todo será emitido con legalidad, ya que eso es lo que se merece la sociedad, que se cuente con un juez imparcial.
+

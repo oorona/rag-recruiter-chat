@@ -1,0 +1,87 @@
+Nombre Candidato: SERGIO CALIXTO SUAREZ
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 7581160340
+Correo Electronico: sergiocalixto2010@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Competencias Docentes, Derecho., Educación Preparatoria, Educación Primaria, Educación Secundaria, Legislación Ambiental, Ley y Protección de Datos, Prevención Enfermedades, Sistema Penal Acusatorio
+Tags Propósito: Acceso a la justicia, Asesoría legal gratuita, Combate a la corrupción, Compromiso, Comunidades rurales, Confianza institucional, Control interno, Derechos fundamentales, Digitalización, Eficiencia, Equidad, Estadísticas judiciales., Expedientes digitales, Función jurisdiccional, Imparcialidad, Integridad, Justicia, Juzgados itinerantes, Modernización, Procesos judiciales, Rendición de cuentas, Seguimiento en línea, Servicio a la comunidad, Sistema accesible, Transparencia, Ética pública
+
+
+## Descripción del Candidato 
+
+SERGIO CALIXTO SUAREZ es candidato a Juez/a de Distrito en Guerrero, postulando a través del Poder Judicial de la Federación. Cuenta con licenciatura y cédula profesional. Ha realizado cursos en áreas como legislación ambiental, sistema penal acusatorio y protección de datos. 
+
+Su motivación para el cargo público se centra en servir a su comunidad, mejorar la transparencia y garantizar la justicia con integridad.  Sus propuestas principales incluyen el combate a la corrupción mediante controles internos, facilitar el acceso a la justicia a través de asesoría legal gratuita y juzgados itinerantes, y aumentar la transparencia a través de la digitalización de procesos y la publicación de informes de desempeño.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.facebook.com/sergiocalixtosuarez
+
+
+## Redes Sociales
+
+- https://www.facebook.com/sergio.suarez.1800
+- https://www.twitter.com/@SergioCalixto_S
+- https://www.instagram.com/sergiocalixtosuarez
+- https://www.youtube.com/@sergiocalixtosuarez
+- https://www.tiktok.com/@sergiocalixtosuarez
+- https://www.linkedin.com/in/sergio-calixto-suarez-1881081b7
+
+
+## Cursos
+
+- LEGISLACIÓN AMBIENTAL
+- ,CURSO INTRODUCTORIO DE COMPETENCIAS DOCENTES PARA ASPIRANTES A PARTICIPAR EN LA BOLSA DE TRABAJO DE LA UAGro
+- ,SISTEMA PENAL ACUSATORIO
+- ,GENERALIDADES DE LA LES Y 207 Y PROTECCION DE DATOS
+- ,PROGRAMA DE PREVENCIÓN Y CONTROL DE ENFERMEDADES DIARREICAS E INFECCIONES RESPIRATORIAS AGUDAS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52606/11
+
+
+## Trayectoria Academica
+
+- PRIM
+- NIÑOS HÉROES DE CHAPULTEPEC
+- SEC
+- CARITINO MALDONADO PÉREZ
+- PREP: JORGE BUSTOS ALDANA
+- SUP
+- FAC
+- DE DERECHO
+
+
+## Motivo para buscar el Cargo Publico
+
+QUIERO SERVIR A MI COMUNIDAD, MEJORAR LA TRANSPARENCIA, Y GARANTIZAR LA JUSTICIA PARA TODOS CON INTEGRIDAD Y COMPROMISO.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+LA VISIÓN DE LA FUNCIÓN JURISDICCIONAL QUE CONCIBO ES FORTALECER LA JUSTICIA COMO UN PILAR ESENCIAL PARA GARANTIZAR EQUIDAD, TRANSPARENCIA Y EL RESPETO A LOS DERECHOS FUNDAMENTALES. ASPIRO A UN SISTEMA ACCESIBLE, IMPARCIAL Y EFICIENTE QUE RESUELVA LOS CONFLICTOS CON APEGO A LA LEY, FOMENTANDO LA CONFIANZA EN LAS INSTITUCIONES. ADEMÁS, PIENSO EN LA MODERNIZACIÓN CONSTANTE DE LOS PROCESOS, ADAPTÁNDOLOS A LAS NECESIDADES DE UNA SOCIEDAD EN CONSTANTE EVOLUCIÓN.
+
+
+## Vision sobre la Imparticion de Justicia
+
+LA VISIÓN DE LA IMPARTICIÓN DE JUSTICIA QUE PROPONGO ES CONSTRUIR UN SISTEMA QUE GARANTICE LA IGUALDAD, LA TRANSPARENCIA Y EL RESPETO A LOS DERECHOS FUNDAMENTALES DE CADA CIUDADANO. DEBE SER ACCESIBLE, IMPARCIAL Y EFICIENTE, RESOLVIENDO CONFLICTOS CON APEGO A LA LEY, FOMENTANDO LA CONFIANZA PÚBLICA EN LAS INSTITUCIONES. ADEMÁS, CONSIDERO ESENCIAL AVANZAR HACIA LA MODERNIZACIÓN DE LOS PROCESOS, ADAPTÁNDOLOS A LAS DEMANDAS DE UNA SOCIEDAD DINÁMICA Y EN CONSTANTE EVOLUCIÓN.
+
+
+## Propuestas
+
+- COMBATE A LA CORRUPCIÓN: ESTABLECER MECANISMOS DE CONTROL INTERNO PARA PREVENIR Y SANCIONAR ACTOS DE CORRUPCIÓN DENTRO DEL JUZGADO. PROMOVER UNA CULTURA DE INTEGRIDAD Y ÉTICA EN EL EJERCICIO DE LA FUNCIÓN PÚBLICA.
+- ACCESO A LA JUSTICIA PARA TODOS: ESTABLECER PROGRAMAS DE ASESORÍA LEGAL GRATUITA PARA PERSONAS DE BAJOS RECURSOS ECONÓMICOS. PROMOVER LA CREACIÓN DE JUZGADOS ITINERANTES PARA ATENDER A LAS COMUNIDADES RURALES Y MARGINADAS, CON UNIDADES MÓVILES TOTALMENTE EQUIPADAS QUE OFREZCAN SERVICIOS JUDICIALES BÁSICOS, ASESORÍA LEGAL GRATUITA Y MEDIACIÓN DE CONFLICTOS.
+- TRANSPARENCIA Y RENDICIÓN DE CUENTAS: IMPLEMENTAR SISTEMAS DIGITALES PARA LA CONSULTA DE EXPEDIENTES. PROPONER LA DIGITALIZACIÓN COMPLETA DE LOS PROCESOS JUDICIALES, PERMITIENDO A LOS CIUDADANOS Y A LAS CIUDADANAS DAR SEGUIMIENTO A SUS CASOS EN LÍNEA Y REDUCIENDO LA BUROCRACIA. PUBLICAR INFORMES PERIÓDICOS SOBRE EL DESEMPEÑO DEL JUZGADO Y LAS ESTADÍSTICAS DE CASOS RESUELTOS.
+

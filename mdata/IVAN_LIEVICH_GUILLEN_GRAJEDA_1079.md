@@ -1,0 +1,83 @@
+Nombre Candidato: IVAN LIEVICH GUILLEN GRAJEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3327944668
+Correo Electronico: ivanlievich@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Ciencias Jurídicas, Derecho, Doctorado, Educación, Escuela Federal de Formación Judicial., Escuela Judicial, Formación Judicial, Igualdad de Género, Instituto de la Judicatura Federal, Juicio de Amparo, Justicia Penal Acusatorio, Maestría, Sistema Penal Acusatorio
+Tags Propósito: acceso a la justicia, cercanía, compromiso social, confianza social, derechos humanos, eficiencia, equidad, imparcialidad, justicia, lenguaje claro, niñez., paz, prontitud, protección de víctimas, servicio público, ética
+
+
+## Descripción del Candidato 
+
+IVAN LIEVICH GUILLEN GRAJEDA es candidato a Magistratura de Tribunales Colegiados de Circuito en JALISCO, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con estudios concluidos de Licenciatura, Maestría y Doctorado en Ciencias Jurídicas. Su trayectoria académica y profesional se centra en el ámbito del Derecho y el sistema de justicia, evidenciado por diversos diplomados y cursos, incluyendo especializaciones en el Nuevo Sistema de Justicia Penal Acusatorio y el Juicio de Amparo.
+
+Su motivación para buscar el cargo se basa en su compromiso con el acceso a la justicia.  Su visión de la función jurisdiccional y la impartición de justicia se centra en la ética, la cercanía social, la protección de las víctimas, la prontitud en la resolución de casos, y la promoción de un lenguaje claro y accesible en las sentencias. Sus propuestas principales incluyen priorizar los derechos de las víctimas, asegurar la eficiencia en la resolución de asuntos, y fomentar la comunicación efectiva con las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ivan.lievich/
+- https://x.com/ivan_lievich?s=11
+- https://www.instagram.com/ivan.lievich?igsh=MXE2aHhtdWtscDNwbA3D3D&utm_source=qr
+- https://www.youtube.com/@IvanLievich
+- https://www.tiktok.com/discover/ivan-lievich-guillen-grajeda
+- https://mx.linkedin.com/in/ivanlievich
+
+
+## Cursos
+
+- Diplomado ¿El Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional¿,Diplomado ¿Nuevo Juicio de Amparo¿
+- Impartido por el Instituto de la Judicatura Federal ¿ Escuela Judicial ¿,Curso ¿Los Principios del Sistema Penal Acusatorio y del Juicio de Amparo¿
+- Instituto de la Judicatura Federal
+- ,Curso Género como Herramienta para la Igualdad
+- Onceava Edición, Escuela Federal de Formación Judicial,Curso para Generar Espacios Libres de  III
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53342/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho; Maestría en Ciencias Jurídicas y Sociales; Doctorado en Ciencias Jurídicas, Admtivas y Educación
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque el pueblo tiene hambre de justicia y sus jueces deben brindárselas, yo estoy dispuesto a ello.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es ejercer la función jurisdiccional con ética, cercanía y compromiso social. Propongo proteger efectivamente a las víctimas, dictar resoluciones prontas y justas, escuchar con respeto a las personas, generar buenas prácticas internas y promover el acceso igualitario a la justicia. Aspiro a que cada sentencia contribuya a una sociedad más equitativa, pacífica y humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la aplicación de justicia como un servicio público esencial, cercano a todas las personas , guiado por la ética, la imparcialidad y el respeto a los derechos humanos. La justicia debe ser accesible para todas y todos, pronta y sensible, especialmente para las victimas y la Niñez. Mi visión es que cada resolución sea una oportunidad para fortalecer la confianza social y construir un país más justo, humano y en paz.
+
+
+## Propuestas
+
+- Protección efectiva de víctimas 	PRIORIZAR los derechos de las víctimas en cada decisión judicial.
+- Justicia con prontitud 	EFICIENCIA en la resolución de asuntos, sin sacrificar calidad.
+- Cercanía con las personas PROMOVER espacios de atención y escucha para las personas, en un entorno formal. FOMENTAR uso de lenguaje claro en las sentencias, para que las personas entiendan cómo y por qué se decide en su caso.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: ANA KAREM RESENDIZ FORTUNAT
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: resendizfortunatana@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública Estatal, Administración Pública Municipal, Auditoría, Derecho, Estudios Superiores en Derecho Penal., Fiscalización Gubernamental, Fiscalización Superior, Instituto de la Judicatura Federal, Juicio de Amparo, Secretario, Sistema Acusatorio Adversarial, Universidad Autónoma de Querétaro
+Tags Propósito: Acceso a la Justicia, Autoritarismo, Corrupción, Derechos Humanos, Desprotegidos, Diversidad, Eficiencia, Formato Comprensible, Género, Igualdad, Imparcialidad, Indígenas, Justicia, Legalidad., Lenguaje Claro, Lenguaje de Señas, Modernización Judicial, Motivación de Resoluciones, Participación Ciudadana, Resolución de Conflictos, Sistema Judicial, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Ana Karem Resendiz Fortunata es candidata a Jueza/es de Distrito en Querétaro, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Administración Pública Estatal y Municipal, así como diversas especializaciones en áreas legales y de fiscalización. Su motivación para buscar el cargo se centra en erradicar las malas prácticas en la impartición de justicia en México.
+
+Su visión de la función jurisdiccional se basa en construir un sistema judicial ético y legal que garantice la libertad, justicia e igualdad. Sus propuestas incluyen la modernización del sistema judicial, la reducción de tiempos de resolución, la transparencia en el actuar de los operadores jurídicos, el acceso igualitario a la justicia con perspectiva de género y derechos humanos, y la emisión de resoluciones fundadas y motivadas con lenguaje claro y accesible para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ResendizFortunatAnaKarem
+- https://www.x.com/ana_resf
+- https://www.instagram.com/resendizfortunatanakarem
+- https://www.tiktok.com/@fortunatanardz
+
+
+## Cursos
+
+- Diplomado en Administración Pública Municipal, Universidad Autónoma de Querétaro,Maestría en Administración Pública Estatal y Municipal, Universidad Autónoma de Querétaro, Facultad de Derecho,Curso Básico de Secretario 2015, Instituto de la Judicatura Federal, Querétaro,Maestría en Juicio de Amparo en el Sistema Acusatorio Adversarial, Instituto de Estudios Superiores en Derecho Penal,Maestría en Auditoría y Fiscalización Gubernamental, Instituto de Especialización de Estudios de Fiscalización Superior
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54830/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Autónoma de Querétaro
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero erradicar las malas costumbres en la impartición de justicia en México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia que construimos hoy en el sistema judicial siente las bases para un México más armónico en condiciones de libertad, justicia e igualdad. Juzgar con ética y legalidad, protegiendo los derechos humanos de las personas, para construir un sistema judicial más Justo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia en favor de los más desprotegidos, combatir la corrupción, los privilegios y el autoritarismo. Defender y garantizar para todos por igual los derechos humanos. Un sistema judicial accesible, imparcial y enfocado en la protección de los derechos humanos. Busco impartir justicia con imparcialidad, transparencia y compromiso social, garantizando el acceso a los derechos humanos. Creo en un sistema judicial sólido que genere confianza y contribuya a una sociedad más justa.
+
+
+## Propuestas
+
+- Mejorar la función jurisdiccional, buscando la modernización del sistema judicial, la reducción de los tiempos de resolución, transparentar el actuar de los operadores jurídicos, dar acceso igualitario a la justicia, resolver con Perspectiva de Género y Derechos Humanos, redacción de sentencias y procesos judiciales en lenguaje claro para la ciudadanía, lo que busca un sistema de justicia más rápido, eficiente, confiable y accesible para todos.
+- Justicia incluyente y en razón de genero, es decir que los ciudadanos tengan acceso igualitario a la justicia, buscando capacitar traductores e intérpretes en lenguas indígenas y lenguaje de señas para asegurar que nadie quede fuera del sistema de justicia, tener un justicia con perspectiva de género, en la que se incluya formación para los operadores jurídicos en igualdad de género y diversidad para evitar resoluciones discriminatorias y garantizar un enfoque sensible y eficaz.
+- Resoluciones fundadas y motivadas haciendo públicas las razones, lo que implica transparencia en las decisiones judiciales, la redacción de sentencias tendrá un formato comprensible para la ciudadanía, sin tecnicismos innecesarios, creando espacios de diálogo en los que los jueces expliquen resoluciones clave a la sociedad civil, creación de canales seguros para reportar irregularidades en la atención de los operadores jurídicos.
+

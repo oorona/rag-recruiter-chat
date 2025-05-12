@@ -1,0 +1,73 @@
+Nombre Candidato: SERGIO ENRIQUE MEDINA BENITEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 5529365180
+Correo Electronico: semedinaaydf@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho, Derechos Humanos, España, Filosofía, Juicio de Amparo, Posgrado, Profesor., Prueba Pericial, Razonamiento Probatorio, UNAM
+Tags Propósito: acceso a la justicia, capacidad técnica, empatía, equidad, equilibrio, experiencia, humanidad, justicia, justicia expedita, justicia pronta, nepotismo, pueblo de México., puertas abiertas, resoluciones ágiles
+
+
+## Descripción del Candidato 
+
+Sergio Enrique Medina Benítez es candidato a una Magistratura de Tribunales Colegiados de Circuito por Baja California, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría y cédula profesional, habiendo estudiado Derecho, Filosofía y Derechos Humanos en la UNAM, así como posgrados en Girona y León, España. Su trayectoria incluye experiencia docente.
+
+En su motivación para el cargo, destaca su experiencia, capacidad técnica y un enfoque en la humanidad, la empatía y la justicia. Su visión sobre la función jurisdiccional se centra en una justicia pronta, expedita y accesible para todos los mexicanos, enfocándose en la equidad y el equilibrio. Sus propuestas incluyen reducir el tiempo de resolución de casos, erradicar el nepotismo y garantizar el acceso a la justicia para el pueblo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18TrCwqDFs/
+- https://www.tiktok.com/@sergiomedinabenitez?_t=Z&_rM-8unVQQLX5s7&_r=11
+
+
+## Cursos
+
+- Razonamiento probatorio Prueba Pericial Argumentación Jurídica derechos humanos Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54125/10
+
+
+## Trayectoria Academica
+
+- Estudie la derecho, filosofía, derechos humanos y maestría en la UNAM
+- Otros posgrados en Girona y Leon España, profesor
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la experiencia, la capacidad técnica y el curriculum. Pero sobre todo tengo la humanidad, empatía y justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Justicia Pronta y justicia expedita acceso y puertas abiertas para todo el pueblo de mexico impartición equilibrada
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia como equidad y equilibrio reflexivo
+
+
+## Propuestas
+
+- Reducir el tiempo en las resoluciones
+- Terminar con el nepotismo
+- Acceso de puertas abiertas para el pueblo
+

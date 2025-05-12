@@ -1,0 +1,72 @@
+Nombre Candidato: GUSTAVO MEDEL LEZAMA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 7225538808
+Correo Electronico: gussmedel@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: BUAP, Capacitación, Derecho, Derecho Procesal Penal, Diplomado., INDEPAC, Juicio Oral, Litigación, Sistema Penal Acusatorio, Teoría del Delito
+Tags Propósito: Accesibilidad, Confianza social, Confianza., Denuncia, Derechos ciudadanos, Derechos humanos, Dignidad, Eficiencia, Empatía, Equidad, Fundamentación, Imparcialidad, Independencia, Justicia cercana, Justicia humana, Legalidad, No discriminación, Paz social, Perspectiva social, Revisión, Transformación social, Transparencia, Tratamiento justo, Violencia de género, Vulnerabilidad, Víctimas, Ética
+
+
+## Descripción del Candidato 
+
+Gustavo Medel Lezama es candidato a Juez/a de Distrito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Penal y una Licenciatura en Derecho, además de diversos cursos de especialización en sistemas penales acusatorios, litigación oral y teoría del delito. 
+
+Su motivación para buscar el cargo se centra en impulsar una justicia humana, imparcial y empática, respondiendo a las necesidades ciudadanas. Su visión de la función jurisdiccional se basa en un servicio esencial orientado a resolver conflictos con imparcialidad, legalidad y sensibilidad humana. Sus propuestas incluyen llevar la justicia a zonas vulnerables, garantizar un trato justo y parejo para todos, y revisar constantemente el trabajo del juzgado para asegurar la calidad de las decisiones.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574142118556
+- https://www.instagram.com/gustavomedellezama/
+
+
+## Cursos
+
+- Diplomado en sistema Penal Acusatorio,Estrategias de Litigación, impartido por el Departamento de Justicia de los Estados Unidos,Capacitación en el Sistema Penal Acusatorio,Litigación Oral y Teoría del Delito,Etapa de Juicio Oral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53975/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la BUAP y Maestría en Derecho Procesal Penal por INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impulsar una justicia más humana, imparcial y empática que responda a las necesidades reales de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Entiendo que la función jurisdiccional es un servicio esencial del Estado, orientado a resolver conflictos con imparcialidad, legalidad y sensibilidad humana. Un juez debe ser garante de los derechos humanos, actuar con independencia, y mantener un compromiso ético inquebrantable. Mi visión incluye una justicia accesible, clara y eficiente, que escuche a las personas y que construya confianza social en el sistema legal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un proceso íntegro, humano y transparente que asegure el equilibrio entre la letra de la ley y su aplicación con perspectiva social. La justicia no debe ser solo técnica, sino cercana, empática y sensible al contexto de cada caso. Creo en una justicia que restituya derechos, genere paz social y sea instrumento de transformación, garantizando siempre la equidad y el respeto a la dignidad de las personas.
+
+
+## Propuestas
+
+- Llevar la justicia a las zonas más vulnerables. Organizar jornadas para explicar cómo funciona el sistema penal acusatorio, qué hacer si eres víctima o testigo de un delito, y cómo denunciar sin miedo. Que la ciudadanía conozca sus derechos y los haga valer.
+- Trato justo y parejo para todos. Crear reglas claras dentro del juzgado para que todas las audiencias se realicen respetando los derechos de víctimas y acusados. Que no existan favoritismos, discriminación ni violencia de género. Lo justo es lo justo, sin importar quién seas.
+- Revisar el trabajo del juzgado constantemente. Proponer una especie de para checar que las decisiones que se tomen estén bien fundamentadas, que no se contradigan y que realmente ayuden a que se haga justicia. Es una forma de mejorar y ser más confiables.
+

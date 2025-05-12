@@ -1,0 +1,78 @@
+Nombre Candidato: ERIKA CORDOVA CATALAN
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3318507739
+Correo Electronico: cordovaerika_@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: ACCESO A LA JUSTICIA, CONOCER, Competencia Laboral, Derecho Penal, Derechos Humanos, Doctorado, Estudios de Género, Igualdad de Género, OEA, Políticas Públicas., Procuración de Justicia, Psicología y Género, TEC Monterrey, UNAM
+Tags Propósito: Acceso a la justicia, Amparo penal, Debido proceso, Derechos humanos, Desaparición forzada, Desigualdad social, Dilación, Estadística judicial., Estrategias de obstaculización, Innovación, Justicia de la Unión, Justicia incluyente, No repetición, Perspectiva de género, Transformación, Violaciones sistemáticas, Vulnerabilidad, Víctimas indirectas
+
+
+## Descripción del Candidato 
+
+Erika Cordova Catalan es candidata a Jueza/es de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de doctorado y maestría en estudios de género, especializándose en derechos humanos. Su motivación para buscar el cargo público se basa en su trayectoria en la lucha contra las desigualdades sociales y la falta de oportunidades.
+
+Cordova propone fortalecer la función jurisdiccional, acercándola a la población y equilibrando la experiencia privada y pública. Su visión de la impartición de justicia se centra en la inclusión, la perspectiva de género y la transformación de vidas a través de una justicia que considere el contexto de las víctimas y advierta las desigualdades. Sus propuestas incluyen ampliar la protección a víctimas indirectas en casos de violaciones a derechos humanos, garantizar la no repetición de daños a través del amparo penal y generar estadísticas sobre violaciones a derechos humanos para evitar la dilación en su cumplimiento.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/157BCureZK/?mibextid=wwXIfr
+- https://x.com/erikaco17105641?s=11&t=5A6-4nrEj9HenG_fugUTIw
+- https://www.instagram.com/erikacordovacatalan?igsh=MTd1ZXZyNGFkNHFuYQ3D3D&utm_source=qr
+- https://www.tiktok.com/@eri47857?_t=ZM-8uvZyEQ4C7L&_r=1
+
+
+## Cursos
+
+- Certificado de Competencia Laboral en la Impartición de Cursos
+- CONOCER,Diplomado: Psicología y Género en la Procuración de Justicia, Nivel Intermedio
+- UNAM,Diplomado impartido por el TEC Monterrey en ACCESO A LA JUSTICIA,Programa de Doctorado en Problemas actuales de Derecho Penal
+- ,Curso especialización por la OEA Enfoque de Derechos y de Igualdad de Género, en políticas, programas y proyectos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52879/11
+
+
+## Trayectoria Academica
+
+- Soy abogada, con estudios de doctorado y maestría en estudios de género
+- Me he especializado en derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque he trabajado toda mi vida profesional y personal en combatir las desigualdades sociales, las faltas de oportunida
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Visiono la función jurisdiccional, profesional y competitiva frente a la que realizan otros profesionales en países paralelos y más desarrollados, pero también cercana a la población que juzga. Visualizo una función jurisdiccional fortalecida por quienes han laborado en el ámbito privado y público, porque pueden generar el equilibrio entre las fortalezas y debilidades de la función que desarrollan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Visiono a mediano y largo plazo una justicia incluyente y con perspectiva de género, capaz de advertir las desigualdades y discriminaciones de quienes se juzga, a partir de analizar el contexto de los hechos para que sea la justicia, una herramienta para transformar vidas o devolverle la paz que México necesita en el acceso a la justicia, donde se le debe tanto a la ciudadanía históricamente.
+
+
+## Propuestas
+
+- Consideró que la justicia que se imparte en los juzgados de distrito en materia penal, pueden proteger y amparar con la Justicia de la Unión, de forma más amplia, más transformadora, más innovadora, donde advierta incluso los daños de las víctimas indirectas por las acciones y omisiones derivadas de las violaciones a derechos humanos que comenten las autoridades e instituciones del Estado, aun cuando no se soliciten en el amparo, por ejemplo en desaparición forzada, o personas en vulnerabilidad.
+- El amparo en materia penal, también debe buscar la garantía de no repetición visibilizando los daños ocasionados para garantizar el derecho a la educación, a la salud entre otros de las hijas e hijos, o del resto de víctimas indirectas, o incluso cuando se trate de los daños derivados de un archivo o sobreseimiento de una carpeta donde no atendieron los derechos de las víctimas, donde no se respetó el derecho del debido proceso de las partes en un proceso penal por el juez de control y oralidad.
+- Advertir las estratégicas de dilación y obstaculización en el cumplimiento y/o en la repetición de las violaciones a los derechos humanos por parte de las autoridades, a partir de generar una estadística de cuando éstos son torturados, aislados, incomunicados o cuando la misma autoridad viola derechos humanos de forma sistemática, para que no se dilate el cumplimiento o sigan las mismas autoridades violando los mismos derechos.
+

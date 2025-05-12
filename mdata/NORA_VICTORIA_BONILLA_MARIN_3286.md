@@ -1,0 +1,75 @@
+Nombre Candidato: NORA VICTORIA BONILLA MARIN
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acoso Sexual, Derecho, Derecho Procesal, Desaparición de Personas, Especialidad., Formación, Hostigamiento, Licenciatura, Maestría, Materia Mercantil, Poder Judicial de la Federación, Secretarios, Violencia
+Tags Propósito: Argumentación, Capacitación continua, Celeridad, Compromiso social, Desigualdad social, Eficacia, Excelencia, Función jurisdiccional, Juicio de amparo, Juicio oral constitucional, Jurisprudencia, Justicia accesible, Ley de amparo, Plazos, Profesionalismo, Sensibilidad, Servicio público, Servidores públicos, Transparencia, Trámite.
+
+
+## Descripción del Candidato 
+
+Nora Victoria Bonilla Marín es candidata a Jueza/es de Distrito en Tamaulipas, postulándose en la categoría "En Funciones". Cuenta con Maestría en Derecho Procesal y Cédula Profesional, además de formación continua en áreas como derechos humanos, violencia de género y derecho mercantil.
+
+Su motivación para el cargo público se basa en la necesidad de servidores públicos con sensibilidad y compromiso social. Su visión de la función jurisdiccional prioriza la accesibilidad y la atención a las desigualdades, mientras que para la impartición de justicia busca un servicio transparente, profesional y cercano a la ciudadanía. Sus principales propuestas incluyen una reforma al juicio de amparo para agilizar los procedimientos, la capacitación obligatoria y continua sobre la Ley de Amparo y argumentación, y la formación en sensibilidad para todos los servidores públicos del Poder Judicial de la Federación.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16VgaLr6pU/?mibextid=qi2Omg
+- https://www.instagram.com/norvbm?utm_source=qr&igsh=cjlvY3Fncms2ZHoy
+- https://www.tiktok.com/@noravictoriabm?_t=ZM-8v678XSpmFR&_r=1
+
+
+## Cursos
+
+- Curso Las Obligaciones del Poder Judicial de la Federación en Relación con la Desaparición de Personas,Curso Herramientas para Juzgar en Casos de Hostigamiento y Acoso Sexual,Curso Herramientas para Juzgar en Casos de Hostigamiento y Acoso Sexual,Curso para Generar Espacios Libres de Violencia,Curso Jornadas de Actualización en Materia Mercantil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52290/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Mtra
+- en Derecho Procesal, Especialidad en Curso Básico de Formación de Secretarios del PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Una servidora pública, además de inteligencia y capacidad, debe tener sensibilidad y compromiso social. Y lo tengo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Vivimos en una sociedad con muchas desigualdades, es por ello que siempre he considerado importante que los puestos públicos deben ser ocupados por personas que además de contar con capacidad para ejercer la función, cuenten con sensibilidad, compromiso social y una conciencia de que las leyes se hicieron para servir a las y los ciudadanos; de modo tal que las y los mexicanos constituyan el motivo primordial de una buena función jurisdiccional humana y accesible.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En todo momento la impartición de justicia debe ser accesible a las y los mexicanos, cercana a todos los sectores de la sociedad y grupos vulnerables, transparente en su servicio, profesional y perfectible, siempre en constante mejora, confiable en sus resoluciones y sobre todo certeza de la excelencia en la calidad del servicio brindado.
+
+
+## Propuestas
+
+- Reforma al juicio de amparo, en cuanto a su procedimiento. Realizar una transición del juicio tradicional de amparo a un juicio oral constitucional, en el que se acorten los plazos y términos, se busque que las cuestiones de mero trámite sean estudiadas y firmadas por una Secretaria o Secretario, dejando a la persona juzgadora la emisión de resoluciones y sentencias. Con ello buscando una función jurisdiccional más eficaz y rápida.
+- La capacitación constante obligatoria en todos los puestos que integran el Poder Judicial de la Federación sobre la Ley de Amparo, jurisprudencia y argumentación. En periodos de dos o tres años, buscando siempre la excelencia en el servicio público.
+- Capacitación sobre la sensibilidad que debe contar todo servidor público.
+

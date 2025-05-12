@@ -1,0 +1,74 @@
+Nombre Candidato: FERNANDA AGUIRRE DELGADO
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: MUJER
+Telefono: 6146005182
+Correo Electronico: lic.fernandaaguirred@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación Legal., Derechos Humanos, Formación Continua, Juicio de Amparo, SCJN, Sistema de Justicia Laboral, Universidad Autónoma de Chihuahua
+Tags Propósito: Agilización procesos, Bienestar social, Capacitación continua, Celeridad, Conciliación, Derecho laboral, Derechos empleadores, Derechos humanos, Derechos laborales, Derechos trabajadores, Desarrollo social, Eficiencia, Equidad, Humanidad., Imparcialidad, Justicia accesible, Justicia laboral, Mediación, Perspectiva de género, Soluciones pacíficas, Transparencia
+
+
+## Descripción del Candidato 
+
+Fernanda Aguirre Delgado es candidata a Jueza/es de Distrito en Chihuahua, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho de la Universidad Autónoma de Chihuahua y ha realizado diversos cursos y diplomados en temas de juicio de amparo, derechos humanos y justicia laboral, impartidos por la SCJN y otras instituciones.
+
+Su motivación para buscar el cargo público se centra en contribuir al bienestar social y en la defensa de los derechos laborales. Propone agilizar los procesos judiciales, fortalecer la capacitación continua en derechos humanos y perspectiva de género, y priorizar la mediación y conciliación como herramientas para una justicia más eficiente y humana. Su visión sobre la función jurisdiccional enfatiza la accesibilidad, imparcialidad, eficiencia y transparencia en la resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18xdpCEjBW/?mibextid=wwXIfr
+- https://www.instagram.com/lic.fernandaaguirred?igsh=MXEwaGVzcnZraGNuMg3D3D&utm_source=qr
+
+
+## Cursos
+
+- Diplomado Juicio de Amparo impartido por la SCJN
+- ,Diplomado en Derechos humanos impartido por la SCJN
+- ,Taller sobre el Nuevo sistema de justicia laboral impartido por Barrera Gonzáles Legal Consulting, Modulo I, II y III
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52213/11
+
+
+## Trayectoria Academica
+
+- Facultad de derecho, en la Universidad Autónoma de Chihuahua
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona preparada y humana, y con ello quiero contribuir al bienestar social, defendiendo los derechos laborales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser accesible, imparcial y eficiente, garantizando que los derechos de los ciudadanos sean respetados, promoviendo un entorno de equidad y justicia. Es crucial que los procesos sean transparentes y se realicen con celeridad, para ofrecer soluciones oportunas que impacten positivamente en la vida de las personas y contribuyan al desarrollo social, priorizando siempre la solución de conflictos mediante la conciliación de los mismos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la impartición de justicia laboral debe ser garantizar que los derechos de los trabajadores y empleadores sean respetados de manera justa y equitativa.
+
+
+## Propuestas
+
+- Es fundamental AGILIZAR los procesos judiciales mediante el uso de herramientas efectivas y una organización orientada a objetivos claros, siempre alineados a derecho y principios procesales, esto con el fin de reducir los tiempos de resolución.
+- Fortalecer la capacitación continua de jueces y personal jurisdiccional en derechos humanos, perspectiva de género y en los aspectos más recientes del derecho laboral.
+- Priorizar la mediación y conciliación, para con ello contribuir a una justicia más eficiente, aliviando la carga de los Tribunales y favoreciendo soluciones pacíficas y satisfactorias para todas las partes. No dejando de lado el sentido de humanidad, teniendo claro que nuestra actuar impactara en personas, familias y empresas.
+

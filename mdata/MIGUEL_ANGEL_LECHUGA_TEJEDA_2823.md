@@ -1,0 +1,85 @@
+Nombre Candidato: MIGUEL ANGEL LECHUGA TEJEDA
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 3112021210
+Correo Electronico: licmiguelangellechuga@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho Fiscal, Desaparición de Personas, Formación Judicial, Judicatura Federal, Licenciatura en Derecho, Prueba, Razonamiento Probatorio, SCJN, Sistema Penal Acusatorio, Universidad Autónoma de Ciudad Juárez., Universidad Veracruzana
+Tags Propósito: Acceso a la justicia, Congruencia, Debido proceso, Derechos humanos, Eficacia, Experiencia penal, Honestidad, Igualdad ante la ley, Imparcialidad, Independencia, Justicia, Marco legal, Protección a los desprotegidos, Resolución de conflictos., Responsabilidad, Sentencias ágiles, Sistema judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+MIGUEL ANGEL LECHUGA TEJEDA es candidato a Juez de Distrito en NAYARIT, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho Fiscal (Universidad Autónoma de Ciudad Juárez) y Licenciatura en Derecho (Universidad Veracruzana), además de diversos cursos de actualización en temas como el Sistema Penal Acusatorio, Desaparición de Personas y Razonamiento Probatorio.
+
+Su motivación para el cargo se centra en asegurar que los tribunales sean un refugio para los más desprotegidos y su visión de la función jurisdiccional se basa en una justicia visible, consciente de la realidad social, imparcial, independiente y enfocada en las necesidades de los más necesitados. Sus propuestas incluyen el uso de su experiencia en materia penal para asegurar decisiones transparentes y responsables, fundamentar su labor en valores como la honestidad y el conocimiento del marco legal, y agilizar los procesos judiciales respetando los derechos humanos y el debido proceso.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EG7Bny9xr/
+- https://x.com/licmiguellechug?s=11
+- https://www.instagram.com/licmiguelangellechuga?igsh=MXd4ZDZ3aDE5dXYzZw==
+- https://youtube.com/@malt270597?si=2Q3bSlS8XGJmnoK0
+- https://www.tiktok.com/@licmiguelangellechuga
+- https://www.threads.net/@lechugamiguelangel
+
+
+## Cursos
+
+- Actualización: Teoría y Práctica del Sistema Penal Acusatorio a Través de los Precedentes de la SCJN
+- ,Las Obligaciones del Poder Judicial de la Federación en Relación con la Desaparición de Personas
+- ,PRUEBA y Razonamiento Probatorio
+- Escuela Federal de Formación Judicial
+- ,Retos y Perspectivas en el Sistema Penal Acusatorio
+- Una Visión Desde la Judicatura Federal
+- Primera Edición
+- EFFJ,Formación para Personas Secretarias de Tribunal de Circuito: Concurso Escolarizado Edición 2022
+- EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53819/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Veracruzana
+- Maestría en Derecho Fiscal Universidad Autónoma de Ciudad Juárez
+
+
+## Motivo para buscar el Cargo Publico
+
+Los tribunales y juzgados deben ser el refugio de los más desprotegidos, es ahí donde sus voces deben escucharse.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser visible a la gente, y consiente de la realidad social, debe existir un compromiso total de los juzgadores, la justicia debe ser imparcial, independiente y comprometida con las causas de los más necesitados; además, la justicia debe ser ejercida de manera rápida, oportuna y eficaz.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La importancia de contar con un sistema judicial robusto y accesible no puede subestimarse. Es en los tribunales donde se protege la esencia misma del ser humano, donde se garantiza que nadie, nadie esté por encima de la ley, y donde se materializa la lucha por un futuro más equitativo.
+
+
+## Propuestas
+
+- Ofrezco mi experiencia como Secretario en materia penal, brindando un alto sentido de responsabilidad, con principios y conocimientos sólidos en cada una de las decisiones judiciales que tomaré, las cuales gozaran de transparencia. Mi labor se enfocará en asegurar que cada caso sea tratado con la atención que merece, resolviendo las necesidades y problemas legales de quienes reclamen justicia e igualdad.
+- Mi función se fundamentará en valores tales como la honestidad, responsabilidad, congruencia y un profundo conocimiento del marco legal, poniendo en practica los mecanismos y márgenes legales que garantizan la calidad y la justicia en cada proceso y en el dictado de cada sentencia.
+- Buscaré resolver problemas, tales como la lentitud en los procesos judiciales, la constante violación de derechos humanos, tratando de emitir sentencias más ágiles y justas, garantizando el respeto a los derechos humanos, promoviendo la igualdad ante la ley y la protección del debido proceso en cada decisión que he de tomar. Al hacerlo, espero tener un impacto positivo en la vida de las personas y la confianza que depositan en la justicia.
+

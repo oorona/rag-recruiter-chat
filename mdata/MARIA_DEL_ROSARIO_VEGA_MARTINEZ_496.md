@@ -1,0 +1,81 @@
+Nombre Candidato: MARIA DEL ROSARIO VEGA MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5564140235
+Correo Electronico: vega74ross@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Cursos, Derecho, Diplomado, Especialización Judicial, Formación Judicial, Juicio de Amparo, Justicia Laboral, Penal, Perspectiva de Género, Reforma Laboral., Suprema Corte, UNAM
+Tags Propósito: acceso a la justicia, autonomía, capacitación, conflictos, corrupción, derechos, dilaciones., eficiencia, ejecución de sentencias, equidad, imparcialidad, impunidad, independencia, jueces, justicia, ley, magistrados, patrones, profesionalismo, rendición de cuentas, responsabilidad, salario igual, trabajadores, trabajo igual, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+MARIA DEL ROSARIO VEGA MARTINEZ es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con licenciatura en derecho, egresada de la UNAM con un promedio de 9.21, y una trayectoria académica complementada con diversos cursos y diplomados en materia laboral y penal, incluyendo formación en perspectiva de género.
+
+Su motivación para buscar el cargo público se centra en la aplicación de la ley, la garantía de los derechos de trabajadores y patrones, y la prevención de abusos de poder. Su visión de la función jurisdiccional y la impartición de justicia enfatiza la imparcialidad, eficiencia, transparencia y accesibilidad, priorizando el respeto a los derechos humanos. Sus propuestas principales incluyen garantizar la ejecución efectiva de sentencias, promover una distribución equitativa del trabajo en los tribunales y fomentar la capacitación constante de los juzgadores.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Ev26GCfrW/
+- https://x.com/Vegarosario25?t=r0YeBmAEign02B-XtR7nuA&s=09
+- https://www.instagram.com/rosariovegamtz/
+- https://www.tiktok.com/@rosario.vega.mart?_t=ZS-8ugVd3DpRhY&_r=1
+
+
+## Cursos
+
+- Jornadas de sensibilización sobre la reforma en materia de justicia laboral
+- Instituto de la Judicatura Federal,Diplomado juicio de amparo
+- Suprema Corte de Justicia de la Nación,Seminario especializado en el nuevo sistema de justicia laboral,Especialización Judicial
+- Instituto de la Judicatura Federal,Juzgar con perspectiva de género en materia laboral
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55491/10
+
+
+## Trayectoria Academica
+
+- Egresada de la facultad de derecho de la UNAM con promedio de 9
+- 21
+- Con múltiples cursos en laboral y diplomado en penal
+
+
+## Motivo para buscar el Cargo Publico
+
+PARA APLICAR LA LEY, GARANTIZAR EL RESPETO A LOS DERECHOS DE TRABAJADORES Y PATRONES Y EVITAR LOS ABUSOS DE PODER
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe tener como único objetivo, garantizar la justicia mediante la aplicación de la ley, resolver los juicios de manera imparcial, equitativa, objetiva, transparente y eficiente, ser ágil, evitando dilaciones innecesarias, priorizando la resolución de conflictos a los formalismos procesales, se necesitan juzgadores capacitados y con conciencia social. La verdadera impartición de justicia requiere profesionalismo, entrega y valor para dictar sentencias, para garantizar los derechos de todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser imparcial, eficiente y accesible para todos, priorizando el respeto a los derechos humanos, es fundamental un poder judicial transparente, ágil, confiable y sin corrupción en ninguna de sus modalidades, que fortalezca la rendición de cuentas, en donde se sancionen las irregularidades. Se debe garantizar el acceso a la justicia especialmente a los grupos más vulnerables, promoviendo actos que permitan recobrar la confianza en el sistema de justicia, con una cercanía auténtica a la gente
+
+
+## Propuestas
+
+- Los Jueces y Magistrados deberán garantizar la efectiva ejecución de sentencias y evitar la impunidad, adoptando las medidas necesarias para lograr su cumplimiento, es urgente acabar con las prácticas dilatorias frecuentes, como la de requerir innumerable cantidad de veces a las autoridades sin imponer alguna medida de apremio eficaz, en perjuicio del gobernado quien no ve satisfecha la necesidad de obtener justicia ante tal proceder de los Juzgadores. Una sentencia que no se cumple es inútil.
+- Es indispensable una distribución equitativa del trabajo y tareas en los tribunales, respetando el derecho humano de ¿a salario igual, trabajo igual¿, desempeñando la jornada completa, erradicando la práctica de jornada reducida para acabar con el rezago existente. Fincar la responsabilidad que resulte del incumplimiento de las obligaciones o la comisión de actos que violentan los principios rectores de la función, como son, la independencia, autonomía, transparencia, equidad y eficiencia.
+- Capacitación constante de los juzgadores fuera de su jornada laboral, quienes deberán priorizar el desempeño de su labor respecto de los múltiples compromisos sociales o académicos que tengan, debiendo tomar en sus manos la resolución de los asuntos y no delegarla en los secretarios y demás personal del tribunal.
+

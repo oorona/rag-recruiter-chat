@@ -1,0 +1,74 @@
+Nombre Candidato: ELIZABETH CARINA BARAJAS ESCOBEDO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: elibarajas261@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CCH Vallejo, Capacitación, Constitución Política, Derecho Constitucional Tributario, Diplomado, FES Aragón, Formación., Jurisprudencia, Justicia Administrativa, Licenciatura, Maestría, Mención Honorífica, Seminario, Sistema Nacional Anticorrupción, UNAM
+Tags Propósito: Acceso a la justicia, Atención jurídica, Ciudadanía, Corrupción, Derechos sociales, Eficacia, Empatía, Foros públicos, Honestidad, Humildad, Imparcialidad, Justicia, Poder Judicial, Resolución de casos, Simplificación de procedimientos, Transparencia, Trato humano.
+
+
+## Descripción del Candidato 
+
+Elizabeth Carina Barajas Escobedo es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en Ciudad de México. Cuenta con Maestría con cédula profesional de la UNAM, habiendo cursado estudios de Licenciatura y Maestría en FES Aragón, obteniendo mención honorífica. Su formación incluye especializaciones en justicia administrativa, la Constitución Política de la Ciudad de México, el Sistema Nacional Anticorrupción y derecho constitucional tributario.
+
+La candidata declara buscar el cargo para brindar una justicia cercana, humana y honesta, especialmente a personas comunes. Su visión de la función jurisdiccional se centra en garantizar el derecho a la justicia, acercando el poder judicial a la ciudadanía, promoviendo la eficacia, transparencia y el rechazo a la corrupción. Entre sus propuestas destacan la instalación de mesas de atención jurídica en colonias y espacios públicos, la realización de foros semanales para atender a ciudadanos y la simplificación de procedimientos internos para agilizar la resolución de casos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/elizabeth.barajas.102
+- https://www.x.com/@BarajasEliz
+- https://www.instagram.com/elizabethbarajasescobedo
+- https://www.tiktok.com/@elizabeth.barajas498
+
+
+## Cursos
+
+- Curso de Especialización en Justicia Administrativa,Diplomado sobre la Constitución Política de la Ciudad de México,Programa de Capacitación Sistema Nacional Anticorrupción,Curso la Jurisprudencia, su localización, difusión y análisis argumentativo,Tercer Seminario Derecho Constitucional Tributario Iberamericano
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52399/10
+
+
+## Trayectoria Academica
+
+- Formación UNAM, preparatoria en CCH Vallejo, Licenciatura y Maestría en FES Aragón UNAM, grado con mención honorífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar justicia cercana, humana, empática, honesta y humilde, particularmente a la gente común que lo necesita.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La impartición de justicia es un derecho y los aspirantes a juzgadores tenemos la obligación de garantizar en cada uno de nuestros actos que así suceda. Necesitamos un poder judicial cercano a las personas, que acuda al ciudadano y no sea al revés; que sea eficaz, expedito y equilibrado. Es indispensable recuperar el prestigio del poder judicial y de la función jurisdiccional por medio del buen ejemplo, el rechazo absoluto a la corrupción, y la transparencia de la labor jurídica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La imparcialidad y la honestidad ante todo, quienes hemos trabajado durante nuestra carrera en sala especializada, en un Tribunal, hemos visto cómo el poder judicial se alejó de las personas, cuando son éstas la razón de ser de la impartición de justicia. Si hemos podido llevar derechos sociales a las calles y acercar otros poderes al pueblo de México ¿Por qué no podemos hacerlo con el Poder Judicial?. La justicia es darle a cada quién lo que merece, no puede condicionarse al dinero o al poder.
+
+
+## Propuestas
+
+- Llevar mesas de atención jurídica a las colonias y a los espacios públicos.
+- Establecer foros públicos semanales para atender a los ciudadanos.
+- Análisis de simplificación de procedimientos internos para agilizar la resolución de casos y dentro de los tiempos establecidos dentro de la ley, con un trato directo, humano y empático con la ciudadanía.
+

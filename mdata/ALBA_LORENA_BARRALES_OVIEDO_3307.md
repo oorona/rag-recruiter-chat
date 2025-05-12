@@ -1,0 +1,72 @@
+Nombre Candidato: ALBA LORENA BARRALES OVIEDO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 2281256817
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Asesoría Jurídica, Derecho, Derechos Humanos, Educación., Licenciatura, Maestría, Secretaria Proyectista
+Tags Propósito: Acceso a la Justicia, Cercanía Ciudadana, Comprensión Ciudadana, Comunicación, Contexto Social, Derechos Humanos, Desigualdad, Dignidad Humana, Eficacia Judicial, Escucha Ciudadana, Género, Justicia, Servidores Públicos., Simplificación Jurídica, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alba Lorena Barrales Oviedo es candidata a Jueza/es de Distrito por el Poder Legislativo Federal en Veracruz. Cuenta con licenciatura en Derecho, maestría en Derechos Humanos y especialidad en Secretaria Proyectista y Asesoría Jurídica. Su motivación para buscar el cargo público radica en su vocación de servicio y en alcanzar la justicia para todos.
+
+Barrales Oviedo propone un sistema jurisdiccional que aplique una perspectiva de derechos humanos y de género, analizando cada caso con detenimiento y considerando las vulnerabilidades. Busca un Poder Judicial más cercano a la sociedad, con resoluciones claras y comprensibles para los ciudadanos, y enfatiza la importancia de la escucha y comunicación con las partes involucradas en los juicios.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574004357733
+- https://www.instagram.com/albalorenabarralesoviedo?igsh=eHNnZGJoMDRhMXFh
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52751/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, con maestría en Derechos Humanos y especialidad en Secretaria Proyectista, y Asesoría Jurídica
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi vocación es servir a quien más lo necesite. Alcanzar la justicia para todas y todos es mi meta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe aplicar perspectiva de derechos humanos y de género. Debemos observar cada caso con el mayor detenimiento, ver las situación de vulnerabilidad y con base en ello establecer un piso parejo para que las resoluciones sean justas. No olvidar nunca que la decisión impacta a una persona, familia y a la sociedad y con ello brindar la seriedad y dedicación que cada asunto merece. Valerse de los mecanismos de protección de los derechos humanos y siempre privilegiar la Dignidad Humana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actualmente vemos un poder judicial distante, alejado de la sociedad, en donde se aplica el derecho sin detenerse a analizar los derechos humanos, así como el impacto que causan las sentencias. Los Juzgadores se centran en elucubraciones jurídicas, olvidando que la población no tiene las bases para comprender las resoluciones que son tan extensas que el ciudadano se pierde entre tantos conceptos, además de esperar por mucho tiempo la conclusión de sus procesos. Eso evidencia la falta de eficacia
+
+
+## Propuestas
+
+- Se debe tomar en cuenta la situación específica y única que se va a juzgar, no olvidemos que en nuestro país existen desigualdades, ya sea por el género, por orígenes étnicos, orientación sexual, religión etc. Siempre se debe realizar un análisis minucioso de los contextos, para poder tener los elementos suficientes que permitan emitir sentencias justas. Para ello habrá que utilizar las herramientas básicas como son las perspectivas de género y de Derechos Humanos.
+- Recordar que los juzgadores deben servir a la sociedad, y por ello sus resoluciones tendrán que ser sencillas y posibles de comprender por los ciudadanos. Es necesario implementar procesos de síntesis pues así, se comprenderá la actuación del juez, dando paso a la transparencia y al buen entendimiento. La sociedad merece que los servidores públicos como los jueces sean transparentes en sus acciones y se debe comenzar por exponer el proceso que realizan de manera clara y sencilla.
+- Se deben implementar espacios de escucha para los ciudadanos. El juez debe ser cercano y debe poder escuchar y explicar el estado de cada caso, ya que es su deber informar y derecho de la ciudadanía a ser informada. Se debe acabar con la mala práctica del juez que no tiene comunicación ni conoce a las partes de un juicio, pues priva al juzgador de los elementos para comprender el contexto de cada caso. La cercanía con los ciudadanos no debilita al juez, al contrario lo fortalece.
+

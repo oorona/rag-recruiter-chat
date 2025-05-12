@@ -1,0 +1,71 @@
+Nombre Candidato: DELIA ICELA QUIROA FLORES VALDEZ
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó datos, sin etiquetas.
+Tags Propósito: ausencia, inexistencia, nulo, silencio, vacío
+
+
+## Descripción del Candidato 
+
+DELIA ICELA QUIROA FLORES VALDEZ es candidata a Jueza/es de Distrito en SINALOA, postulada por el Poder Ejecutivo Federal. Se identifica como mujer, pero no se proporcionó información adicional sobre su formación académica, trayectoria profesional, motivaciones para buscar el cargo, ni propuestas. 
+
+Su estatus en el sistema es "Sin captura", lo que indica la ausencia de datos registrados en la plataforma. No se dispone de información de contacto ni presencia digital.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

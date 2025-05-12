@@ -1,0 +1,80 @@
+Nombre Candidato: SAUL YAÑEZ SOTELO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5586169910
+Correo Electronico: preguntalealjuez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Postdoctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Anticorrupción, Audiencias Civiles y Familiares., Derecho, Derecho Civil, Derecho Constitucional, Derecho Empresarial, Diplomado, Doctrado, Especialidad, Género, Justicia, Licenciatura, Posdoctorado, Procedimientos Civiles, Procedimientos Familiares, Reforma Constitucional, Responsabilidad Administrativa, Seminario
+Tags Propósito: Acceso a la justicia, Burocracia, Confianza, Coordinación, Corrupción, Derechos, Eficiencia, Grupos vulnerables, Igualdad., Imparcialidad, Instituciones, Integridad, Justicia, Juzgadores federales, Juzgadores locales, Ley, Patrimonio, Protección de derechos, Servir a la gente, Sistema digital, Transparencia, Tribunales, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Saúl Yáñez Sotelo es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con un extenso perfil académico que incluye licenciatura, maestría, doctorado y posdoctorado en Derecho, así como diversos cursos especializados en áreas como justicia con perspectiva de género, derecho comparado y administrativo.
+
+Su motivación para buscar el cargo público se centra en la necesidad de autoridades que prioricen el servicio a la ciudadanía y un sistema de justicia accesible y humano. Sus propuestas incluyen la implementación de un sistema digital para agilizar la comunicación entre tribunales, la coordinación formal entre juzgadores federales y locales, y la promoción de criterios de interpretación de leyes que protejan el patrimonio y los derechos de los grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://linktr.ee/saulyanezoficial
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BMvBpTdqp/
+- https://www.x.com/SoySaulYanez
+- https://www.instagram.com/saulyanezoficial/#
+- https://www.tiktok.com/@saulyanezoficial
+- https://www.linkedin.com/in/saulyanezsotelo/
+
+
+## Cursos
+
+- Diplomado de Impartición de Justicia con Perspectiva de Género
+- ,Seminario Internacional de Dcho
+- Comparado en Anticorrupción, Responsabilidad Administrativa de los Servidores Públicos
+- ,Seminario de Derecho Constitucional enfocado a la Reforma de la Constitución de la Ciudad de México,Dirección de Audiencias Civiles y Familiares enfocado al nuevo Código Nacional de Procedimientos Civiles y Familiares,Doctorado en Derecho Civil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54982/10
+
+
+## Trayectoria Academica
+
+- Licenciatura Derecho/Maestría en Amparo/Doctorado Derecho Civil/Posdoctorado en Derecho/Especialidad Derecho Empresarial
+
+
+## Motivo para buscar el Cargo Publico
+
+México necesita autoridades que entiendan que la ley debe servir a la gente y no al revés. Esa es mi vocación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no es solo aplicar normas, sino garantizar que la justicia sea accesible, comprensible y humana. La ley debe servir a la gente, no someterla. Un Juzgador no solo resuelve conflictos, sino que fortalece la confianza en las instituciones con imparcialidad y cercanía. La verdadera justicia se siente en cada persona que recibe un trato digno. México necesita Juzgadores con vocación de servicio, que entiendan que la ley es un medio para la justicia, no un fin en sí misma.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia en México debe dejar de ser un ideal lejano para convertirse en una realidad tangible. No podemos seguir ignorando un sistema que favorece a los poderosos y deja al pueblo desamparado. La justicia es un derecho, no un privilegio. Necesitamos valentía para enfrentar a la corrupción y a aquellos que piensan que la justicia es una mercancía. Necesitamos compromiso para garantizar la integridad de nuestros Juzgadores y para luchar por un sistema que proteja a todas las personas por igual
+
+
+## Propuestas
+
+- Promover la creación de un sistema digital de comunicación eficiente entre tribunales federales y locales para agilizar el intercambio de resoluciones, notificaciones y documentos procesales. Los beneficios para la Ciudadanía serán: La Reducción significativa en los tiempos de resolución de juicios; mayor transparencia en los procedimientos judiciales; eliminación de trámites lentos y burocráticos que retrasan la justicia como lo son el envío de oficios/notificaciones físicas entre autoridades.
+- Buscar mecanismos de coordinación formal entre juzgadores federales y locales, a través de reuniones periódicas y protocolos de acción conjunta, garantizando que las resoluciones federales se ejecuten de manera más eficiente sin afectar la función jurisdiccional de los jueces locales; ni mucho menos los derechos de las partes de los juicios; ya que derivado de la nula comunicación entre autoridades federales y locales, en ocasiones se perjudica a las partes en lugar de resolver efectivamente.
+- Siendo Magistrado, impulsaré criterios de interpretación de las leyes y mecanismos de coordinación con las autoridades locales, para que la justicia civil proteja efectivamente el patrimonio y los derechos de todas las personas, y especialmente a quienes más lo necesitan, es decir, a todos los grupos vulnerables, eliminando obstáculos burocráticos y asegurando que ningún ciudadano o ciudadana quede indefenso ante la ley.
+

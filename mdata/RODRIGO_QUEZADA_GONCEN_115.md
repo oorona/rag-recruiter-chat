@@ -1,0 +1,78 @@
+Nombre Candidato: RODRIGO QUEZADA GONCEN
+Cargo: Magistratura Sala Superior del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5523279741
+Correo Electronico: rodrigo.quezada.goncen@gmail.com
+Numero de lista en boleta: 12
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Democracia, Derecho, Discurso Moral, Estado Democrático de Derecho, Género, Igualdad, Institucionalización, Jurisprudencia, Ética
+Tags Propósito: Acceso a la justicia, Certeza jurídica, Competencia judicial., Constitución, Democracia, Derechos fundamentales, División de poderes, Diálogo institucional, Estado de Derecho, Imparcialidad, Independencia judicial, Justicia electoral, Poder Judicial, Reforma procesal, Sistema electoral, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Rodrigo Quezada Goncen es candidato a la Magistratura de la Sala Superior del Tribunal Electoral del Poder Judicial de la Federación (TE del PJF) bajo el número 12 en la boleta. Licenciado en Derecho, su trayectoria se centra en la defensa del Estado Democrático de Derecho y los derechos fundamentales.
+
+Motivado por su compromiso con la democracia y la independencia judicial, propone fortalecer la función jurisdiccional maximizando los derechos, respetando el sistema democrático y el voto ciudadano, siempre dentro del marco legal. Sus propuestas incluyen el diálogo institucional con otros poderes, la reforma de la legislación procesal electoral para simplificar el acceso a la justicia y mantener la coherencia en sus criterios de resolución, guiándose por el respeto a la Constitución.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573147937644
+- https://x.com/RodrigoQueGon
+- https://www.instagram.com/rodrigo.quezada.goncen/
+- https://www.youtube.com/@RodrigoQuezadaGoncen
+- https://www.tiktok.com/@rodrigo.quezada.goncen
+- https://www.threads.net/@rodrigo.quezada.goncen
+
+
+## Cursos
+
+- Curso denominado: Jurisprudencia y Ética
+- ,Diplomado PERSPECTIVA DE GÉNERO: Herramientas para su institucionalización
+- ,Seminario: Democracia, Igualdad y Discurso Moral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/310/8
+
+
+## Trayectoria Academica
+
+- Soy licenciado en Derecho por convicción, para defender a quienes menos tienen y el Estado Democrático de Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+He sido y soy un defensor de la democracia mexicana, los derechos y la independencia judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las personas juzgadoras electorales no son simples aplicadores mecánicos de las normas, ni deben ser ciegos y sordos a los reclamos de las personas y grupos históricamente discriminados, sino que deben velar en todo momento por juzgar maximizando los derechos fundamentales, haciendo valer y respetando el sistema democrático, lo que implica dar un real peso al voto de la ciudadanía y respetar la decisión expresada en las urnas, siempre que no exista una evidente violación a principios electorales
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estoy convencido que la transformación al Poder Judicial implica un deber histórico para las personas juzgadoras, ya que no pueden ser ajenas a las exigencias de la ciudadanía y, en especial de los grupos vulnerables, por lo que deben responder con responsabilidad, honestidad, preparación, imparcialidad e independencia, a fin de lograr que la decisión de la ciudadanía sea real y en beneficio del Estado y de la sociedad, sin responder a intereses de factores reales de poder o unos cuantos
+
+
+## Propuestas
+
+- Las personas juzgadoras deben estar abiertas al diálogo institucional con los Poderes de la Unión o de las entidades federativas, así como órganos con autonomía constitucional y entender que ello no afecta la imparcialidad e independencia, sino es una condición necesaria, que, atendiendo a las reglas procesales y principios constitucionales, a fin resolver las controversias sometidas a su consideración tengan todos los elementos necesarios, para que las sentencias sean apegadas a Derecho
+- Reformar la legislación procesal electoral en un amplio diálogo con los Tribunales, los expertos en la materia, las instituciones académicas, las personas estudiosas, así como con la sociedad interesada, para reducir el número de medios de impugnación, unificar reglas y principios procesales, para que la justicia electoral sea accesible y sencilla para todas las personas y evitar que la tecnificación aleje de la justicia de los que menos tienen, al tener que pagar altos honorarios.
+- Como propuesta de actuación personal, mantendré unidad, certeza y coherencia en mis criterios, para evitar que las personas justiciables se sientan intranquilas ante cambios abruptos e injustificados en la forma de resolver. Además, seré respetuoso del Estado Democrático de Derecho, la división de poderes y el marco de actuación de facultades soberanas, teniendo como máxima que solo se pueden analizar actos cuando exista competencia expresa para ello. ¡El respeto a la Constitución será mi guía!
+

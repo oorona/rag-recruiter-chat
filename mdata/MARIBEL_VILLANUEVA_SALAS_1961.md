@@ -1,0 +1,75 @@
+Nombre Candidato: MARIBEL VILLANUEVA SALAS
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8712126234
+Correo Electronico: mavisa_2001@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: 26 años de experiencia., Amparo, Derecho Constitucional, Derecho Penal, Especialización Judicial, IJF, Justicia Penal, Procesal Penal, Secretarios de Juzgados, Secretarios de Tribunal, Sistema Acusatorio, Trayectoria Jurídica
+Tags Propósito: Accesibilidad, Derechos Humanos, Eficiencia, Imparcialidad, Impartición de Justicia, Juicios., Justicia, Protección, Rapidez, Sentencias, Sistema Judicial, Sociedad, Transparencia
+
+
+## Descripción del Candidato 
+
+Maribel Villanueva Salas es candidata a Jueza/es de Distrito en Coahuila, postulándose a través del Poder Legislativo Federal. Cuenta con 26 años de trayectoria en el ejercicio del Derecho, respaldada por una Licenciatura y Maestría en Derecho Constitucional y Amparo. Su formación incluye diversos diplomados y cursos especializados en Derecho Penal, Procesal Penal y el Nuevo Sistema de Justicia Penal Acusatorio.
+
+La candidata motiva su postulación por el deseo de acercar y facilitar el acceso a la justicia para todos los mexicanos. Su visión se centra en garantizar el acceso a la justicia, la protección de los derechos humanos y una administración de justicia eficiente, imparcial y transparente. Sus propuestas incluyen mejorar la eficiencia, transparencia y cercanía del sistema judicial, garantizar la accesibilidad a la justicia para todo el pueblo mexicano y agilizar la resolución de juicios con sentencias claras y rápidas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574127727678
+- https://www.instagram.com/maribelvillanueva_/
+- https://www.tiktok.com/@maribel.villa_
+
+
+## Cursos
+
+- Diplomado en Derecho Penal, Procesal Penal y Amparo en Materia Penal,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la perspectiva constitucional
+- ,Curso de Preparación y capacitación para Secretario de Tribunal Unitario y Colegiado de Circuito en el IJF,Curso de Preparación y Capacitación de Secretario de Juzgados de Distrito del IJF,Curso de Especialización Judicial para Secretarios de Juzgados, Tribunales y Secretarios de la Corte en el IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55565/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho con Maestría en Derecho Constitucional y Amparo, con 26 años de trayectoria en el ejercicio del Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero que la justicia sea ejercida con cercanía y accesibilidad para todas y todos los mexicanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar el acceso a la justicia y la protección de los derechos humanos. Una administración de justicia eficiente, imparcial y transparente, que responda a las necesidades de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Renovar el sistema judicial para que sea más accesible, eficiente e imparcial, así como garantizar la transparencia en los procesos judiciales.
+
+
+## Propuestas
+
+- Justicia más eficiente, transparente y cercana a la gente.
+- Justicia accesible para todo el pueblo mexicano.
+- Mejorar la impartición de justicia, resolviendo los juicios en cortos tiempos, emitiendo sentencias claras y rápidas
+

@@ -1,0 +1,76 @@
+Nombre Candidato: GUSTAVO GARCIA ARIAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5521141644
+Correo Electronico: gustavogarciamh@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Certificación, Common Law, Consejo Judicial California, Doctorado en Derecho, Estados Unidos., Intérprete Judicial, Sistema Jurídico
+Tags Propósito: Activismo ciudadano, Ambientalismo urbano, Asesor jurídico, Austeridad, Capitación judicial, Corrupción inmobiliaria, Datos masivos., Inteligencia Artificial, Jurisprudencia, Litigio, Nepotismo, Poder Judicial, Sentencias justas, Sesgos judiciales, Transformación de México, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Gustavo García Arias es candidato a Magistratura de Tribunales Colegiados de Circuito para la Ciudad de México, postulándose al Poder Judicial de la Federación y al Poder Legislativo Federal. Cuenta con doctorado en Derecho, cursado en Estados Unidos, y cuenta con certificación como Intérprete Judicial por el Consejo Judicial de California.
+
+Su trayectoria incluye activismo ciudadano, defensa del medio ambiente urbano, litigio y asesoría a víctimas de corrupción inmobiliaria.  En su visión sobre la función jurisdiccional, destaca el alejamiento de la sociedad y la corrupción en el sistema judicial. Sus propuestas centrales incluyen la erradicación de la corrupción y el nepotismo en el Poder Judicial, la adopción de inteligencia artificial para mejorar la transparencia y la eficiencia, y la consolidación de un Poder Judicial austero y cercano a la población.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://www.gustavogarcia.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/GustavoGarciaMH
+- https://x.com/GustavoGarciaMH
+- https://www.instagram.com/gustavogarciamh
+- https://www.youtube.com/@GustavoGarciaMH
+- https://www.tiktok.com/@gustavogarciamh
+
+
+## Cursos
+
+- INTÉRPRETE JUDICIAL CERTIFICADO Consejo Judicial de California (Corte Criminal), Estados Unidos de América
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53098/10
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho en Estados Unidos de América, orientado al sistema jurídico basado en el common law
+
+
+## Motivo para buscar el Cargo Publico
+
+He sido activista ciudadano, ambientalista urbano, litigante y asesor víctimas de corrupción inmobiliaria.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Soy un activista ciudadano y ambientalista urbano. Como litigante y asesor jurídico de víctimas de corrupción inmobiliaria, he conocido a decenas de personas juzgadoras federales. He sido testigo del alejamiento de la sociedad y de niveles preocupantes de corrupción.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Existe la necesidad de una infraestructura tecnológica adecuada, capacitación continua del personal judicial, y la implementación de Inteligencia Artificial, considerando aspectos éticos, para asegurar sentencias justas, transparentes y expeditas.
+
+
+## Propuestas
+
+- Limpiar de corrupción y nepotismo al Poder Judicial de la Federación.
+- Acelerar la adopción de inteligencia artificial (IA) para analizar grandes volúmenes de datos y jurisprudencia, ayudando a identificar posibles sesgos en las decisiones judiciales y asegurar mayor transparencia en el sistema judicial.
+- Consolidar la transformación de México a través de un Poder Judicial austero, libre de privilegios y cercano al pueblo.
+

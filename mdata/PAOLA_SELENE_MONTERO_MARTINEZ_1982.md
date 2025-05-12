@@ -1,0 +1,78 @@
+Nombre Candidato: PAOLA SELENE MONTERO MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8701479562
+Correo Electronico: montero.paola19@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuaría, Derechos Fundamentales., Derechos Humanos, Formación Judicial, Juicio de Amparo, Licenciatura en Derecho, Maestría, Poder Judicial de la Federación, Razonamiento Probatorio, Secretariado Judicial, Suprema Corte
+Tags Propósito: Acatamiento a la ley, Bienestar social, Cercanía, Democracia, Derechos, Educación, Equilibrio, Honestidad, Infancia, Justicia, Libertades, Puertas abiertas, Resolución de controversias, Responsabilidad social, Sensibilidad social, Sistema de Justicia, Supervisión de expedientes, Transformación, Transparencia, Voto.
+
+
+## Descripción del Candidato 
+
+Paola Selene Montero Martinez es candidata a Jueza/es de Distrito en Coahuila, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Maestría en Derechos Humanos y cédula profesional, además de diversos cursos de especialización en áreas como juicio de amparo, derechos fundamentales y razonamiento probatorio.
+
+Su motivación para buscar el cargo es contribuir a la transformación del sistema de justicia en México. Su visión de la función jurisdiccional se centra en la preparación, honestidad y sensibilidad de los juzgadores, priorizando la cercanía con la ciudadanía y la resolución eficiente de controversias. Sus propuestas incluyen un sistema de supervisión de expedientes para evitar retrasos, una política de puertas abiertas para fomentar la transparencia, y la inclusión de programas educativos sobre derechos y libertades en la educación básica.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1GxwE7Pk3m/?mibextid=wwXIfr
+- https://www.instagram.com/paolamontero_mx?igsh=b3V1aXZsNHh5cDZy&utm_source=qr
+- https://www.tiktok.com/@paolamontero_mx?_t=ZS-8uvjfI4qU20&_r=1
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, Suprema Corte de Justicia de la Nación, Casa de la Cultura Jurídica Colima
+- ,Curso titulado ¿Interpretación y aplicación judicial de los derechos fundamentales¿, Universidad de Castilla la Mancha
+- ,Acreditación el curso Introducción al razonamiento probatorio
+- Instituto de la Judicatura Federal, Escuela Judicial
+- ,Acreditación del Curso escolarizado de formación para personas secretarias del Poder Judicial de la Federación
+- ,Acreditación del Curso de formación para personas actuarias del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53996/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestría en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+A través del desempeño de mi función quiero aportar a la transformación del nuevo sistema de justicia en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse por personas preparadas, honestas y sensibles a los problemas actuales del pueblo de México, escuchando en todo momento a las personas y manteniendo una cercanía constante a fin de resolver las controversias de una manera real y justa, sin retrasos innecesarios para que la sociedad no se sienta abandonada por sus representantes en el Poder Judicial, siempre ejerciéndose con la responsabilidad social que tal honor merece.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe buscar siempre el equilibrio y el bienestar de todas y todos los mexicanos, sin favorecer a personas o grupos determinados que históricamente han sido favorecidos.
+
+
+## Propuestas
+
+- Mantener un sistema estricto de supervisión de los expedientes que se encuentran radicados en el órgano jurisdiccional, a fin de evitar retrasos en la impartición de justicia innecesarios por ende un agravio directo a las partes involucradas.
+- Politica de puertas abiertas, es decir, se debe escuchar atentamente a todas y cada una de las personas que tienen un genuino interés en conocer la función y desempeño de sus representantes en el Poder Judicial, así la sociedad podrá corroborar y legitimar las decisiones de sus juzgadores o bien, en su caso solicitar que se investiguen.
+- Justicia educada, es decir, con la democratización de la justicia se torna necesario que a las infancias de nuestro país se les proporcione desde los grados básicos de educación un programa encaminado a conocer sus derechos y libertades, así como la responsabilidad de estricto acatamiento a la ley para que logren comprender la importancia de la administración de justicia y con el transcurso del tiempo ejerzan su voto.
+

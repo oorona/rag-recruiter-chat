@@ -1,0 +1,75 @@
+Nombre Candidato: MARIANA AGUILAR AGUILAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Bloque de Constitucionalidad, Derecho, Derechos Humanos, EFFJ, Gestión Judicial, ITAM, Igualdad de Género, Licenciatura en Derecho, Maestría, Poder Judicial Federal., Universidad Austral, Violencia
+Tags Propósito: Adaptación, Autocrítica, Confianza, Derechos, Empatía, Equipos diversos, Escucha, Formalismos, Impacto social, Imparcialidad, Justicia cercana, Justicia humana, Lenguaje claro, Liderazgo, Mejora continua, Procesos ágiles, Responsabilidad., Sensibilidad social, Servicio público, Soluciones de fondo, Transparencia, Trato digno, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Mariana Aguilar Aguilar es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose desde el Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y actualmente cursa dos maestrías: una en Gestión Judicial y otra en Derecho. Su formación incluye diplomados en Argumentación Jurídica y aplicación del bloque de constitucionalidad, así como cursos sobre género, igualdad y derechos humanos impartidos por el EFFJ.
+
+La candidata expresa su motivación para el cargo como una vocación de servicio público, buscando aportar conocimiento y experiencia para una justicia más humana. Su visión se centra en una función jurisdiccional que priorice la escucha y protección de los derechos de las personas, con resoluciones claras, imparciales y bien fundamentadas. Sus propuestas incluyen colocar a las personas en el centro del proceso judicial, emitir resoluciones oportunas y bien fundamentadas, y fomentar equipos de trabajo diversos y comprometidos con la ética y la adaptación a nuevas realidades.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15wQAsRwpe/?mibextid=wwXIfr
+- https://x.com/maguilarag?s=21
+- https://www.instagram.com/maguilarag.pjf
+- https://www.tiktok.com/@maguilarag
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica, Universidad Panamericana, 2017, 120 hrs,Diplomado La aplicación judicial del bloque de constitucionalidad, Instituto de Investigaciones Jurídicas, 2016, 150 hrs,Curso Género como herramienta para la igualdad, EFFJ, 2023, 65 hrs,Curso para generar espacios libres de violencia, EFFJ, 2023, 12 hrs,Curso El Poder Judicial Federal y el derecho internacional de los derechos humanos, EFFJ, 2013
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52201/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y profesora ITAM
+- Maestrías en curso: Gestión Judicial y en Derecho, EFFJ y Universidad Austral
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque mi vocación es el servicio público y quiero aportar mi conocimiento y experiencia para una justicia más humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene un propósito: escuchar a las personas y proteger sus derechos. Implica generar confianza en las decisiones mediante resoluciones claras, imparciales y bien fundamentadas. Es un servicio público de alta responsabilidad que exige ética, técnica y sensibilidad social. Requiere liderazgo y equipos sólidos y diversos. Debe adaptarse al cambio, responder a nuevas realidades y evolucionar con cada reto. No se trata solo de aplicar la ley, sino de hacer lo correcto.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe sentirse cercana, útil y confiable. No solo se trata de dictar sentencias, sino de garantizar un trato digno, lenguaje claro, procesos ágiles y resoluciones de calidad. Resolver en justicia no basta si no se hace a tiempo, con empatía y transparencia. Impartir justicia exige sensibilidad ante las barreras del sistema y un compromiso con la mejora continua. Es priorizar las soluciones de fondo, evitar formalismos, escuchar a las personas y proteger sus derechos.
+
+
+## Propuestas
+
+- Colocar a las personas en el centro de la función jurisdiccional, reconociendo sus vivencias y entendiendo sus necesidades. Fortalecer el lenguaje claro y el trato digno en todas las etapas del proceso, incluidas las sentencias, para que las personas se sepan escuchadas y comprendan lo que se decide y por qué. Como hasta ahora, mantendré mi puerta abierta para escuchar, orientar y construir justicia de la mano de quienes la buscan y necesitan.
+- Emitir resoluciones claras, oportunas y bien fundamentadas, que generen confianza y tengan un impacto real en la vida de la gente. Impulsar una cultura institucional orientada a soluciones de fondo, con menos apego al formalismo y plena conciencia del poder transformador de cada decisión.
+- Apostar por equipos diversos, preparados y comprometidos, porque la justicia no se construye sola. Ejercer la función con ética, liderazgo, responsabilidad, autocrítica y capacidad de adaptación.
+

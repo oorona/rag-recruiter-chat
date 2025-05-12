@@ -1,0 +1,78 @@
+Nombre Candidato: JAVIER ARTURO CAMPOS SILVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: javier167@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derechos Fundamentales, Derechos Humanos, Docencia., Doctorado en Derecho, Especialista, Formación, Investigación, Justicia Constitucional, Máster, Poder Judicial, Universidad Castilla la Mancha
+Tags Propósito: Acceso a la información, Acceso a la justicia, Capacitación juzgadores, Confianza ciudadana, Derechos humanos., Dignidad humana, Eficiencia judicial, Empatía, Equidad, Estado de Derecho, Jueces independientes, Justicia con rostro humano, Justicia humana, Optimización de recursos, Paz social, Resolución de conflictos
+
+
+## Descripción del Candidato 
+
+JAVIER ARTURO CAMPOS SILVA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal en la Ciudad de México.  Cuenta con doctorado en Derecho Constitucional, especialización en Justicia Constitucional y un máster en Argumentación Jurídica, así como diversos cursos de formación en derechos humanos y justicia. 
+
+Su motivación para el cargo público se basa en una vocación de servicio, buscando impulsar una justicia humana, equitativa y digna. Propone un sistema judicial fuerte, eficiente y accesible, con jueces independientes y bien preparados. Sus propuestas clave incluyen la sensibilidad en la toma de decisiones, el acceso a la información y la optimización de recursos, siempre priorizando el bienestar de las personas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/javierarturo.campossilva
+- https://x.com/javiercampos167
+- https://www.instagram.com/javiercampos975
+- https://www.youtube.com/javierarturocampossilva1527
+- https://www.tiktok.com/@javicamp
+
+
+## Cursos
+
+- Especialidad en Justicia Constitucional, interpretación y tutela de los Derechos Fundamentales
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Estancia de investigación Departamento de Ciencia Jurídica y Derecho Público de la Universidad de Castilla la Mancha,Docente certificado en temas de ¿Derechos Humanos¿,Máster en Argumentación Jurídica (VII Edición), Campus Universitario de San Vicente del Raspeig, Alicante ¿ España
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52639/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho Constitucional, Máster en Argumentación Jurídica y Especialista en Justicia Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de servicio, quiero impulsar una justicia humana, equitativa y digna para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Busco un sistema judicial fuerte, pilar del Estado de Derecho, que dé justicia rápida, justa y para todos. Quiero jueces independientes, sin presiones, que trabajen con agilidad y estén bien preparados. Mi sueño es que los tribunales resuelvan conflictos, protejan derechos, traigan paz social y ganen la confianza de la gente con un servicio moderno y humano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia consiste en alcanzar un sistema judicial que garantice el acceso equitativo y efectivo a la justicia para todas las personas, sin importar su condición social, económica o ubicación geográfica; esto implica entre otras cosas: 1) Eficiencia en la resolución de conflictos, 2) Acceso universal a los tribunales y 3) Capacitación continua de los juzgadores. Lo anterior con la finalidad de fomentar la confianza de los ciudadanos en la justicia.
+
+
+## Propuestas
+
+- Sensibilidad en la toma de decisiones. La justicia con rostro humano exige que los juzgadores no se limiten a aplicar la ley de manera mecánica, sino que actúen como verdaderos guardianes de la dignidad humana. Ser juzgador implica escuchar con empatía las historias detrás de cada caso, comprender el contexto social, cultural y emocional de las partes involucradas y tomar decisiones que reflejen un equilibrio entre la norma y la humanidad.
+- Acceso a la información. Una justicia con rostro humano no puede existir si las personas no comprenden ni tienen acceso claro a los procesos que determinan sus derechos y obligaciones. El acceso a la información debe ser un puente que conecte a las y los ciudadanos con la justicia, eliminando barreras de lenguaje, tecnicismos o distancia geográfica.
+- Optimización de recursos. La justicia con rostro humano requiere que los recursos disponibles se utilicen de manera eficiente, pero siempre priorizando el bienestar de las personas y no solo la burocracia. Optimizar recursos no significa recortar, sino redistribuirlos con sensibilidad hacia las necesidades reales de la sociedad. Propongo una gestión eficiente de los recursos disponibles en el órgano jurisdiccional.
+

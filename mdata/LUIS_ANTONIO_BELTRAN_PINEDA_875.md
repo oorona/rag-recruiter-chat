@@ -1,0 +1,80 @@
+Nombre Candidato: LUIS ANTONIO BELTRAN PINEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Acceso a la Justicia, CNDH, Constitucional, Derechos Humanos, Derechos de la Infancia, Especialidad, Género, Instituto de la Judicatura Federal, Juicio de Amparo, Justicia Transicional, Maestrías, SCJN, Sistema Interamericano de Derechos Humanos, Tec de Monterrey.
+Tags Propósito: acceso a la justicia, armonización legislativa, cooperación judicial, corrupción, derechos humanos, diversidad, estado de confianza, igualdad, independencia judicial, juicio de amparo, justicia, libertad, paridad de género, perspectiva democrática., pluriculturalidad, resolución expedita, servicio público, transparencia, ética profesional
+
+
+## Descripción del Candidato 
+
+LUIS ANTONIO BELTRAN PINEDA es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal en la Ciudad de México. Cuenta con Maestría y cédula profesional, además de diversos diplomados y cursos en áreas como Juicio de Amparo, Derechos Humanos y Justicia Transicional.
+
+Su motivación para buscar el cargo es impartir justicia cercana, con igualdad y libertad para todos. Su visión de la función jurisdiccional se centra en la persona, los derechos humanos y la armonización de los poderes del Estado. Sus propuestas incluyen el establecimiento de códigos de ética y programas contra la corrupción y el nepotismo, incentivar la cooperación entre el Poder Judicial Federal y los locales, y promover una política de Estado para armonizar el sistema de protección de los derechos humanos y mejorar el juicio de amparo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/luisbeltranp.oficial
+- https://www.x.com/luisbeltranp_
+- https://www.instagram.com/luisbeltranp_
+- https://www.tiktok.com/@luisbeltranp_?_t=ZM-8uzAguzLKw1&_r=1
+- http://www.linkedin.com/in/luis-beltrán-0194b520b
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, SCJN
+- ,Diplomado en Sistema Interamericano de Derechos Humanos
+- ,Diplomado en Derechos Humanos y Género, Instituto de la Judicatura Federal
+- ,Curso sobre los derechos de la infancia y el acceso a la justicia, SCJN
+- ,Curso Justicia transicional, CNDH
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52447/10
+
+
+## Trayectoria Academica
+
+- Tengo dos Maestrías (Derechos Humanos y Constitucional)
+- Cursé una especialidad y soy abogado del Tec de Monterrey
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero impartir justicia cercana a cada grupo social, garantizando igualdad y libertad a todas las voces que la clamen.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Confío firmemente en que la función jurisdiccional constituye un área del servicio público cuyo eje fundamental es la persona y la administración de justicia basada en las libertades y diversidades que definen a nuestra sociedad mexicana, bajo un estándar de igualdad y protección a los derechos humanos, armonizando las distintas tareas y poderes del Estado, bajo el mandato de nuestra Constitución.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Tengo la convicción de que el compromiso de impartir justicia implica crear un estado de confianza y credibilidad, a través del buen juzgar, no sólo en el estudio de expedientes, sino en la humanización de cada asunto. Juzgar es escuchar y atender las múltiples y diversas voces que conforman nuestra compleja pero hermosa sociedad mexicana, que desde una perspectiva democrática, es pluricultural y debe sustentarse en principios de respeto y garantía del ejercicio de los derechos humanos.
+
+
+## Propuestas
+
+- Establecer códigos y lineamientos de ética profesional, manuales de vigilancia y programas de estudio que garanticen una impartición de justicia libre de corrupción y respete los principios de paridad de género, atendiendo también la inclusión de otros grupos como la diversidad sexual y la pluriculturalidad; y eliminar toda forma de nepotismo mediante registros de parentesco y reportes continuos a los órganos encargados de la administración y vigilancia de los tribunales.
+- Incentivar la cooperación entre el Poder Judicial Federal y los poderes judiciales locales, para incrementar la calidad de la justicia desde todos los ámbitos de su impartición, y con ello, garantizar la resolución expedita de los asuntos en cumplimiento al artículo 17 Constitucional, inhibiendo la emisión de resoluciones contradictorias, en extremo inmensas y técnicas, para generar documentos que sean de fácil comprensión y garanticen la atención y reparación del derecho vulnerado.
+- Establecer una política de Estado en conjunto con los diversos poderes (Ejecutivo y Legislativo) a efecto de garantizar la armonización del sistema en protección de los derechos humanos, con respeto a la independencia de cada función estatal, pero trabajando bajo una noción humana del servicio público, y con ello, instrumentar medidas para una mejora legislativa del juicio de amparo como una verdadera herramienta excepcional de protección de derechos fundamentales.
+

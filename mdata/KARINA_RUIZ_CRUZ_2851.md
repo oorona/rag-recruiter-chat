@@ -1,0 +1,80 @@
+Nombre Candidato: KARINA RUIZ CRUZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8117634742
+Correo Electronico: arinak27@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Procesal Penal, Derechos Humanos, Diplomado, Formación, Igualdad de Género, Juicio de Amparo, Licenciatura, Maestría., Poder Judicial, Violencia
+Tags Propósito: Acceso a la Justicia, Celeridad, Conciliación, Debido Proceso, Derechos Humanos, Desempeño Judicial., Eficiencia, Evaluación Judicial, Grupos Vulnerables, Honestidad, Imparcialidad, Independencia, Justicia, Legalidad, Lenguaje Accesible, Medios Electrónicos, Plazos Procesales, Profesionalismo, Simplificación Procesal, Transparencia, Trato Digno
+
+
+## Descripción del Candidato 
+
+Karina Ruiz Cruz es candidata a Jueza/es de Distrito en Nuevo León, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal Penal y licenciatura en Derecho, respaldada por cédula profesional. Su formación incluye cursos en áreas como derechos humanos, juicio de amparo, igualdad de género y prevención de la violencia.
+
+Su motivación para el cargo se basa en su experiencia, compromiso social y deseo de generar un cambio positivo en la impartición de justicia.  Su visión se centra en principios de profesionalismo, honestidad, imparcialidad y acceso a la justicia, con especial atención a los derechos humanos y grupos vulnerables.  Sus propuestas principales son agilizar los procesos judiciales, fortalecer el acceso a la justicia mediante campañas de difusión y promoción, y promover un ejercicio imparcial y transparente de la función judicial a través de mecanismos de evaluación y canales de sugerencias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18U19k6BLX/
+- https://x.com/Karina_ruizcruz?t=isc1L0tddShrCxUF62nt6g&s=08
+- https://www.instagram.com/karina.ruiz.cruz?igsh=MWZiZHA2djBodmczYQ==
+- https://www.youtube.com/@karinaruiz9596
+- https://www.tiktok.com/@karinaruizcruz3?_t=ZM-8v6fn7VEz6z&_r=1
+- https://www.linkedin.com/in/karina-ruiz-cruz-7152b9358/
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secterarios del Poder Judicial de la Federación
+- ,Diplomado en Derechos Humanos
+- ,Diplomado sobre Juicio de Amparo, Casa de la Cultura Jurídica
+- ,Curso de género como herramienta para la igualdad
+- ,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54622/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestra en Derecho Procesal Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con experiencia, compromiso social y determinación para generar un cambio positivo en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se encuentra cimentada en los principios de profesionalismo, honestidad, imparcialidad, objetividad, independencia y acceso a la justicia. En la que los litigios se deben resolver atendiendo a la legalidad, debido proceso y progresividad de los derechos humanos. Con un enfoque garantista y de respeto hacia los grupos vulnerables. Además, el trato digno hacia las personas usuarias y hacia el personal de los órganos jurisdiccionales es prioridad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En mi visión de impartición de justicia, la protección y progresividad de los derechos humanos son el eje rector para la toma de decisiones. Esto implica que las resoluciones de los tribunales sean imparciales, conforme a derecho corresponda, pero sin dejar de visibilizar las necesidades sociales, lo que derivará en un sentido humano de la justicia. También, debe garantizarse que se respeten los plazos procesales, para, de esta forma, impartir una justicia integral.
+
+
+## Propuestas
+
+- Agilizar procesos judiciales. Reducir los plazos mediante la simplificación de los procedimientos, promover la conciliación entre las partes cuando la ley lo permita, y concentrar audiencias para dictar sentencias en el menor tiempo posible. También es necesario el uso de medios electrónicos para notificaciones, garantizar la integración expedita de los expedientes y evitar el diferimiento de audiencias, mejorando la eficiencia y celeridad de la función jurisdiccional.
+- Fortalecer el acceso a la justicia. Implementar campañas de promoción y difusión de los derechos humanos, con el objetivo de romper las barreras sociales y garantizar que todas las personas, especialmente los grupos vulnerables conozcan el funcionamiento de los órganos jurisdiccionales y que pueden acceder a sus servicios de manera gratuita. Además, se debe priorizar un trato digno, humano y con lenguaje accesible hacia todas las personas.
+- Promover un ejercicio imparcial y transparente. Establecer mecanismos que garanticen que todas las personas que acudan a un órgano jurisdiccional, tengan la certeza de que los asuntos se resolverán de manera imparcial, respetando la igualdad entre las partes, y garantizando el acceso a los juzgadores. Además, implementar mecanismos de evaluación continua del desempeño judicial, y abrir canales accesibles de sugerencias y quejas para detectar irregularidades y mejorar el servicio público.
+

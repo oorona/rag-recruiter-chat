@@ -1,0 +1,74 @@
+Nombre Candidato: MANUEL MONTES DE OCA COLIN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7223806737
+Correo Electronico: drmanuelmc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Penales, Derecho, Derecho Parlamentario, Derecho Procesal Constitucional, Derecho de Amparo, Doctorado, Especialista., Felicitación Especial, Justicia Constitucional, Licenciatura, Maestría, Mejor Promedio, Poder Judicial de la Federación, Universidad Autónoma del Estado de México, Universidad Panamericana
+Tags Propósito: Acceso a la justicia, Capacitación, Constitución, Derechos fundamentales, Derechos laborales, Dignidad humana, Eficiencia, Formación humana, Igualdad, Imparcialidad, Jurisprudencia, Justicia, Proceso judicial, Rendición de cuentas, Resolución de conflictos, Transparencia, Tribunal Colegiado., Ética
+
+
+## Descripción del Candidato 
+
+MANUEL MONTES DE OCA COLIN es candidato a Magistratura de Tribunales Colegiados de Circuito en el Poder Judicial de la Federación. Cuenta con un extenso perfil académico, incluyendo un Doctorado y múltiples especializaciones en Derecho, incluyendo Derecho Parlamentario, Procesal Constitucional y Ciencias Penales, obteniendo reconocimiento por su desempeño durante su Licenciatura.
+
+Su motivación para buscar el cargo es aportar sus conocimientos y experiencia al servicio del país, enfocándose en una impartición de justicia eficiente, accesible y con calidad humana. Sus propuestas centrales incluyen transparentar los procesos de toma de decisiones mediante la apertura de audiencias públicas, implementar programas de capacitación continua para el personal del Tribunal Colegiado, y rendir cuentas trimestrales a la ciudadanía sobre los resultados de las sesiones y la resolución de casos relevantes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15uVKR3BdQ/?mibextid=wwXIfr
+- https://www.instagram.com/manuel__montesdeoca?igsh=MW9vZnJ5bXVncm55bg==
+- https://www.tiktok.com/@manuelmontesdeocac?_t=ZM-8uwTgTOiUCb&_r=1
+
+
+## Cursos
+
+- Licenciado en Derecho con Felicitación Especial por Escrito por la Universidad Autónoma del Estado de México
+- ,Maestro en Derecho y Justicia Constitucional por la Universidad Autónoma del Estado de México,Especialista en Curso Básico de Secretarios y Secretarias del Poder Judicial del a Federación (Mejor promedio),Especialista en Derecho de Amparo por la Universidad Panamericana,Doctor en Derecho Parlamentario, Doctor en Derecho Procesal Constitucional y Doctor en Ciencias Penales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54349/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho Parlamentario, Doctor en Derecho Procesal Constitucional y Doctor en Ciencias Penales
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero aportar mis conocimientos y experiencia al servicio de mi país impartiendo justicia con calidad humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser eficiente de tal manera que garantice a todas y todos el acceso efectivo a la justicia, sin importar su estatus social, económico o cultural; la justicia constitucional tiene la noble encomienda de revisar las decisiones judiciales de manera exhaustiva, buscando siempre el equilibrio entre el derecho vigente y los principios fundamentales que rigen nuestra Constitución, tales como la dignidad humana, la igualdad, la interpretación conforme y la convencionalidad
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser coherente y socialmente responsable; debe siempre valorar que en el caso de un Tribunal Colegiado de Circuito es por regla general un órgano jurisdiccional terminal, por tanto, sus decisiones serán la última palabra para los justiciables, quienes confían plenamente en que el dictado de las resoluciones que pongan fin a su controversia sean emitidas con ética, pleno conocimiento del derecho y, principalmente, bajo el principio de dignidad humana e imparcialidad
+
+
+## Propuestas
+
+- Transparentar los procesos de toma de decisiones: Conminar a las partes a asistir a las audiencias públicas donde el Pleno del Tribunal Colegiado debate plenamente sobre la determinación que deberá imperar bien por unanimidad o por mayoría de votos, con la emisión de votos particulares y concurrentes con responsabilidad social y convencidos en que debe preferirse la resolución de fondo por encima de formalismos procesales innecesarios.
+- Capacitación constante: A todo el personal que integra el Tribunal Colegiado a través de cursos de actualización no solo de formación judicial, sino también de formación humana; en respeto absoluto de sus derechos laborales y familiares, evitando cargas excesivas de trabajo y jornadas inhumanas que trascienden en el desempeño de la función jurisdiccional y el trato digno hacia los justiciables que acuden al Tribunal a darle trámite a sus procesos.
+- Rendición de cuentas trimestrales: Dar a conocer a la ciudadanía públicamente los resultados de cada una de las sesiones que el Pleno del Tribunal Colegiado celebra semanalmente, haciendo conferencias, seminarios, ruedas de prensa, cursos y clases en Universidades, sobre la resolución de los casos emblemáticos y la integración de jurisprudencia.
+

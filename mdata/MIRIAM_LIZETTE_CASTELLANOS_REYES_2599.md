@@ -1,0 +1,76 @@
+Nombre Candidato: MIRIAM LIZETTE CASTELLANOS REYES
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3312809772
+Correo Electronico: miriamlizettecastellanosreyes@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarial, Derecho Laboral, Derecho de Seguridad Social, Derechos Humanos, Formación Continuada., Valoración de la Prueba
+Tags Propósito: Acceso a la justicia, Cercanía, Confianza, Derechos laborales, Dignidad humana, Diálogo social, Equidad, Fortalecimiento judicial., Justicia laboral, Legalidad, Participación ciudadana, Resolución de conflictos, Sistema judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+Miriam Lizette Castellanos Reyes es candidata a Jueza/es de Distrito en Jalisco, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Especialidad y cédula profesional, complementada por estudios en Derecho de Seguridad Social, Derecho Laboral, cursos de Derechos Humanos y valoración de la prueba. 
+
+Su motivación para buscar el cargo público se centra en promover la equidad y la justicia en el ámbito laboral. Su visión implica transformar la función jurisdiccional y la impartición de justicia en espacios cercanos y transparentes, donde se garantice el respeto a los derechos y se fortalezca el sistema judicial laboral a través del diálogo con organizaciones y sindicatos. Sus propuestas incluyen asegurar el cumplimiento de los procedimientos legales, generar espacios de diálogo laboral y garantizar un trato justo y respetuoso en cada caso.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://miriamlizettecastellanosreyes.my.canva.site/#page-0
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1MxMRDq8eh/?mibextid=qi2Omg
+- https://x.com/LizetteRey38977?t=RpN68tZZl77gKSJbJU6MjQ&s=08
+- https://www.instagram.com/miriam_castellanos_laboral?igsh=anJrbzVlZHIxdnox
+- https://www.tiktok.com/@miri.castellanos0?_t=ZM-8ussrWqujy9&_r=1
+- https://www.linkedin.com/in/miriam-lizette-castellanos-reyes-196070280/?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- ESPECIALIDAD EN EL DERECHO DE SEGURIDAD SOCIAL,ESPECIALIDAD EN DERECHO LABORAL,CURSO BASICO DE ACTUARIO 2021,CURSOS DE DERECHOS HUMANOS,VALORACIÓN DE LA PRUEBA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52642/11
+
+
+## Trayectoria Academica
+
+- Tengo un compromiso profundo con el estudio y la práctica del derecho laboral y seguridad social
+
+
+## Motivo para buscar el Cargo Publico
+
+Para promover la equidad y la justicia en el ámbito laboral, que es la columna de nuestra economía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Transformar la función jurisdiccional en un espacio donde la justicia no sea solo un concepto abstracto, sino una realidad vivida por todos los ciudadanos. Nuestro compromiso es construir un sistema que sea cercano y abierto, donde cada persona se sienta parte activa del proceso judicial, entendiendo y ejerciendo sus derechos, y confiando en la efectividad del sistema para resolver sus conflictos y garantizar la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Transformar la percepción y experiencia de la justicia en la comunidad, estableciendo un sistema que no solo actúe como garante de derechos, sino que también sea un aliado cercano en la construcción de una sociedad más justa y equitativa. Adoptando prácticas de transparencia en todos los procedimientos judiciales, asegurando que el proceso y las decisiones sean comprensibles y visibles para la población. Hacer del conocimiento a las personas de las resoluciones que se emiten en el Tribunal.
+
+
+## Propuestas
+
+- Aspiro a contribuir al fortalecimiento del sistema judicial en materia laboral, asegurando que se sigan los procedimientos adecuados y que las decisiones estén fundamentadas en la legalidad, la equidad y el respeto a la dignidad humana.
+- Estoy dispuesto a trabajar estrechamente con organizaciones y sindicatos, para asegurar que se generen espacios de diálogo en los que se puedan abordar las problemáticas laborales.
+- Me comprometo a escuchar y valorar cada caso, garantizando que se respeten sus derechos y se les otorgue un trato justo.
+

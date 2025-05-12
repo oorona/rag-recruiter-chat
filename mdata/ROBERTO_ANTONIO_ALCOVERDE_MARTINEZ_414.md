@@ -1,0 +1,77 @@
+Nombre Candidato: ROBERTO ANTONIO ALCOVERDE MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6141128899
+Correo Electronico: rantonito33@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Internacional Humanitario, Derecho de las Telecomunicaciones, Derechos Conexos, Derechos Humanos, Derechos de Autor, Doctorado en Derecho, INDEPAC, Instituto Investigaciones Jurídicas., Instituto Mexicano de la Propiedad Industrial, Instituto de la Judicatura Federal, Interpretación Constitucional, Licenciatura en Derecho, Maestría en Derecho, UNAM, Universidad Autónoma de Chihuahua
+Tags Propósito: Accesibilidad, Actualización, Calidad, Capacitación, Derechos Humanos, Desigualdad, Dignidad, Discriminación, Empatía, Honestidad, Igualdad, Imparcialidad, Justicia, Necesitados, Nepotismo, Procesos Jurisdiccionales., Responsabilidad, Sensibilidad, Servicio Público, Servidores Públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+ROBERTO ANTONIO ALCOVERDE MARTINEZ es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose para el Poder Legislativo Federal en Chihuahua. Cuenta con estudios de Doctorado en Derecho y una trayectoria de 26 años en la justicia federal. Su motivación para buscar el cargo es servir a la sociedad con conocimiento, honestidad y respeto.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en la cercanía con la sociedad, especialmente con los más necesitados, promoviendo una justicia empática, accesible, transparente y gratuita. Sus propuestas incluyen la sensibilización y capacitación de los servidores públicos judiciales en relaciones humanas y atención al público, la rendición de cuentas y transparencia en la actividad judicial, y la actualización constante y evaluación del desempeño de los juzgadores, así como la promoción de procesos jurisdiccionales equitativos a nivel nacional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574105397313
+- https://www.instagram.com/robertoalcoverde/
+- https://www.tiktok.com/@roberto.alcoverde?_t=ZM-8ucsl33vXqY&_r=1
+
+
+## Cursos
+
+- Primer Seminario de Derecho Internacional Humanitario (Instituto de la Judicatura Federal)
+- ,Seminario Interpretación Constitucional (Instituto de la Judicatura Federal)
+- ,Diplomado en Derechos Humanos Jorge Carpizo (Instituto Investigaciones Jurídicas UNAM)
+- ,Seminario delitos en materia de Derechos de Autor y Derechos Conexos (Instituto Mexicano de la Propiedad Industrial)
+- ,Curso Derecho de las Telecomunicaciones (Instituto de la Judicatura Federal)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52259/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho en Universidad Autónoma de Chihuahua; Maestría y Doctorado en Derecho en INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la sociedad con respeto, conocimiento y honestidad, con el respaldo de 26 años en la justicia federal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Reinventarse en favor de la sociedad, dejando atrás vicios y prácticas que la mantenían alejada e insensible al clamor de la gente, sobre todo de la más necesitada, para ahora, escucharla y resolver con cercanía, honestidad, respeto, conocimiento y sensibilidad, sus problemas de justicia y desigualdad, garantizando siempre la defensa de los derechos humanos, buscando también sin descanso, que la amabilidad, la responsabilidad y la preocupación por los demás sean parte esencial de esa función.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Enfocarse en favor de los mas necesitados, entendiendo que la justicia se imparte con la ley en la mano, pero además con empatía, sensibilidad y amabilidad, escuchando y tratando a todos como iguales, nunca en un plano superior, poniéndose el que debe resolver en los zapatos de la gente para que la entienda y al final que el resultado sea una justicia para todos, imparcial, transparente, entendible y siempre gratuita.
+
+
+## Propuestas
+
+- Sensibilizar y capacitar a los servidores públicos judiciales sobre su función, instruyéndolos en relaciones humanas, atención al público y realidad social, para que siempre tengan un trato cordial y que jamás se atente contra la dignidad de las personas que buscan justicia, sin distinción. Que entiendan y valoren que en el servicio público jurisdiccional se está cien por ciento al servicio de la sociedad.
+- Que se exija a los juzgadores informar de manera constante a la población sobre su actividad: qué hacen, quiénes son, qué logros tienen, porqué es importante la impartición de justicia para la sociedad; que toda persona de cualquier nivel socioeconómico, pueda acudir con ellos a platicar sin obstáculo alguno y, en todos los casos, siempre poder exigirles una conducta intachable y transparente en su labor pública y fuera de ella.
+- Que de manera constante se examine a los juzgadores para verificar que estén actualizados en su área de desempeño; que se les obligue a capacitar a las personas que laboran bajo su mando, que reconozcan el desempeño de éstas; que faciliten el ingreso de nuevos empleados sin prácticas de nepotismo ni discriminación y que se establezcan medidas para igualar los procesos jurisdiccionales en toda la república, para que se trabaje igual y con la misma calidad en todo el país.
+

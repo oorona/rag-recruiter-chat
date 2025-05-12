@@ -1,0 +1,77 @@
+Nombre Candidato: DANIEL OROZCO ALFARO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 5585335740
+Correo Electronico: dorozcoa@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo Civil, Amparo contra normas generales, Casa de la Cultura Jurídica, Derecho Procesal Constitucional, Licenciatura en Derecho, Maestría, Nuevo Laredo., Omissiones legislativas, Poder Judicial, Torreón, Universidad Latina de América
+Tags Propósito: Eficacia técnica, Experiencia, Función jurisdiccional, Imparcialidad, Impartición de justicia., Justicia, México, Probidad, Problemáticas sociales, Sector público, Vocación
+
+
+## Descripción del Candidato 
+
+Daniel Orozco Alfaro es candidato a Magistrado de Tribunales Colegiados de Circuito en Michoacán, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal Constitucional y 15 años de experiencia en el sector público. Su trayectoria académica incluye la Licenciatura en Derecho en la Universidad Latina de América, complementada con cursos en materia de Amparo Civil y formación de secretarios del Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo se basa en su vocación de servicio a México. Su visión de la función jurisdiccional se centra en la imparcialidad combinada con la cercanía a las problemáticas sociales, aplicando el derecho con enfoque en la justicia. Propone servir a la sociedad para la impartición de justicia y enfatiza la probidad y eficacia técnica en su actuar como juzgador.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.cjf.gob.mx/dir/organosMagistradosJueces.htm
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1NqfRArVhw/
+- https://www.instagram.com/danielorozcoalfaro
+- https://www.youtube.com/@danielorozco-g9o?si=qhaG_CPp0f8GWxkE
+- https://www.tiktok.com/@danielorozcoalfaro?is_from_webapp=1&sender_device=pc
+- https://www.reddit.com/u/DeathOnArrival62?share_id=l5zRCkw88tl_k_y0X5dz8&utm_content=1&utm_medium=android_app&utm_name=androidcss&utm_source=share&utm_term=3&rdt=37737
+
+
+## Cursos
+
+- Curso de Amparo Civil impartido en la casa de la cultura Juridica de Torreón, Coahuila,Módulo sobre amparo contra normas generales, en el curso básico de formación de secretarios del Poder Judicial
+- ,Módulo sobre omisiones legislativas, en curso básico de formación de secretarios del Poder Judicial de la Federación
+- ,Curso de Amparo Civil impartido en la casa de la cultura Jurídica en Nuevo Laredo, Tamaulipas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54838/10
+
+
+## Trayectoria Academica
+
+- Estudié la licenciatura en Derecho en la Universidad Latina de América y Maestría en Derecho Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque llevo 15 años de experiencia en sector público siendo mi principal vocación actuando comprometidamente con México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desempeñar la función jurisdiccional de forma imparcial pero cercano a las problemáticas sociales generales e individuales; aplicando el derecho guiado por la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desempeñar mi trabajo con probidad de vida y de manera cercana a todas las personas que busquen justicia, definiendo mi actuar como juzgador a través de la eficacia técnica en el derecho.
+
+
+## Propuestas
+
+- Servir a la sociedad para la impartición de justicia.
+- No proporcionó
+- No proporcionó
+

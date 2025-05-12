@@ -1,0 +1,79 @@
+Nombre Candidato: MOISES ABRAHAM BETANZOS LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5522752626
+Correo Electronico: moisesbetanzos27@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Cumplimiento Normativo, Defensa de Derechos, Demandas Civiles, Derecho Laboral, Derechos Humanos, Desarrollo Profesional, Escritura Jurídica, Especialista., Juicio de Amparo, Redacción Jurídica, Resolución de Conflictos, Ética
+Tags Propósito: Capacitación, Conciliación, Confianza Ciudadana, Derechos Humanos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Herramientas Tecnológicas., Imparcialidad, Juicio Justo, Justicia, Mediación, Normativas, Procesos Judiciales, Sistema Judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+MOISES ABRAHAM BETANZOS LOPEZ es candidato a Juez de Distrito dentro del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y cédula profesional, complementada con diplomados en Derechos Humanos, Juicio de Amparo, Derecho Laboral, redacción jurídica y tecnologías para el desarrollo profesional. Su trayectoria profesional se enfoca en ética, cumplimiento normativo, defensa de derechos y resolución de conflictos.
+
+Betanzos López busca el cargo con el objetivo de garantizar una justicia imparcial, transparente y respetuosa de los derechos humanos. Sus propuestas incluyen la digitalización de procesos judiciales, la capacitación constante de jueces y personal judicial, y el fortalecimiento de la mediación y conciliación como métodos alternativos de resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Bo7CMmbTe/
+- https://x.com/BetanzosLopezM1?t=kbJq2h-gj-gRUT48OEwl2Q&s=08
+- https://www.instagram.com/betanzosmoises?igsh=MXRjcW5kZ3V2Y2Q1cg==
+- https://www.youtube.com/channel/UCAzqKfuAppkGQhdSqPhiU6g
+- https://www.linkedin.com/in/moisC3A9s-abraham-betanzos-lC3B3pez-a4200731b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos Aproximaciones para su Defensa
+- ,Diplomado en Juicio de Amparo
+- ,Curso en Actualización en Derecho Laboral
+- ,Cursos en Demandas Civiles, Redacción Jurídica y Escritura para Abogados
+- ,Diplomado en Tecnologías para el Desarrollo Profesional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52272/11
+
+
+## Trayectoria Academica
+
+- Abogado especialista en ética, con experiencia en cumplimiento normativo, defensa de derechos y resolución de conflictos
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez de Distrito para garantizar justicia imparcial, respetuosa de derechos, con un proceso transparente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es impartir justicia de manera imparcial, transparente y eficiente, garantizando siempre el respeto a los derechos humanos y al Estado de Derecho. Me comprometo a tomar decisiones justas y equitativas, basadas en los hechos y la ley, asegurando que todas las personas reciban un juicio justo. Mi enfoque será mantener la constante actualización de criterios y fortalecer la confianza de la ciudadanía en el sistema judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es asegurar que cada persona reciba un proceso transparente, imparcial y accesible, respetando siempre los derechos humanos y el Estado de Derecho. Como Juez de Distrito, me comprometo a tomar decisiones basadas en hechos y leyes, promoviendo la equidad y la confianza en el sistema judicial. Buscaré que cada juicio sea justo, eficiente y se resuelva con el máximo respeto a los principios éticos y humanos que deben regir la justicia.
+
+
+## Propuestas
+
+- Digitalización de procesos judiciales: Implementar un sistema digital integral que permita seguir los casos, presentar documentos y acceder a resoluciones de manera más ágil. Esto no solo optimizaría el tiempo de respuesta, sino que también fomentaría la transparencia y eficiencia en el sistema judicial.
+- Capacitación constante de jueces y personal judicial: Promover programas de formación continua dirigidos a jueces y personal administrativo, enfocados en derechos humanos, nuevas normativas y el uso de herramientas tecnológicas. Esto garantizaría decisiones más justas y una gestión judicial actualizada.
+- Fortalecimiento de la mediación y conciliación: Incentivar el uso de métodos alternativos de resolución de conflictos como la mediación y la conciliación. Estas herramientas pueden aliviar la carga de los tribunales, ofreciendo soluciones rápidas y satisfactorias, además de fortalecer la confianza de los ciudadanos en el sistema judicial.
+

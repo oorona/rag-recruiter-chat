@@ -1,0 +1,76 @@
+Nombre Candidato: REGINA DEL CARMEN PINZON TE
+Cargo: Juezas/es de Distrito
+Entidad: TLAXCALA
+Sexo: MUJER
+Telefono: 2461169113
+Correo Electronico: lic.rpinzon@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Democracia Constitucional, Derecho, Derechos Humanos, Formación, Igualdad de Género, Justicia Penal, Posgrado, Suprema Corte., Violencia
+Tags Propósito: Estado de Derecho, acceso a la justicia, actualización jurídica, claridad, confiabilidad, confianza, derechos, eficiencia, equidad., función jurisdiccional, justicia, plazos, realidad social, resoluciones justas
+
+
+## Descripción del Candidato 
+
+Regina del Carmen Pinzon Te es candidata a Jueza/es de Distrito en Tlaxcala, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría concluida y ha realizado diversos diplomados y cursos en áreas como el Nuevo Sistema de Justicia Penal, Derechos Humanos, igualdad de género y la democracia constitucional. 
+
+Motivada por su experiencia en la función jurisdiccional, su visión se centra en una impartición de justicia accesible, eficiente y confiable, que garantice la protección de los derechos de todas las personas. Sus propuestas incluyen eficientar los plazos de resolución, emitir resoluciones claras y justas, y mantener una actualización constante en las diversas ramas del derecho para asegurar una correcta interpretación y aplicación de la ley.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Bn4MMVTGP/?mibextid=wwXIfr
+- https://www.instagram.com/reginapinte?igsh=ZGt0OHI5MzVtbnp3
+
+
+## Cursos
+
+- Diplomado de Formación y Preparación en el Nuevo Sistema de Justicia Penal, octubre de 2020
+- ,Diplomado La Suprema Corte y los Derechos Humanos, edición 2021, noviembre 2021
+- ,Curso Género como herramienta para la igualdad, octubre 2022
+- ,Curso para generar espacios libres de violencia IV, enero 2023
+- ,La democracia Constitucional y legitimidad de las profesiones del derecho, agosto 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54656/11
+
+
+## Trayectoria Academica
+
+- Soy licenciada en derecho, con estudios de posgrado
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque con mi experiencia en la función jurisdiccional puedo seguir contribuyendo a la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser la herramienta para garantizar el Estado de Derecho, mediante resoluciones prontas, claras y equitativas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible, eficiente y confiable. Debe garantizar que los derechos de todas las personas sean protegidos en su justa dimensión y contexto.
+
+
+## Propuestas
+
+- Eficientar los plazos de resolución, a fin de que se garantice una justicia pronta y expedita.
+- Emitir resoluciones justas, que sean claras para los interesados, esto, para promover la confianza de las personas en el sistema de impartición de justicia.
+- Actualización constante en las diversas ramas del derecho, que asegure la interpretación y aplicación de la ley, acorde a la realidad social y actual.
+

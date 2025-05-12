@@ -1,0 +1,73 @@
+Nombre Candidato: SABRINA DUEÑAS AGUIRRE
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3351222225
+Correo Electronico: sabrina.dueagui@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Adolescentes, Derecho Civil, Derecho Familiar, Derechos Humanos, Discapacidad, Género, Justicia Laboral, Maestría., Mujer, Métodos Alternativos, Niñez, Servicio Público, Solución de Conflictos
+Tags Propósito: Accesibilidad, Amparo, Confianza, Criterios jurisprudenciales, Eficiencia, Empatía, Equilibrio social, Horario de atención, Humanismo, Imparcialidad, Inaplicación de criterios, Justicia, Legitimidad, Optimización de procesos, Procesos justos, Protección de derechos, Resolución de conflictos., Servidores públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Sabrina Dueñas Aguirre es candidata a Jueza/es de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría concluida y se ha capacitado en áreas como Derechos Humanos, Derecho Laboral y Métodos Alternativos de Solución de Conflictos. Su motivación para buscar el cargo público es fortalecer la confianza en el Poder Judicial y garantizar el acceso a la justicia.
+
+Su visión de la función jurisdiccional se centra en restablecer el equilibrio social, buscando soluciones efectivas con un enfoque humanista y eliminando privilegios. Propone restablecer el horario de atención al público a 9:00-15:00 horas, retornar a la recepción personal de documentos y revisar la aplicación de criterios jurisprudenciales que puedan obstaculizar la tramitación de juicios y el acceso a una justicia pronta y expedita.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/sabrina.duag
+- https://www.instagram.com/sabrina.due/
+- https://www.tiktok.com/@sabrina.duenas.aguirre
+
+
+## Cursos
+
+- Curso en DERECHOS HUMANOS DE LAS MUJERES, ADOLESCENTES Y NIÑEZ Y EL PROTOCOLO PARA JUZGAR CON PERSPECTIVA DE GÉNERO,Curso en DERECHOS HUMANOS Y SERVICIO PÚBLICO,Curso PROTOCOLO DE ACTUACIÓN PARA QUIENES IMPARTEN JUSTICIA EN CASO QUE INVOLUCREN DERECHOS DE PERSONAS CON DISCAPACIDAD,Especialidad SOBRE LA REFORMA EN MATERIA DE JUSTICIA LABORAL,Diplomado General de Métodos Alternativos de Solución de Conflictos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53036/11
+
+
+## Trayectoria Academica
+
+- Abogada, Maestrante en Derecho Civil y Familiar, Capacitación en Métodos Alternos, Derechos Humanos y Derecho Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Me postulo para hacer del Poder Judicial un espacio en el que puedas confiar y encuentres la justicia que mereces
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe restablecer los equilibrios en las relaciones sociales, permitiéndonos vivir en un país justo y desarrollarnos plenamente como personas. Un juez íntegro debe actuar con comprensión y humanismo. Su labor no es sólo aplicar la ley, sino comprender la realidad de los ciudadanos, buscar soluciones efectivas que puedan materializarse y ser un impartidor de justicia palpable, eliminando privilegios y enfocándose en el bienestar general, sin influencias externas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia viva requiere jueces que humanicen el proceso judicial, comprendan las realidades de las personas y actúen con empatía. Las decisiones deben ser claras, comprensibles y rápidas, fomentando confianza y transparencia. El sistema debe eliminar barreras técnicas que impidan ver la verdad, optimizar procesos sin sacrificar la calidad y garantizar que la justicia sea accesible, con procesos justos, razonables y legítimos para todos.
+
+
+## Propuestas
+
+- Retomar de inmediato el horario de atención a los justiciables y sus representantes desde las 09:00 horas hasta las 15:00 horas, puesto que con motivo de la pandemia declarada en el año 2020, los órganos jurisdiccionales redujeron 1 hora el horario de trabajo y de atención al público, convirtiéndose en la práctica en jornadas privilegiadas de tan sólo 5 horas diarias de trabajo, todo ello en detrimento de la impartición de justicia y del pueblo de México.
+- La recepción de asuntos nuevos y de promociones de término debe ser personal a través de los servidores públicos asignados a las oficinas de correspondencia común y no por buzón judicial implementado con motivo de la ya superada pandemia, pues no existe razón científica ni de productividad que justifique su continuidad y genera que la asignación de turno a los asuntos nuevos se retrase hasta un mes, no se atiendan a tiempo las medidas urgentes solicitadas en el amparo, atrasando el fallo final.
+- Propongo que los juzgadores hagamos una exhaustiva revisión de criterios jurisprudenciales existentes y mediante resoluciones suficientemente fundadas y motivadas se inapliquen cuando los mismos tiendan a entorpecer la tramitación de los juicios de amparo, sus incidentes y sus recursos, así como cuando derivados de su aplicación pueda hacer nugatorio el derecho del pueblo de México a tener una justicia imparcial, pronta, expedita y completa.
+

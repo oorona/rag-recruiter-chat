@@ -1,0 +1,75 @@
+Nombre Candidato: DIANA JAZMIN GALVAN SOSA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: dianajazgs@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actuarios, Argumentación Jurídica, Derecho, Derecho Fiscal, Diplomado, FES Aragón, Formación, IJF, Licenciatura, Maestría., Poder Judicial de la Federación, Tesis profesional, UNAM, Universidad Panamericana
+Tags Propósito: acceso a la justicia, autonomía judicial., carrera judicial, democracia, derechos humanos, eficiencia, estado de derecho, independencia judicial, justicia, mérito, protección de derechos, sistema jurídico, transparencia
+
+
+## Descripción del Candidato 
+
+Diana Jazmín Galván Sosa es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en la Ciudad de México. Cuenta con una trayectoria de más de 14 años en el Poder Judicial de la Federación (PJF), respaldada por una licenciatura en Derecho de la FES Aragón de la UNAM, una maestría en Derecho Fiscal de la Universidad Panamericana y diversos cursos de especialización en argumentación jurídica y formación dentro del PJF.
+
+Su motivación para buscar el cargo se basa en su experiencia y compromiso con la justicia. Sus propuestas centrales incluyen el fortalecimiento de la carrera judicial basada en el mérito, la ampliación del acceso a la justicia a nivel nacional, y el fomento de la autonomía e independencia de la impartición de justicia para una mejor protección de los derechos de las personas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ALQcTNf3J/
+- https://x.com/DianaGa24580621?t=ZdfxaKJe9yPge3wTULdmcw&s=09
+- https://www.instagram.com/diana.galvansosa?igsh=MWdyOHVmdWw1bzk0aw==
+- https://www.tiktok.com/@diana.galvn35?_t=ZM-8uX8tvSdhsU&_r=1
+
+
+## Cursos
+
+- Licenciatura en Derecho en la FES Aragón de la UNAM, titulada mediante tesis profesional
+- ,Diplomado en Argumentación Jurídica impartido por Instituto de la Judicatura Federal IJF y la Universidad Panamericana,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación impartido por el IJF,Curso para actuarios del Poder Judicial de la Federación, modalidad virtual impartido por el IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53419/10
+
+
+## Trayectoria Academica
+
+- Abogada egresada de la FES Aragón de la UNAM y estudié la maestría en Derecho Fiscal en la Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi experiencia, compromiso con la justicia y dedicación a la carrera judicial durante mas de 14 años dentro del PJF.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar de la democracia en nuestro país y del Estado de Derecho, con jueces y magistrados comprometidos con la justicia y la legalidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es el eje central de la función jurisdiccional, que no sólo debe ser ejercida con apego a nuestro sistema jurídico, sino también en consonancia con los derechos humanos de todas las personas, de manera eficiente y transparente.
+
+
+## Propuestas
+
+- Que la carrera judicial se base en el mérito y no en influencias ajenas, para que cada vez sea más adecuada la impartición de justicia, al ser ejercida por personas con el conocimiento y experiencia suficiente.
+- Que se amplíen los canales de acceso a la justicia, no sólo a través de la creación de nuevos órganos jurisdiccionales de las diversas materias, sino implementar algún mecanismo que accesible en todos los rincones del país, de manera que el acceso a la justicia sea una realidad para toda la ciudadanía.
+- Que la impartición de justicia sea cada vez más autónoma e independiente para seguir fortaleciendo de manera imparcial la protección de los derechos de las personas.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: JULIO SANTIAGO REVILLA
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5527610250
+Correo Electronico: jsantiagopjf@telmexmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuaría, Centros de Justicia Penal, Derecho, Derechos Humanos, ENEP Acatlán, Especialización Judicial, Excelencia Académica., FES Aragón, Humanismo, Justicia, Licenciatura, Logoterapia, Maestría, Poder Judicial de la Federación, UNAM
+Tags Propósito: acceso a la justicia., eficiencia, excelencia, honestidad, humanismo, humildad, imparcialidad, independencia, justicia, poder judicial, profesionalismo, rendición de cuentas, resolución de conflictos, servidores públicos, transparencia, trato humanitario
+
+
+## Descripción del Candidato 
+
+JULIO SANTIGO REVILLA es candidato a Jueces/as de Distrito en el Poder Judicial de la Federación, México. Cuenta con maestría en Derecho por la UNAM y licenciatura por la ENEP Acatlán, ambas con promedios de excelencia. Su trayectoria académica se complementa con diversos cursos y especializaciones en áreas como Derechos Humanos, Justicia y Actuaría, impartidos por instituciones como el Instituto de la Judicatura Federal y la Universidad Iberoamericana.
+
+El candidato declara como motivación para el cargo su deseo de servir a la población aplicando su conocimiento jurídico e imparcialidad. Su visión para la función jurisdiccional se centra en un humanismo dentro del Poder Judicial, priorizando la escucha a los justiciables y principios como la honradez y la independencia. Sus propuestas incluyen la correcta atención a los solicitantes de justicia, la resolución oportuna de los casos y un trato humanitario y profesional por parte de todos los servidores públicos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jsantiagopjf
+- https://x.com/Juliusrevilla
+- https://www.instagram.com/juliosantiagorevilla/
+- https://www.youtube.com/@jstgo2007
+- https://www.tiktok.com/@juliusrevilla2025
+
+
+## Cursos
+
+- Curso Básico de Actuarios en el Instituto de la Judicatura Federal (2019),6to Curso Básico para la Operación y Gestión de los Centros de Justicia Penal Federal (2016),Diplomado de Derechos Humanos en el Poder Judicial de la Federación, por la Universidad Iberoamericana
+- (2012),Curso de Humanismo y Justicia, Logoterapia
+- por el Instituto de Investigaciones Jurisprudenciales de la SCJN (2012),Especialización Judicial por en el Instituto de la Judicatura Federal (2004)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55505/11
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho por la UNAM (FES Aragón) y Licenciado en Derecho (ENEP Acatlán) con promedios de excelencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi mayor anhelo es servir al pueblo como el profesional que soy, demostrando mi conocimiento jurídico e imparcialidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi vision de la funcion jurisdiccional, es que la misma se convierta en eje rector de un humanismo al interior del Poder Judicial de la Federación, en el que los servidores públicos, tengan el firme compromiso de administrar la justicia sabiendo escuchar a los justiciables, bajo los principios de honradez, independencia, excelencia, humildad y sencillez.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia, es la de un servidor público con conocimiento y experiencia comprobada, capaz de resolver los casos sometidos a su consideración, y que esta impartición de justicia, no este sujeta a componendas ni a presiones de intereses fácticos, ponderando como principio fundamental, la independencia del juzgador en la toma de decisiones y resolución de los asuntos sometidos a su potestad.
+
+
+## Propuestas
+
+- La correcta atención de los solicitantes del servicio de administración de justicia, desde el momento de su ingreso al órgano jurisdiccional, hasta el momento de su salida del mismo.
+- La resoluciòn de los asuntos sometidos a la consideración del juzgador dentro de los plazos que la ley establece, tomando en consideración ele cumulo de pruebas ofrecidas y desahogadas por las partes.
+- Que todos los servidores públicos, desde el intendente hasta el titular de un órgano jurisdiccional, tengan conciencia que su trabajo se debe a los justificiables, y que estos deben esperar un trato humanitario, digno y profesional de cada uno de sus integrantes.
+

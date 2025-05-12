@@ -1,0 +1,73 @@
+Nombre Candidato: GUSTAVO DE JESUS PORTILLA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2286150133
+Correo Electronico: gustavoportillajuezdedistrito@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Anticorrupción, Argumentación Jurídica, Derecho, Derechos Humanos, Derechos Políticos, Justicia Inclusiva, Suprema Corte de Justicia de la Nación, Tribunal Electoral del Poder Judicial de la Federación, Universidad Anáhuac., Valoración Probatoria
+Tags Propósito: Confianza Ciudadana, Derechos Humanos, Diagnóstico, Diálogo Social, Eficiencia, Erradicación de Corrupción, Estado de Derecho, Estrategias Interinstitucionales, Honestidad, Imparcialidad, Impartición de Justicia, Inclusión, Justicia Expedita, Justicia Pronta, Labor Jurisdiccional, Libertad, Necesidades Ciudadanas., Paz Social, Poder Judicial, Progresividad, Responsabilidad, Sociedad Justa, Transparencia
+
+
+## Descripción del Candidato 
+
+Gustavo de Jesús Portilla Hernández es candidato a Juez/a de Distrito en Veracruz, postulando al Poder Judicial de la Federación. Cuenta con Maestría en Administración Pública y Licenciatura en Derecho, además de una Especialidad en Derechos Humanos y Derechos Políticos. Su formación incluye diplomados en Derechos Humanos, Estudios Anticorrupción y Justicia Inclusiva, así como cursos sobre Argumentación Jurídica.
+
+El candidato manifiesta su motivación para el cargo como un deseo de fortalecer el Poder Judicial con honestidad y transparencia. Su visión se centra en recuperar la confianza ciudadana en las instituciones de justicia, garantizando una impartición de justicia pronta, expedita y protectora de los derechos humanos. Sus propuestas incluyen estrategias interinstitucionales para agilizar la justicia, mecanismos para transparentar la labor jurisdiccional y la promoción de espacios de diálogo con la ciudadanía para mejorar la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jesus.portilla.9699523
+- https://www.instagram.com/gustavo_portilla_h/
+- https://www.tiktok.com/@gusph27
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos: Aproximaciones para su defensa Suprema Corte de Justicia de la Nación,Diplomado en Derechos Humanos y Estudios Anticorrupción Universidad Anáhuac, Campus Veracruz,Diplomado en Justicia Inclusiva Escuela Judicial Electoral del Tribunal Electoral del Poder Judicial de la Federación,Especialidad en Derechos Humanos y Derechos Políticos Escuela Judicial Electoral del Tribunal Electoral del PJF,Curso sobre Argumentación Jurídica y Valoración Probatoria Escuela Judicial Electoral del Tribunal Electoral del PJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54528/11
+
+
+## Trayectoria Academica
+
+- Maestro en Administración Pública, Licenciado en Derecho y Especialista en Derechos Humanos y Derechos Políticos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a fortalecer al Poder Judicial de la Federación con vocación de servicio, honestidad y transparencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estoy convencido que quienes integren el Poder Judicial de la Federación deben ser conocidas y conocidos por la sociedad, transparentar su actuación y contar con los conocimientos, habilidades y aptitudes que el cargo requiere, pero sobretodo, con la firme convicción de servir a su país, con la encomienda de recobrar la confianza ciudadana en las instituciones de justicia, en donde prevalezca el Estado de Derecho y se garantice una impartición de justicia pronta y expedita.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras tiene el deber irrestricto de proteger los derechos humanos de todas las personas, ante las posibles violaciones por parte de las autoridades o de la propia sociedad. Con la amplia responsabilidad que implica aplicar la ley, cada sentencia emitida debe de contribuir a lograr la paz social, desde la progresividad, respeto, imparcialidad y confianza, para así contribuir a consolidar una sociedad más justa, incluyente y libre de violencia.
+
+
+## Propuestas
+
+- Crear estrategias interistitucionales que favorezcan una impartición de justicia pronta y expedita, desde los respectivos ámbitos de competencia, con la finalidad de emitir determinaciones de una manera más eficaz y eficiente para las y los justiciables, de tal forma que no se generen daños irreparables que lesionen derechos.
+- Impulsar mecanismos que permitan transparentar la labor jurisdiccional, de tal manera que la ciudadanía conozca plenamente el desempeño de la persona juzgadora en torno a sus atribuciones, de forma periódica y así abonar a la erradicación de la corrupción.
+- Promover espacios de interés público con el objetivo de acercarnos a la ciudadanía, para que de manera conjunta, a través de ejercicios de diálogo con la sociedad, se genere un diagnostico certero en torno a sus necesidades y exigencias, que permitan posteriormente desarrollar acciones que atiendan y mejoren la forma de impartir justicia, protegiendo en todo momento sus derechos humanos.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: NOE SAENZ SOLIS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8342513849
+Correo Electronico: contacto@noesaenz.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación., Derecho, Derecho Fiscal, Derecho Procesal, Diplomado, Habilidades de Mando, Licenciatura, Maestría, Procedimientos Civiles, Procedimientos Familiares, Responsabilidad Administrativa
+Tags Propósito: Adolescencia, Agilidad, Burocracia, Ciudadanía, Empatía, Escucha, Expedientes, Experiencia, Justicia, Necesidades ciudadanas., Niñez, Proceso judicial, Resolución de conflictos
+
+
+## Descripción del Candidato 
+
+NOE SAENZ SOLIS es candidato a Magistrado de los Tribunales Colegiados de Circuito en TAMAULIPAS, postulado por el Poder Ejecutivo Federal. Cuenta con maestría en derecho fiscal y diversos diplomados en áreas como derecho civil, fiscal y habilidades de mando, así como cédula profesional. Su trayectoria incluye experiencia en el servicio público, litigación privada y como juzgador.
+
+SAENZ SOLIS busca el cargo con el objetivo de mejorar la impartición de justicia, basándose en su experiencia y conexión con las necesidades ciudadanas. Su visión para la función jurisdiccional se centra en juzgadores empáticos y con conocimiento práctico del proceso judicial, priorizando la resolución de conflictos y la eficiencia. Sus principales propuestas son la defensa de los derechos de niñas, niños y adolescentes, la reducción del rezago de expedientes y una mayor conexión y escucha activa de la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.noesaenz.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/NoeSaenzSolis
+- https://x.com/noesaenz
+- https://www.instagram.com/noesaenzsolis
+- https://youtube.com/@noesaenzsolis
+- https://www.tiktok.com/@noesaenzs
+- https://www.linkedin.com/in/noesaenz/
+
+
+## Cursos
+
+- DIPLOMADO TEÓRICO PRÁCTICO SOBRE CÓDIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES,SEMINARIO SOBRE RESPONSABILIDADES ADMINISTRATIVAS,ESPECIALIDAD EN DERECHO FISCAL Y PROCESAL,DIPLOMADO EN HABILIDADES DE MANDO,DIPLOMADO EN DERECHO FISCAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55407/10
+
+
+## Trayectoria Academica
+
+- Soy licenciado en derecho y maestro en derecho fiscal, además, he tomado múltiples diplomados y cursos de capacitación
+
+
+## Motivo para buscar el Cargo Publico
+
+Mas allá del cargo, quiero tu confianza. Tengo la experiencia y la capacidad para mejorar la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Cierto que es necesario que las personas juzgadoras cuenten con experiencia, pero también que conozcan las necesidades de la gente, que la escuchen y sean sensibles. He sido funcionario público, también abogado particular y ahora juzgador, conozco todos los lados del proceso judicial. Sé lo que el pueblo en la calle exige y necesita, que es atención a sus asuntos, empatía con su situación, ser escuchados, y eso no se aprende en cursos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe mejorar la impartición de justicia, basada en personas juzgadoras con tres requisitos: 1) Amplia conexión con los ciudadanos y sus problemas, sensible y empático. 2) Con experiencia no solo en lo académico, sino en todo el proceso jurisdiccional, que conozca y entienda las necesidades de las partes y de los abogados postulantes. 3) Un juzgador enemigo de la burocracia y de los pretextos para no avanzar, que priorice la resolución de fondo de los conflictos, sobre la forma.
+
+
+## Propuestas
+
+- Defender a niñas, niños y adolescentes. Su bienestar es y será mi prioridad.
+- Reducir el rezago de expedientes y agilizar los tiempos de resolución. ¡No más juicios eternos! La justicia tardía no es justicia.
+- Escuchar a la gente. No se puede impartir justicia sin entender a quienes la buscan.
+

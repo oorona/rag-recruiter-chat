@@ -1,0 +1,78 @@
+Nombre Candidato: JOSE MARIO MEJIA CECEÑA TRASFI
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8717272538
+Correo Electronico: mario_mc_t@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Apelaciones, Derecho Familiar, Durango., Formación Judicial, Género, Igualdad, Licenciatura en Derecho, Maestría en Amparo, Perspectiva de Género, Reforma Laboral, Sistema Penal, UAD, Universidad Autónoma de Coahila, Violencia
+Tags Propósito: Administración de justicia, Ambiente laboral, Atención al público, Capacitación, Competencia, Derechos humanos, Derechos laborales, Eficiencia, Experiencia PJF, Humanismo, Igualdad, Imparcialidad, No discriminación, Profesionalismo, Resolución, Servicio público, Tiempos, Urgencia., Ética
+
+
+## Descripción del Candidato 
+
+José Mario Mejía Ceceña Trasfi es candidato a Juez/a de Distrito en Coahuila, postulándose a través del Poder Ejecutivo Federal. Cuenta con una trayectoria de más de veinticuatro años en el Poder Judicial Federal y posee una Maestría en Amparo, siendo Licenciado en Derecho por la Universidad Autónoma de Coahuila.
+
+Su motivación para el cargo se basa en su vocación de servicio público. Su visión sobre la función jurisdiccional y la impartición de justicia se centra en la eficiencia, la prontitud, la sensibilidad, el respeto a los derechos humanos y un trato ético y profesional tanto para el público como para el personal judicial. Sus propuestas incluyen mejorar la atención al público y el ambiente laboral, optimizar los tiempos de resolución de casos, y promover la capacitación continua del personal judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A4GvHXvwv/?mibextid=wwXlfr
+- https://x.com/jmario_mc_t?s=11
+- https://www.instagram.com/mario_mc_t?igsh=MTFnbjVkZ2F6MmJpZQ3D3D&utm_source=qr
+- https://www.tiktok.com/@.josemariomct?_t=ZM-8v6D3Kibwqj&_r=1
+
+
+## Cursos
+
+- Curso para Generar Espacios Libre de Violencia, impartido por la Escuela Federal de Formación Judicial
+- ,Encuentro de Operadores Jurídicos del Sistema de Ejecución Penal en Materia de Apelaciones, impartido por la EFFJ,Curso para Juzgar con Perspectiva de Género en Materia Familiar, impartido por la Escuela Federal de Formación Judicial
+- ,Jornadas de Introducción a la Reforma Laboral: Análisis de los Retos y Perspectivas
+- ,Curso Género Herramienta para la Igualdad, impartido por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52837/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho por la Universidad Autónoma de Coahuila
+- Maestro en Amparo por la UAD, Gómez Palacio, Durango
+
+
+## Motivo para buscar el Cargo Publico
+
+Vocación en el servicio público, cuento con más de veinticuatro años de experiencia en el PJF, sin ninguna queja admva.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Vocación en el servicio, trato con sensibilidad, humanismo, ética y profesionalismo para las y los justiciables, así como al público en general, tanto por parte del titular del órgano jurisdiccional, así como del personal que lo integran. Las determinaciones y resoluciones siempre se deben emitir en los tiempos previstos para su emisión, lo cual desde luego es parte de una adecuada función jurisdiccional en la administración de justicia dentro de un órgano judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe realizarse de manera pronta, expedida, siempre en procuración de una administración de justicia con imparcialidad, eficiente, igualitaria, y no discriminación, con respeto de los derechos humanos de las personas.
+
+
+## Propuestas
+
+- Un factor importante en todo órgano jurisdiccional, a efecto de lograr una mejora en la función jurisdiccional, siempre será una adecuada atención al público en general, siempre con un trato ético y profesional, con un adecuado ambiente laboral, en respeto de los derechos laborales de los servidores públicos adscritos al propio órgano, de igual forma, siempre con respeto en los derechos humanos de las y los justiciables.
+- Una correcta administración en los tiempos, tanto para la resolución de los asuntos del conocimiento del órgano jurisdiccional, como para la atención del público en general, incluyendo, un adecuado control entre los servidores públicos para la atención de los casos urgentes, lo cual es en beneficio de las y los justiciables.
+- Siempre en la búsqueda de constante capacitación, tanto del titular del órgano jurisdiccional, así como del personal que lo integra, lo cual es necesario para contar con servidores públicos competentes en beneficio del servicio de administración de justicia que se realiza cualquier órgano judicial.
+

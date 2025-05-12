@@ -1,0 +1,74 @@
+Nombre Candidato: ADRIANA MARGARITA FAVELA HERRERA
+Cargo: Magistratura Sala Superior del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5568862597
+Correo Electronico: adriana.favelah@gmail.com
+Numero de lista en boleta: 3
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Derecho, Derecho Constitucional, Doctorado, Empoderamiento, Género, Igualdad, Instituciones Electorales, Licenciatura., Mujer, Políticas Públicas, Sustentabilidad
+Tags Propósito: Tribunal Electoral, acceso a la justicia, certeza jurídica, compromiso social, eliminación de formalismos, equidad electoral, honestidad, imparcialidad, justicia accesible, justicia efectiva, justicia pronta, lenguaje claro, materia electoral, participación ciudadana., protección a víctimas, reglas procesales, resolución de controversias, sentencias claras
+
+
+## Descripción del Candidato 
+
+Adriana Margarita Favela Herrera es candidata a Magistratura de la Sala Superior del Tribunal Electoral del Poder Judicial de la Federación, con número 3 en la boleta. Cuenta con doctorado en Derecho y una trayectoria académica que incluye maestría en Administración Pública y especialización en Derecho Constitucional. Sus estudios se complementan con diplomados en temas de derecho electoral, género y políticas públicas sustentables.
+
+Favela Herrera busca el cargo con el objetivo de acercar la justicia a la ciudadanía, fortalecer la equidad electoral y simplificar las sentencias. Sus propuestas se centran en garantizar el acceso a la justicia sin formalismos innecesarios, agilizar los procesos y redactar sentencias claras y comprensibles para la población, enfocándose en resolver las controversias de manera pronta y efectiva.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://adrianafavela.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/adrianafavelaherrera
+- https://x.com/adriafavela
+- https://www.instagram.com/adriana_favela_herrera?igsh=MTc2b2VyNGdsNnp2
+- https://www.tiktok.com/@adriafavela?_t=ZM-8uQz7KyUw6P&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho e Instituciones Electorales,Diplomado en Competencia en Empoderamiento con Visión de Género,Diplomado en Igualdad y Empoderamiento de la Mujer,Diplomado en Políticas Públicas Sustentables
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/110/8
+
+
+## Trayectoria Academica
+
+- Doctora en Derecho, Maestra en Administración Pública, Especialista en Derecho Constitucional y Licenciada en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrada para acercar la justicia a la gente, reforzar la equidad electoral y clarificar las sentencias.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las personas juzgadoras debemos ser cercanas a la gente para conocer su realidad y resolver con justicia. Actuar con honestidad, imparcialidad, seriedad y compromiso social es esencial, siempre teniendo a la justicia como fin último. No debemos caer en formalismos o tecnicismos que solo retrasan las sentencias y alejan la solución de fondo de la controversia. Nuestro deber es garantizar resoluciones efectivas y accesibles para la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser accesible, sin corrupción y se deben resolver los asuntos con prontitud. Es crucial considerar las realidades concretas, evitar formalismos innecesarios y priorizar la protección a las víctimas, buscando siempre la solución más justa. Las personas juzgadoras debemos ser cercanos a la gente y respetar las reglas procesales sin retrasar sentencias. Resolver con rapidez garantiza que la justicia sea efectiva y no solo una resolución tardía sin impacto real.
+
+
+## Propuestas
+
+- Justicia accesible para toda la gente y cercana a la población: deben eliminarse todos los obstáculos para que la gente acceda a la justicia. En el caso de la materia electoral, debe garantizarse el acceso de toda la ciudadanía a la justicia. Esto se logra en forma más eficaz si el Tribunal Electoral trabaja de la mano con la gente, para identificar los obstáculos que impiden el acceso a la justicia y formular las mejores soluciones.
+- Justicia sin formalismos: Que los formalismos legales no sean un pretexto para negar el acceso a la justicia. Si bien debe cumplirse con reglas procesales básicas que garantizan certeza a las partes en conflicto, lo cierto es que urge erradicar los formalismos innecesarios y tener claro que lograr la justicia es el fin más importante.
+- Justicia pronta y simple: La justicia debe ser pronta y accesible, sin largas esperas. En materia electoral, se deben flexibilizar los procesos para que el Tribunal resuelva asuntos internos de los partidos sin agotar toda la cadena impugnativa. Además, las sentencias deben redactarse en lenguaje claro y sencillo, con una finalidad didáctica, para que todas las personas comprendan lo resuelto y su impacto. La certeza y la claridad son clave para una justicia efectiva y cercana a la ciudadanía.
+

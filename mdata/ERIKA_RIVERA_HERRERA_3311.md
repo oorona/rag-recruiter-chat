@@ -1,0 +1,75 @@
+Nombre Candidato: ERIKA RIVERA HERRERA
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 2281818135
+Correo Electronico: erika.riverahe@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adolescentes, Bene. Univ, Certificación, Crimenología, Derecho Penal, Derecho Procesal Penal, Excelencia Académica., Formación Judicial, Justicia Penal, Maestría, Proceso Penal Acusatorio, Sistema Integral de Justicia Penal, Universidad Veracruzana, Universidad de Girona
+Tags Propósito: acceso a la justicia, audencias virtuales, constitución, derechos humanos, eficiencia, empatía, honestidad, imparcialidad, justicia, leyes, rectitud, resoluciones claras, responsabilidad, servicio público, tecnologías, transparencia, trato digno, vocación de servicio.
+
+
+## Descripción del Candidato 
+
+Erika Rivera Herrera es candidata a Jueza/es de Distrito en Veracruz, postulándose a través del Poder Legislativo Federal. Cuenta con maestría y cédula profesional, respaldada por una formación académica en Derecho y Derecho Penal y Criminología por la Universidad Veracruzana, complementada por diversas certificaciones y másteres en justicia penal, incluyendo estudios en la Universidad de Girona.
+
+Su motivación para buscar el cargo es su vocación de servicio a la ciudadanía. Sus propuestas centrales incluyen la elaboración de resoluciones judiciales claras y comprensibles, un trato empático y digno hacia los justiciables, y la implementación de tecnologías para facilitar el acceso a la justicia, especialmente para aquellos que no pueden asistir personalmente a los tribunales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/61572549856289/videos/1863371054405193/
+- https://www.instagram.com/erikariveraherrera4?igsh=ZmltbTUwN3czdzFt&utm_source=qr
+- https://www.tiktok.com/@erikariveraherrera?_t=ZM-8v3J5oe2llf&_r=1
+
+
+## Cursos
+
+- Maestria de Justicia Penal con enfoque en Proceso Penal y Acusatorio, excelencia académica por UPAV, Colegio de Derecho,Maestria en Derecho del área de especialización en Derecho Penal y Criminología, por la Universidad Veracruzana,Certificación Nacional de la Especialidad en el Sis
+- Integral de Justicia Penal para Adolescentes, Bene
+- Univ, Oaxaca,Certificación de la Escuela Federal de Formación Judicial, Especialidad en Justicia para Adolescentes,Máster en Derecho Penal, Procesal Penal y Criminología (2da), impartido por la Universidad de Girona
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55576/11
+
+
+## Trayectoria Academica
+
+- Estudie la licenciatura en Derecho y Maestria en Derecho Penal y Criminología, por la Universidad Veracruzana
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la humanidad en un mejor desempeño y es mi vocación el servicio en favor de la ciudadanía y tengo el conoc
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi compromiso es con la sociedad, trabajar de manera honesta, responsable y con una vocación de servicio a favor de los justiciables de manera pronta e imparcial, y con total rectitud.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como servidora pública del Poder Judicial de la Federación, es hacer cumplir la constitución y las leyes que de ella emane, en estricto respeto a los derechos humanos de los ciudadanos, contribuyendo en la aplicación de la justicia de forma pronta y expedita, de manera eficaz, trasparente y cerca a la gente.
+
+
+## Propuestas
+
+- elaborar resoluciones sencillas y claras, entendibles a la sociedad de fácil comprensión, que permita a las partes que intervienen en el proceso judicial el entendimiento de las determinaciones judiciales.
+- Ser empática con los justiciables, no perder de vista que son personas las que se ven involucradas en los procesos judiciales y brindar un trato digno, escuchando atentamente y ayudar en la solución de sus conflictos legales apegada a la ley.
+- implementar el uso de las tecnologías en la celebración de las audiencias, para acercar la justicia a la gente que por diversas razones no puedan acudir en forma personal al tribunal, pero si puedan ser escuchadas y hacer valer sus derechos, agilizando el acceso a la justicia de forma gratuita.
+

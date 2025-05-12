@@ -1,0 +1,80 @@
+Nombre Candidato: SERGIO MORENO TRUJILLO
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 3314810108
+Correo Electronico: sergiomoreno1688@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica Electoral, Corte Interamericana de Derechos Humanos, Derecho Constitucional, Derecho Electoral, Elecciones, Gobernanza Electoral, Género, Justicia Constitucional, Representación Política, Seminario Internacional., UNAM, Universidad de Guadalajara
+Tags Propósito: Constitución, acceso a la justicia, confianza ciudadana, consulta popular, decisiones justas, defensa de derechos, democracia, derechos humanos, derechos políticos, diálogo democrático., equidad, igualdad, imparcialidad, inclusión, justicia accesible, justicia electoral, lenguaje claro, leyes electorales, participación ciudadana, procesos electorales, revocación de mandato, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+SERGIO MORENO TRUJILLO es candidato a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con 18 años de experiencia en la justicia electoral y posee una Maestría en Derecho Constitucional y otra en Derecho Electoral, además de diversas especializaciones en justicia constitucional, elecciones y argumentación jurídica electoral con perspectiva de género.
+
+Su candidatura se basa en el objetivo de garantizar el valor del voto y la participación ciudadana, enfocándose en asegurar el respeto de las reglas electorales y fortalecer la democracia. Sus propuestas incluyen una justicia electoral accesible y transparente, la emisión de sentencias claras y justificadas legalmente, así como la defensa de los derechos humanos de grupos en situación de vulnerabilidad, buscando construir una democracia incluyente.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100000893867054
+- https://x.com/sergio_morenot
+- https://www.instagram.com/sergio_morenot/
+- https://www.tiktok.com/@sergio_morenot
+
+
+## Cursos
+
+- En la Universidad de Castilla, La Mancha, cursó la Especialidad en Justicia Constitucional
+- ,Cursó el Diplomado en Elecciones, Representación Política y Gobernanza Electoral, por la UNAM
+- ,Participó en el Programa de Visita Profesional de la Corte Interamericana de Derecho Derechos Humanos
+- ,Cursó el Diplomado en Argumentación Jurídica Electoral con Perspectiva de Género
+- ,Participó en el Seminario Internacional el Impacto de la Corte Interamericana de Derechos Humanos en Latinoamérica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17076/9
+
+
+## Trayectoria Academica
+
+- Abogado por la Universidad de Guadalajara
+- Maestro en Derecho Constitucional
+- Maestro en Derecho Electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar que cada voto cuente y cada voz sea escuchada.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La actividad primordial de las y los magistrados en materia electoral es asegurar que las reglas que rigen en las elecciones ¿que son el pilar de la democracia¿ se respeten, ello al resolver las controversias que se presentan en los procesos electorales y los mecanismos de participación ciudadana, como la consulta popular y la revocación de mandato.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con 18 años de experiencia en la justicia electoral, sé que un sistema sólido y transparente no solo protege los derechos de las minorías, sino que fortalece a toda la nación. Mi compromiso es con una justicia accesible, clara y cercana a la ciudadanía, donde la participación de todas y todos construya un México más equitativo. La democracia se fortalece cuando la ciudadanía entiende, confía y participa.
+
+
+## Propuestas
+
+- Una justicia para la democracia. Ante la desconfianza en el sistema electoral y el temor a fraudes o manipulación de resultados, los tribunales electorales tienen un papel indispensable en la democracia. De contar con tu voto, como magistrado protegeré los derechos de las ciudadanas y los ciudadanos, como votar, ser votado, asociarse y afiliarse con fines políticos, siguiendo los principios establecidos en la Constitución general, los cuales buscan garantizar juicios justos, rápidos y efectivos.
+- Imparcialidad para partidos, lenguaje ciudadano del derecho y diálogo democrático con la ciudadanía. En múltiples ocasiones existe una falta de claridad en la normatividad electoral y presión social en la toma de decisiones. De contar con tu voto, como magistrado justificaré mis decisiones en el derecho, esto es, acorde a lo que señala la Constitución general y las leyes electorales, emitiendo sentencias con un lenguaje claro y accesible a todas las personas.
+- Defensa sin concesiones de los Derechos Humanos de grupos que viven en una situación de vulnerabilidad. Ante la desigualdad en el acceso a la justicia y la desconfianza en que las comunidades sean escuchadas en los procesos electorales, de contar con tu voto, como magistrado seré firme en la protección a los grupos que viven una situación de vulnerabilidad, ya que considero fundamental construir una democracia incluyente en la que todas las voces y opiniones sean tomadas en cuenta.
+

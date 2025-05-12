@@ -1,0 +1,75 @@
+Nombre Candidato: INDIRA ISABEL GARCIA PEREZ
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: mtra.indira.garcia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Contabilidad gubernamental, Derecho fiscal, Fiscalización de impuestos, Gobernabilidad, Licenciatura en Derecho, Maestría en Derecho Corporativo, Maestría en Educación., Políticas públicas, Responsabilidades administrativas
+Tags Propósito: acceso a la justicia, agilización de juicios, control interno, derechos humanos, dignidad, estado de derecho, evaluación del desempeño, honestidad, imparcialidad., justicia, legalidad, rendición de cuentas, simplificación de procedimientos, tecnologías de la información, transparencia, verdad histórica, ética
+
+
+## Descripción del Candidato 
+
+Indira Isabel Garcia Perez es candidata a la Magistratura del Tribunal de Disciplina Judicial, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Derecho Corporativo y en Educación, además de una licenciatura en Derecho por la Universidad de Colima. Su formación incluye diversos diplomados en áreas como fiscalización, gobernabilidad, responsabilidades administrativas, derecho fiscal y contabilidad gubernamental.
+
+Motivada por el servicio ético y honesto, Garcia Perez busca el cargo con una visión de la función jurisdiccional como voz de los desprotegidos y garante de los derechos humanos. Sus propuestas incluyen la implementación de tecnologías para la evaluación del desempeño de los servidores públicos, la visibilización del trabajo del Tribunal de Disciplina Financiera y la realización de procedimientos justos e imparciales para esclarecer faltas administrativas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573858662322
+
+
+## Cursos
+
+- Especialidad de Fiscalización de Impuestos en México
+- ,Diplomado en Gobernabilidad y Políticas Públicas
+- ,Diplomado en Responsabilidades Administrativas
+- ,Diplomado en Derecho Fiscal
+- ,Diplomado en Contabilidad Gubernamental
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15956/7
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad de Colima, con Maestría en Derecho Corporativo y Maestría en educación
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir con ética y honestidad apegada a mis principios y con respeto a la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es la función más noble al convertirse en la voz de los más desprotegidos, devolviéndoles el ejercicio pleno de sus derechos cuando han sido violentados, no solo por autoridades sino también por particulares, garantizando así que la justicia y la legalidad prevalezcan siempre en un Estado de Derecho; por lo que su doble función de garante de los derechos humanos y contrapeso a los Poderes de la Unión, son una tarea indispensable en cualquier sistema democrático.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Acercar la justicia a todas y todos los justiciables en México. Que la impartición de justicia no solo se realice a través de procedimientos formalísimos. Simplificación de procedimientos. Agilizar los juicios, generando un ahorro de tiempo, traslados y recursos económicos para los justiciables. Respetar la dignidad de las personas. Que las partes en los juicios tengan el acompañamiento debido. Dictar sentencias con lenguaje simplificado. Para que las sentencias sean digeribles por cualquiera
+
+
+## Propuestas
+
+- Implementar tecnologías de la información para que la evaluación del desempeño de los servidores públicos del Poder Judicial de la Federación sea fácil y ágil y no una carga extraordinaria a sus responsabilidades jurisdiccionales.
+- Visibilizar el trabajo continuo del Tribunal de Disciplina Financiera, como mecanismo de control interno, así como de transparencia y rendición de cuentas a la población.
+- Llevar a cabo procedimientos justos e imparciales para el esclarecimiento de la verdad histórica de los hechos denunciados como faltas de los servidores públicos del Poder Judicial de la Federación.
+

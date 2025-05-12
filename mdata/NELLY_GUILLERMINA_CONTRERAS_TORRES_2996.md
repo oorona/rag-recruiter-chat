@@ -1,0 +1,74 @@
+Nombre Candidato: NELLY GUILLERMINA CONTRERAS TORRES
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2225175896
+Correo Electronico: ngcontrerast2012@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Derecho procesal penal, Experiencia, Formación judicial, Formación., Igualdad de género, Maestra, Poder Judicial de la Federación, Servicio público, Violencia
+Tags Propósito: Acceso a la justicia, Adolescencia, Certeza jurídica, Derechos humanos, Diligencias, Discapacidad, Imparcialidad, Justicia, Lenguaje claro, Niñez, Plazos legales, Procedimientos accesibles., Protección, Reparación, Resolución de conflictos, Sentencias justas, Sentido humano, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Nelly Guillermina Contreras Torres es candidata a Jueza/es de Distrito en Puebla, postulándose a través del Poder Judicial de la Federación. Maestra en Derecho Procesal Penal, cuenta con más de 18 años de experiencia en el servicio público y destaca su motivación por integrarse a un Poder Judicial que sirva a la ciudadanía con decisiones justas e imparciales.
+
+Su visión de la función jurisdiccional se centra en profesionales preparados, con vocación de servicio y capacidad para emitir sentencias que resuelvan los problemas de fondo, generando certeza jurídica. Sus propuestas incluyen la creación de espacios amigables para menores en juicios, ajustes procesales para personas con discapacidad, y la emisión de sentencias claras, comprensibles y enfocadas en la resolución del conflicto dentro de los plazos legales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/nellyguillerminacontrerastorres
+- https://www.instagram.com/nellyg.contreras
+- https://www.tiktok.com/@nelly.g.contreras
+
+
+## Cursos
+
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación
+- ,Curso Género como Herramienta para la Igualdad impartido por la Escuela Federal de Formación Judicial,Curso para Generar Espacios Libres de Violencia impartido por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52624/11
+
+
+## Trayectoria Academica
+
+- Soy abogada y maestra en derecho procesal penal, con más de dieciocho años de experiencia en el servicio público
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero formar parte de un Poder Judicial que escuche y sirva a la gente, con decisiones justas e imparciales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe estar a cargo de mujeres y hombres que cuenten con la preparación, capacidad, experiencia, visión humana y vocación por el servicio público, que emitan sentencias justas e imparciales que resuelvan los problemas de fondo, generando certeza jurídica y confianza ciudadana, marcando una diferencia real y positiva en la vida de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta, imparcial y con sentido humano, teniendo en cuenta que detrás de cada juicio, hay una historia personal o familiar que merece ser escuchada, por lo que debe privilegiarse la emisión de sentencias que atiendan esas realidades y resuelvan el fondo de los conflictos, garantizando la protección y reparación de los derechos de las personas.
+
+
+## Propuestas
+
+- En los casos en que intervengan niñas, niños o adolescentes, destinar un espacio físico al interior del órgano jurisdiccional para el desahogo de las diligencias respectivas, a fin de atender los protocolos que orientan la actuación de las personas juzgadoras en tales hipótesis y generar un ambiente amigable que favorezca la comunicación y su participación.
+- Dictar acuerdos para ajustar razonablemente los procedimientos en que intervengan personas con discapacidad, a fin de garantizar su pleno acceso a la justicia, que dependiendo de las circunstancias del caso, podrían ir desde el desahogo de diligencias en su domicilio, el empleo de formatos de fácil lectura y la designación gratuita de asesores jurídicos.
+- Emitir sentencias dentro de los plazos legales, en las que se emplee un lenguaje claro y comprensible, privilegiando la resolución del fondo de los asuntos, por encima de formulismos legales.
+

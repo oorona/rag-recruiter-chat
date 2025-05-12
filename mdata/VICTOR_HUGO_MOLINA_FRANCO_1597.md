@@ -1,0 +1,87 @@
+Nombre Candidato: VICTOR HUGO MOLINA FRANCO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: vic13_mf@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, Asistente de Constancias y Registros, Educación Preparatoria., Educación Primaria, Educación Secundaria, Facultad de Derecho, Instituto de la Judicatura Federal, Licenciatura en Derecho, Poder Judicial de la Federación, Secretario, Seminario Reforma Laboral, Sistema de Justicia Penal Acusatorio, Universidad Autónoma de Sinaloa
+Tags Propósito: Artículo 17 constitucional, Calidad jurídica, Eficacia judicial., Expediente, Formalismos procesales, Humanismo, Interacciones sociales, Jurisprudencia, Justicia, Juzgador, Problemas sociales, Realidad social, Resolución de fondo, Sentido común
+
+
+## Descripción del Candidato 
+
+Víctor Hugo Molina Franco es candidato a Magistratura de Tribunales Colegiados de Circuito en Sinaloa, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y cédula profesional, además de diversos cursos y acreditaciones en el Sistema de Justicia Penal Acusatorio y en el Poder Judicial de la Federación, incluyendo exámenes de aptitud para Actuario y Secretario.
+
+Su motivación para el cargo se centra en su experiencia profesional en órganos jurisdiccionales y su pasión por la impartición de justicia. Propone priorizar la calidad jurídica en la evaluación de los órganos judiciales, resolver de fondo los juicios atendiendo al artículo 17 constitucional, y aplicar el sentido común y el conocimiento de la realidad social en la resolución de los casos. Su visión de la función jurisdiccional enfatiza la necesidad de comprender la complejidad de cada asunto y la importancia de considerar los aspectos humanos involucrados en los juicios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/victor.molinafranco
+- https://www.instagram.com/vic13_mf?igsh=YnU1cXR2eDdnMzNj&utm_source=qr
+- https://www.tiktok.com/@victormolinafranc?_t=ZM-8v6VhxByJGf&_r=1
+
+
+## Cursos
+
+- Diplomado Sistema de Justicia Penal Acusatorio
+- Facultad de Derecho Culiacán Universidad Autónoma de Sinaloa
+- 2011
+- ,Seminario Reforma Laboral
+- Extensión Culiacán del Instituto de la Judicatura Federal
+- 2014
+- ,Acreditación examen de aptitud ordinario categoría Actuario del Poder Judicial de la Federación
+- Agosto de 2014
+- ,Acreditación curso inducción Asistente de Constancias y Registros
+- Sede central Instituto de la Judicatura Federal
+- 2015,Acreditación examen de aptitud ordinario categoría Secretario del Poder Judicial de la Federación
+- Agosto de 2018
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53869/10
+
+
+## Trayectoria Academica
+
+- Primaria de 1994 a 2000
+- Secundaria en 2003
+- Preparatoria en 2006
+- Licenciatura en derecho concluida en 2011
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi formación profesional ha sido en órganos jurisdiccionales, con juzgadores. Mi pasión es la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un buen juzgador debe conocer lo complicado y relevante de resolver un asunto, lo cual, no solo implica observar la legislación y criterios jurisprudenciales , sino que también conlleva a la pericia en la lectura y estudio del expediente respectivo. Siendo que en ocasiones la voluntad de los promoventes no es expresada claramente en sus intervenciones en el proceso. De ese modo, existe amplia diferencia entre la labor de un abogado litigante y la diversa del juzgador que emite las sentencias.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser juzgador requiere conocimientos profundos sobre la labor de resolver asuntos. Sin embargo, además de conocer el derecho y su aplicación a los casos concretos, es importante tener presente que cada expediente involucra aspectos personales de los contendientes en juicio, de modo que la visión siempre debe estar respaldada por el lado humanista. Con ello, se debe tener el cuidado de no ver los juicios como simples números, sino como problemas sociales por resolver de la manera más justa.
+
+
+## Propuestas
+
+- En la actualidad, los órganos administrativos que se encargan de vigilar las actuaciones de los tribunales y juzgados, se enfocan demasiado en las cuestiones estadísticas, lo cual orilla al juzgador a ver cada expediente como un simple número, y no así como el relevante problema social que representa un juicio. Por ello, considero que la evaluación dada a los órganos judiciales, debe centrarse primordialmente en la calidad jurídica de sus decisiones.
+- Los jueces y magistrados deben erradicar el antiguo vicio que imperaba en la resolución de los asuntos, que consistía en la excesiva emisión de sentencias que estudiaban principalmente las violaciones en formalismos procesales. Por lo que, para erradicar esa práctica poco útil para el justiciable, se debe acatar primordialmente el mandato contenido en el artículo 17 constitucional, resolviendo de inicio el fondo de la problemática de los juicios.
+- Los impartidores de justicia, para resolver eficazmente los juicios, también deben estar conscientes de las interacciones del día a día de la sociedad, pues es común que al hacerlo, consideran supuestos que se alejan bastante de la realidad. De ese modo, al emitir una sentencia, es necesario aplicar el sentido común y conocer cómo es que ordinariamente se desenvuelven las relaciones sociales. Solo de esa manera, existiría una justicia acorde a la realidad social.
+

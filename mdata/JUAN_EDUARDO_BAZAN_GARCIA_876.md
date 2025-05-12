@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN EDUARDO BAZAN GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5518502381
+Correo Electronico: ebazgar@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Constitución, Derecho Penal, Derecho., INACIPE, Juicio de Amparo, Justicia Penal Acusatorio, Maestría, SCJN, Sistema de Justicia Penal, Universidad Nacional Autónoma de México
+Tags Propósito: Auxiliares de la justicia., Bien común, Capacitación, Carrera judicial, Corrupción, Defensoría pública, Derechos fundamentales, Imparcialidad, Inamovilidad, Independencia judicial, Integridad, Jurídica, Justicia, Orden social, Seguridad de jueces, Seguridad jurídica, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Juan Eduardo Bazán García es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Penal y es egresado de la Universidad Nacional Autónoma de México. Su motivación para el cargo se basa en su experiencia jurídica y en un compromiso con la ética y la integridad.
+
+El candidato plantea como ejes principales de su candidatura el fortalecimiento de la defensa pública para grupos vulnerables, el impulso a una carrera judicial sólida y la garantía de la independencia e integridad de jueces y profesionales del derecho, incluyendo su seguridad. Su visión de la función jurisdiccional y la impartición de justicia enfatiza la importancia de los valores morales, el acceso a la justicia para todos y la contribución al bien común y al orden social.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574138332769
+- https://www.instagram.com/eduardobazan2025?igsh=YnF4MGx2OGNpb2Zq
+- https://youtube.com/@eduardobazan-k8h?si=zVJEDuZLYr7U_AMK
+- https://www.tiktok.com/@eduardo.bazan1cto?_t=ZM-8uxJacypXWB&_r=1
+
+
+## Cursos
+
+- Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la perspectiva Constitucional,Diplomado del nuevo Juicio de Amparo, diálogos para la instrumentación de la nueva Ley de Amparo,Diplomado en Argumentación Jurídica,Diplomado del Nuevo Sistema de Justicia Penal Acusatorio de frente a la Sociedad,Curso de actualización Teoría y Práctica del Sistema deJusticia Penal Acusatorio a través de los precedentes de la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52435/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, egresado de la Universidad Nacional Autónoma de México, Maestría en Derecho Penal en el INACIPE
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque no soy una persona corrupta, antes bien tengo principios morales y éticos, cuento con experiencia jurídica.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional implica una absoluta primacía de los valores espirituales y morales sobre los materiales que al cumplirse con la altura que exige esa gran encomienda, constituye un valioso aporte al logro del bien común porque contribuye a la perfección del orden social. El magistrado que la vive con verdadera vocación encuentra en ella un precioso instrumento para la perfección moral.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una de las funciones públicas más importantes del Estado Mexicano. El ejercicio de dicha función contribuye a preservar el orden social y la seguridad jurídica. Es obligación del gobierno a través del Poder Judicial de la Federación atender de manera oportuna, eficaz y de manera gratuita, el reclamo de justicia de todo aquel gobernado que resienta en su esfera jurídica una violación a sus derechos fundamentales, desde los más desprotegidos hasta las grandes empresas
+
+
+## Propuestas
+
+- Implementación de un área de defensoría pública especializada en los grupos en situación de vulnerabilidad, mujeres, niñas, niños, adolescentes, y los grupos de atención prioritaria con una perspectiva comparada a nivel internacional. Para que a través de asesores con alto perfil profesional puedan tener acceso a un tribunal que contribuya a aminorar su dolor, angustia, y reclamo social a través la emisión de sentencias justas y oportunas.
+- Fortalecimiento de la carrera judicial, que redundara en la realización de un trabajo de excelencia, contribuyendo a la consolidación de su independencia, así como la capacitación continua y en forma obligatoria que repercutirá en beneficio de la sociedad. Además la inamovilidad en el cargo, buscando garantizar la estabilidad en la función y con ello asegurar la imparcialidad.
+- Como virtud ética de todo Magistrado, se encuentra en primer lugar la independencia en la seguridad de impartir una justicia imparcial, con apego a la ley. De ahí que resulta un punto álgido lo atinente a la seguridad de los Jueces y Juezas, los profesionales del derecho en su función de auxiliares de la justicia, cuando los mismos se hallan expuestos a riesgos, dependiendo de los casos como corrupción o violación de derechos fundamentales por fines políticos o no.
+

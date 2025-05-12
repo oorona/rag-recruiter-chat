@@ -1,0 +1,75 @@
+Nombre Candidato: FELIPE TADEO RICO VICCON
+Cargo: Juezas/es de Distrito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: fviccon182@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Civil, Derecho Corporativo, Derecho Mercantil, Derecho Procesal, Diplomado., Educación Superior, Escuela Libre de Derecho, Especialización, ITAM, Licenciado en Derecho, Maestro en Derecho, Tecnológico de Monterrey, UNAM
+Tags Propósito: Acceso a la justicia, Confianza pública, Cultura jurídica, Cumplimiento, Derecho aplicable., Derechos, Eficiencia, Formalismo, Imparcialidad, Independencia, Justicia, Mecanismos alternativos, Obligaciones, Paz social, Resolución de conflictos, Transparencia, Tutela judicial efectiva
+
+
+## Descripción del Candidato 
+
+FELIPE TADEO RICO VICCON es candidato a Jueces/as de Distrito en Tlaxcala, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho, respaldada por cédula profesional, y ha realizado diversas especializaciones y diplomados en áreas como Derecho Civil, Mercantil y Procesal, incluyendo estudios en la UNAM, Escuela Libre de Derecho, ITAM y Tecnológico de Monterrey.
+
+Su motivación para buscar el cargo se centra en servir a la sociedad impartiendo justicia pronta, expedita e imparcial. Su visión para la función jurisdiccional es consolidar un Poder independiente que atienda con profesionalismo y eficiencia a quienes buscan la intervención de la autoridad. Propone eliminar formalismos en los procesos jurisdiccionales, difundir una cultura jurídica accesible a la sociedad y fomentar el cumplimiento de obligaciones y el uso de mecanismos alternativos de solución de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574744791583
+- https://www.linkedin.com/in/felipe-rico-40a680121/
+
+
+## Cursos
+
+- Especialista en Derecho Civil por la UNAM
+- Curso de actualización en Derecho Mercantil por la Escuela Libre de Derecho
+- ,Diplomado en Derecho Procesal por la UNAM
+- Diplomado en Derecho Corporativo por el ITAM y el Tecnológico de Monterrey
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55305/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Maestro en Derecho por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque podré servir a la sociedad en la trascedente tarea de impartir justicia pronta, expedita e imparcial para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Consolidarse como un Poder público plenamente independiente y cuyo objeto primordial resida en atender con profesionalismo y de manera pronta a toda persona que busca la intervención de la autoridad jurisdiccional para ser escuchada y resolver la situación planteada con base en el Derecho aplicable al caso en concreto. Asimismo, la función jurisdiccional debe aspirar a ser menos formalista y más eficiente para garantizar los derechos de acceso a la justicia y a una tutela judicial efectiva.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no debe vislumbrarse únicamente como un discurso retórico dirigido a los justiciables, sino que se debe ser efectivamente constatada en la realidad y en el día a día, no sólo por aquéllos que acuden a las instancias jurisdiccionales para la solución de cualquier conflicto suscitado, sino también por la sociedad en general, a fin de devolverle la confianza respecto de la actuación de los funcionarios a quienes se les encomienda precisamente la tarea de impartir justicia
+
+
+## Propuestas
+
+- Que se eliminen diversos formalismos y obstáculos innecesarios en las distintas etapas de los procesos jurisdiccionales, que aún dificultan el acceso efectivo a la justicia para la mayoría de las personas.
+- Que se difunda eficientemente por todos los canales de información y de manera entendible y permanente, una cultura jurídica dirigida a la sociedad en general, para que todas las personas conozcan sus derechos y obligaciones como miembros de la colectividad, así cómo los mecanismos con los que cuentan para ejercer sus prerrogativas y defensas ante cualquier abuso de poder o de cualquier situación en la que requiera la intervención de la autoridad jurisdiccional.
+- Que se fomente la importancia de la cultura del cumplimiento recíproco de las obligaciones contraídas en las relaciones privadas entre los particulares para lograr en la medida de lo posible un estado permanente de paz en dicho ámbito y que de igual manera se difundan por todos los canales posibles, las bondades y beneficios en el uso de mecanismos alternativos de solución de conflictos en el sector del Derecho privado, para evitar una contienda judicial.
+

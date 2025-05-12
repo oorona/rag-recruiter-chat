@@ -1,0 +1,77 @@
+Nombre Candidato: LILIAN SARAI HERRERA MEDINA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5511999231
+Correo Electronico: lawyer.lilis@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Constitucionalidad, Derecho Fiscal, Derechos Humanos, Especialización., Juicio de Amparo, Justicia Administrativa, Licenciatura en Derecho, Posgrado, SCJN, Tribunal Federal, UNAM
+Tags Propósito: Accesibilidad, Audiencias Virtuales, Capacitación Continua, Confianza Ciudadana, Contrapesos Democrático, Derecho Comparado, Derechos Humanos, Digitalización, Especialización Técnica, Estado de Derecho, Evaluación Ciudadana, Expedientes Electrónicos, Formación en Derechos Humanos, Impacto Social, Independencia Judicial, Innovación Jurisprudencial, Justicia Eficiente, Justicia Material, Seguridad Jurídica, Sensibilidad Social, Tecnología Jurisdiccional, Transparencia Judicial, Tratados Internacionales.
+
+
+## Descripción del Candidato 
+
+Lilian Sarai Herrera Medina es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Judicial de la Federación. Cuenta con Maestría concluida y especialización en Derecho Fiscal y Justicia Administrativa, además de diversos diplomados en temas de derechos humanos y justicia administrativa ofrecidos por instituciones como la UNAM y la SCJN.
+
+Su motivación para el cargo es contribuir al fortalecimiento del Estado de Derecho y la protección de los derechos humanos. Propone un sistema integral de transparencia judicial, un modelo de especialización judicial que equilibre la excelencia técnica con la sensibilidad social, y la implementación de nuevas tecnologías para agilizar y democratizar el acceso a la justicia. Busca consolidar un sistema de justicia eficiente, accesible, transparente e independiente, con un control efectivo de la administración pública y una innovación jurisprudencial que actualice el derecho administrativo.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100013992586205
+- https://x.com/LilianHerreraM
+- https://www.instagram.com/lilian.sarai.herrera.medina/
+- https://www.youtube.com/@lilianherreramedina7462
+- https://www.tiktok.com/@lilian_herrera_medina
+
+
+## Cursos
+
+- Especialista en Derecho Fiscal, grado obtenido en la División de Estudios de Posgrado de la Facultad de Derecho UNAM,Especialista en Justicia Administrativa, por el Centro de Estudios del Tribunal Federal de Justicia Administrativa,Diplomado la Suprema Corte y los Derechos Humanos, edición 2021 de las Casas de la Cultura Jurídica de la SCJN
+- ,Diplomado Juicio de Amparo, edición 2021, de las Casas de la Cultura Jurídica de la SCJN
+- ,Diplomado Derechos Humanos y Bloque de Constitucionalidad del Instituto de Investigaciones Jurídicas de la UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53279/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Especialista en Derecho Fiscal, Especialista en Justicia Administrativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir al fortalecimiento del Estado de Derecho Mexicano, garantizando la protección de los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Consolidar un sistema de justicia eficiente, transparente y accesible, fortaleciendo la independencia judicial, implementando tecnologías que agilicen procesos sin sacrificar calidad, asegurando que cada resolución respete el Estado de Derecho. Equilibrar la especialización técnica con sensibilidad social, garantizando que nuestra función jurisdiccional proteja efectivamente los derechos de los ciudadanos contra actos arbitrarios de autoridad, generando confianza en el Poder Judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Accesibilidad mediante simplificación procesal y digitalización; independencia absoluta frente a poderes externos; especialización técnica balanceada con sensibilidad social; control efectivo de la administración pública como contrapeso democrático; e innovación jurisprudencial que actualice el derecho administrativo a realidades contemporáneas. Busco construir una justicia que, además de resolver controversias, fortalezca el Estado de Derecho y genere confianza ciudadana en las instituciones.
+
+
+## Propuestas
+
+- Sistema integral de transparencia judicial con publicación automática de resoluciones en formatos accesibles, métricas de desempeño jurisdiccional y mecanismos de evaluación ciudadana. Establecimiento de comités de vigilancia independientes que supervisen asignación de casos y criterios de resolución. Esta apertura institucional fortalecerá la legitimidad del Poder Judicial, combatirá prácticas discrecionales y permitirá evaluar objetivamente el impacto de las decisiones jurisdiccionales.
+- Modelo de especialización judicial que combine excelencia técnica en materia administrativa con formación en derechos humanos y análisis de impacto social. Capacitación continua en interpretación constitucional progresista, derecho comparado y aplicación de tratados internacionales, garantizando resoluciones técnicamente robustas que consideren contextos sociales y consecuencias prácticas, estableciendo jurisprudencia que equilibre seguridad jurídica con justicia material.
+- Capacitación constante en nuevas tecnologías de apoyo a la función jurisdiccional que unifiquen expedientes electrónicos, firma digital avanzada y audiencias virtuales accesibles desde cualquier dispositivo. La transformación digital no solo agilizará procesos, sino que democratizará el acceso a la justicia administrativa y generará datos para mejora continua de los servicios jurisdiccionales.
+

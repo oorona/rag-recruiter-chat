@@ -1,0 +1,78 @@
+Nombre Candidato: MARIA DE LOS ANGELES MENDOZA HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8121934492
+Correo Electronico: angelesmendoza198331@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Penal, Derecho Procesal Penal, Derecho de Amparo, Doctorado, Licenciatura, Maestría, Psicología Social
+Tags Propósito: acceso a la justicia, amparo, capacitación continua, eficacia, eficiencia, empatía, escucha ciudadana., humanismo jurídico, justicia federal, justiciable, problemas sociales, protección, resolución de conflictos, sensibilidad humana, servicio público, zonas marginadas
+
+
+## Descripción del Candidato 
+
+MARIA DE LOS ANGELES MENDOZA HERNANDEZ es candidata a Jueza/es de Distrito en Nuevo León, postulándose a través del Poder Ejecutivo Federal y Poder Legislativo Federal. Cuenta con un Doctorado en Derecho Penal y formación en Derecho de Amparo, Derecho Procesal Penal, Psicología Social y Licenciatura en Derecho. 
+
+Su trayectoria se centra en veinte años dedicados a la función jurisdiccional, motivada por su vocación de servicio. Su visión de la función jurisdiccional busca asegurar que quienes solicitan amparo encuentren apoyo y protección. Sus propuestas incluyen impartir justicia con un enfoque humanista, promover la capacitación continua del personal jurisdiccional y acercarse a las comunidades más necesitadas para entender sus problemas y buscar soluciones conjuntas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573886941236&mibextid=wwXIfr&rdid=7LXGvpb98NVQLfmj&share_url=https3A2F2Fwww.facebook.com2Fshare2F1Boun5cxus2F3Fmibextid3DwwXIfr#
+- https://x.com/angelesmendoza_?s=21
+
+
+## Cursos
+
+- Lic
+- en Derecho,Maestria en Derecho de Amparo,Maestria en Derecho Procesal Penal,Doctorado en derecho Penal,Psicologia Social
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54108/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho Psicoogia social Mtra
+- en Dcho Procesal Mtra
+- en Dcho Aparo Doc
+- en Dcho Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo veinte años dedicándome a la función jurisdiccional, por vocación y servicio, tengo la preparación y el compromiso
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es que las personas cuando soliciten el amparo y protección de la justicia federal, lo hagan con la certeza de que encontraran el regocijo y apoyo que necesitan ante el problema que les aqueja.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que el justiciable sepa que quien resolverá su asunto, no solamente sea una persona que sabe elaborar un buen proyecto, sino que encuentre esa empatía, amabilidad y sensibilidad humana, que se ha ido perdiendo poco a poco.
+
+
+## Propuestas
+
+- Impartir justicia con verdadero humanismo jurídico a la persona que venga en busca de ello.
+- Capacitación continua como juzgadora en el personal jurisdiccional y operativo, para que verdaderamente haya un cambio en la impartición de justicia, con eficiencia y eficacia.
+- Acudir por lo menos, una vez al mes, a las zonas que más lo necesitan, para escuchar de primera mano, los problemas que les aqueja a la ciudadanía, buscar soluciones en conjunto por que no podemos quedarnos en los escritorios revisando sentencias y acuerdos, o administrando un juzgado, si somos indiferentes e insensibles a los problemas sociales de quienes más lo necesitan.
+

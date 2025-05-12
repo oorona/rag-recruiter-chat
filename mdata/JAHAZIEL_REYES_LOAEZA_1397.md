@@ -1,0 +1,77 @@
+Nombre Candidato: JAHAZIEL REYES LOAEZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 9512287843
+Correo Electronico: rey_loaezajas@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Civil, Derecho Mercantil, Derecho Penal, Especialización, Formación, Licenciatura., Master, PJEO, Poder Judicial, Razonamiento Probatorio, Sistema Acusatorio Adversarial, UABJO, Universidad de Genova, Universidad de Girona
+Tags Propósito: Comunidad, Confianza, Eficiencia, Honestidad, Humanidad, Impartición de justicia, Justicia, Plazos breves, Poder Judicial., Profesionalismo, Puertas abiertas, Responsabilidad, Sentido social, Transparencia, Trayectoria
+
+
+## Descripción del Candidato 
+
+Jahaziel Reyes Loaeza es candidato a Magistrado de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría y cédula profesional, así como una formación continua en áreas como Derecho Penal, Civil Mercantil y Razonamiento Probatorio (Universidad de Girona y Génova). Su motivación para el cargo se basa en su preparación y deseo de servir a la comunidad.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la necesidad de un Poder Judicial más cercano a la sociedad, profesional, humano y sensible a las necesidades reales de la población. Sus propuestas incluyen una justicia más accesible y transparente, la consideración del impacto social en las decisiones judiciales, y la resolución expedita de los asuntos para evitar la impunidad y garantizar la justicia oportuna.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/reyes.loaeza
+- https://www.instagram.com/jahaziel.reyes.12/?igsh=MWwxOWlyYWFpZjNyaA3D3D&utm_source=qr#
+- https://www.tiktok.com/@jahaziel.reyes.lo?_t=ZM-8uyDUZiN0I2&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho Penal, por el Instituto de Capacitacio¿n y Especializacio¿n del PJEO,Curso Ba¿sico de Formacio¿n y Preparacio¿n de Secretarios del Poder Judicial de la Federacio¿n
+- ,Seminario para Jueces del Sistema Acusatorio Adversarial, del Poder Judicial del Estado de Oaxaca
+- ,Seminario Aplicación Práctica de la Teoría de Delito en el Proceso Penal Acusatorio, por el PJEO
+- ,Especialidad en Derecho Civil   Mercantil por el Instituto de Capacitacio¿n y Especializacio¿n del PJEO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54669/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UABJO, Master en Razonamiento Probatorio por la Universidad de Girona España y de Genova Italia
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la formación requerida y mi convicción es servir a la comunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de juzgar es una de las más altas responsabilidades, por lo que, requiere de mujeres y hombres altamente preparados, pero adicionalmente con una sensibilidad humana, para que se más cercana a la gente, sin que se desconozca la realidad imperante. Por ello, esta es una nueva oportunidad para hacer un cambio de raíz en el Poder Judicial de la Federación, buscando los mejores perfiles y saber la trayectoria de los mismos, para conocer su honestidad y su compromiso de la justicia
+
+
+## Vision sobre la Imparticion de Justicia
+
+En los últimos tiempos la impartición de justicia ha perdido de vista las verdaderas necesidades de la sociedad, pues ésta demanda cada vez más una justicia más profesional, pero sobre todo más humana, ya que el vínculo entre juzgadores y ciudadanos es casi inexistente, por lo que, debemos volver los ojos a la sociedad y conocer las demandas reales de justicia, solo así se recobrará la confianza en las instituciones de impartición de justicia.
+
+
+## Propuestas
+
+- La justicia debe ser de puertas abiertas y para lograrlo necesitamos más cercanía con la sociedad.
+- El juzgamiento siempre debe de realizarse con un sentido social, pues las decisiones de los juzgadores no solo solucionan controversias, sino repercuten en la vida de toda la comunidad.
+- Los asuntos deben ser resueltos el plazos más breves, pues es innegable que una justicia tardía redunda en injusticia.
+

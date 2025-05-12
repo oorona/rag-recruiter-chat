@@ -1,0 +1,74 @@
+Nombre Candidato: LUIS ALBERTO IBARRA NAVARRETE
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5519284405
+Correo Electronico: juezluisibarra@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho Civil, Docencia., IJF, Jurisprudencia, Redacción de Sentencias
+Tags Propósito: Acceso a la Justicia, Atención Ciudadana, Cercanía Ciudadana, Derechos Humanos, Digitalización, Eficiencia, Evaluación Ciudadana, Experiencia, Formación Continua, Honestidad, Imparcialidad, Justicia, Justicia Digital, Perspectiva de Género, Productividad, Resolución Clara, Responsabilidad Social., Sensibilidad Social, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+LUIS ALBERTO IBARRA NAVARRETE es candidato a Juez/a de Distrito en la Ciudad de México, postulando en la categoría de En Funciones. Cuenta con licenciatura y cédula profesional, además de 28 años de experiencia en el ámbito judicial, 18 de ellos como Juez de Distrito. Su motivación para buscar el cargo es continuar sirviendo con honestidad y experiencia para mejorar la vida de las personas.
+
+Su visión se centra en ejercer la función jurisdiccional con profesionalismo, imparcialidad y cercanía a la ciudadanía, buscando una justicia pronta, efectiva y sin rezago. Sus propuestas incluyen facilitar el acceso a la justicia a través de resoluciones claras y un programa de atención directa a los justiciables, así como fortalecer la transparencia judicial y la capacitación continua del personal en temas de derechos humanos y justicia digital.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574036969579
+- https://www.x.com/libarran70
+- https://www.instagram.com/juezluisibarra
+- https://www.tiktok.com/@juezluisibarra
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53732/11
+
+
+## Trayectoria Academica
+
+- Impartí clases de las asignaturas Derecho Civil y Jurisprudencia y Taller de Redacción de Sentencias de Amparo, IJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero seguir sirviendo con honestidad y experiencia, impartiendo justicia y mejorar la vida de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función jurisdiccional con profesionalismo, imparcialidad y cercanía con la ciudadanía, garantizando el acceso a una justicia civil pronta, efectiva y sin rezago. Consolidar un juzgado que sea referente en productividad, transparencia y respeto a los derechos humanos, siendo un puente entre el derecho y la realidad social del país con un compromiso firme con el pueblo y con México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Consolidar una impartición de justicia cercana a la gente, con altos estándares de efectividad, sin rezago y con resoluciones claras, justas y humanistas. Con 28 años de experiencia judicial y 18 como Juez de Distrito, reafirmo mi compromiso con una justicia que sirva al pueblo, proteja derechos y transforme realidades con imparcialidad, honestidad y profundo sentido de responsabilidad social.
+
+
+## Propuestas
+
+- 1. Justicia más cercana y comprensible para el pueblo, redactar resoluciones más claras, sin lenguaje técnico innecesario, explicar a quien acuda a mí, derechos y procesos judiciales. Mantener y reforzar la productividad del juzgado con sistemas de control interno, seguir mejorando la digitalización total de expedientes y audiencias.
+- 2. Atención directa a los justiciables, seguir con mi programa de ¿Puertas Abiertas¿: atención directa diaria a ciudadanos con dudas sobre sus procesos, facilitar canales accesibles de orientación jurídica inicial, fortalecer la transparencia judicial, publicar informes periódicos de resultados del juzgado de forma sencilla y visual, fomentar evaluaciones ciudadanas sobre la atención y el trato del personal.
+- 3. Formación continua del personal judicial, implementar capacitaciones regulares en derechos humanos, perspectiva de género y justicia digital, fomentar un equipo comprometido, capacitado y empático, justicia con rostro humano, promover criterios que protejan a los sectores vulnerables, priorizando el fondo sobre la forma, ser un referente en resoluciones que equilibren la técnica jurídica con sensibilidad social.
+

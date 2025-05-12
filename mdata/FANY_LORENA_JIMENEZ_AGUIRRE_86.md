@@ -1,0 +1,75 @@
+Nombre Candidato: FANY LORENA JIMENEZ AGUIRRE
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Antisoborno., Compliance, Control de la Administración Pública, Derecho, Derecho Constitucional, Doctor Honoris Causa, Gestión de Riesgos, Gestión de Riesgos Legales, Solución de Conflictos
+Tags Propósito: acceso a la justicia, alerta temprana, capacitación judicial, compliance público, confianza ciudadana, demoras en resoluciones, derechos fundamentales, derechos humanos, disciplina judicial, eficiencia, estado de derecho, estado democrático, formación continua, gestión de carga de trabajo, imparcialidad, independencia judicial, integridad, justicia, justicia fiscal., justicia penal, legalidad, modernización judicial, paz social, perspectiva de género, prevención de corrupción, profesionalismo, protección de denunciantes, rendición de cuentas, revisión de sentencias, sistema de denuncias, transparencia, ética judicial
+
+
+## Descripción del Candidato 
+
+FANY LORENA JIMENEZ AGUIRRE es candidata a la Magistratura del Tribunal de Disciplina Judicial, postulándose desde el Poder Legislativo Federal. Cuenta con doctorado en Derecho y experiencia en Gestión de Riesgos, Compliance y Prácticas Antisoborno. Su motivación para el cargo se centra en garantizar la ética y disciplina judicial, buscando consolidar un Poder Judicial íntegro y eficiente en México. 
+
+En su visión, la función jurisdiccional debe ser un pilar del Estado de derecho, y la impartición de justicia pronta, expedita y libre de influencias externas. Sus propuestas incluyen la creación de un esquema de formación continua obligatoria para jueces, la implementación de un sistema automatizado de alerta temprana para evitar demoras en resoluciones, y el fortalecimiento del sistema de denuncias contra servidores públicos del Poder Judicial de la Federación, incluyendo una aplicación móvil para ciudadanos y protección a denunciantes.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16MvDnVUHD/?mibextid=wwXIfr
+- https://www.instagram.com/fany_jimenez_aguirre?igsh=MWk3anVrYXlyNW00bg==
+- https://www.tiktok.com/@fany.lorena.jmzagui?_t=ZM-8uxNwd3VXTa&_r=1
+
+
+## Cursos
+
+- Diploma de Alta Especialización sobre  Derecho Constitucional  Universidad Complutense de Madrid 2022,Certificación como Prestadora de Servicios de Métodos Alternos de Solución de Conflictos,Título Honorifico Doctor de Doctores Honoris otorgado por Liceo de Lideratos Honoris Causa A
+- C
+- ,Certificación Internacional en ISO 31022:2021 y Especialización en Sistema de Gestión de Riesgos Legales,Diploma de alta especialización sobre El control de la administración pública 2023, visión comparada España y México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16479/7
+
+
+## Trayectoria Academica
+
+- Doctora en Derecho, experta en Gestión de Riesgos y Prácticas Antisoborno, y Compliance Officer
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar la ética judicial, fortalecer la disciplina y consolidar un Poder Judicial íntegro y eficiente en México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser pilar del Estado de derecho, garantizando resoluciones justas, imparciales y apegadas a la ley. Es esencial fortalecer la disciplina y ética judicial, evitando corrupción y garantizando la rendición de cuentas. A través de un actuar transparente y eficiente, los juzgadores deben consolidar la confianza ciudadana y asegurar que la justicia sea accesible, efectiva y protectora de los derechos fundamentales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta, expedita y libre de influencias externas, garantizando igualdad ante la ley. Es clave que los jueces, magistrados y ministros actúen con independencia, profesionalismo y ética, resolviendo con base en los principios de legalidad y acceso a la justicia. La modernización del sistema judicial, junto con la capacitación constante, permite un acceso efectivo a la justicia, fortaleciendo la paz social y consolidando un Estado democrático y justo.
+
+
+## Propuestas
+
+- Crear un esquema de formación continua obligatoria de cuando menos dos programas anuales coordinado por el Órgano de Evaluación de Desempeño Judicial que pertenece al Tribunal de Disciplina Judicial. Para ello se implementarán cursos anuales no optativos sobre derechos humanos, perspectiva de género y técnicas de gestión de carga de trabajo, así como talleres de especialización, prevención de actos de corrupción, compliance público, así como la facilitación de obtención de certificaciones ISO.
+- Implementar un sistema automatizado de alerta temprana para demoras en resoluciones que identifique casos próximos a exceder los plazos constitucionales, especialmente en materia penal y fiscal, así como revisión aleatoria de sentencias para revisar el 5 por ciento de las emitidas anualmente para detectar los errores más recurrentes, todo esto con la finalidad de perfeccionar la función jurisdiccional.
+- Es necesario fortalecer y facilitar el sistema de denuncias en contra de los servidores públicos del Poder Judicial de la Federación. Para lograr esto se propone lo siguiente: a) Crear una app para que los ciudadanos puedan presentar y darle seguimiento a las denuncias correspondientes; b) Establecer un área de asesoría especializada en coordinación con la Defensoría Pública Federal, y c) Implementar mecanismos de beneficios y protección a los denunciantes respecto de actos de corrupción.
+

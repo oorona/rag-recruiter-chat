@@ -1,0 +1,74 @@
+Nombre Candidato: CARLOS DANIEL SANCHEZ ZETINA
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: HOMBRE
+Telefono: 9621862380
+Correo Electronico: danielzetina.eleccion2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización., Asesoría Jurídica, Ciencias Penales, Criminalística, Derecho, Diplomado, Juicio de Amparo, Licenciatura, Maestría, Titulo
+Tags Propósito: Acceso a la justicia, Adultos mayores, Autonomía judicial, Bien común, Comprensión de derechos, Derechos humanos, Desburocratización, Dignidad, Diversidad sexual, Eficiencia, Esperanza, Evaluación judicial., Grupos indígenas, Integridad, Interés colectivo, Justicia humana, Mujeres, Niños, Protección a grupos vulnerables, Recursos, Rendición de cuentas, Transformación judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Daniel Sanchez Zetina es candidato a Jueces/as de Distrito en Chiapas, postulado por el Poder Ejecutivo Federal. Licenciado en Derecho con Maestría en Ciencias Penales y Criminalista, cuenta con especialización en asesoría jurídica y diplomado en juicio de amparo. 
+
+Motivado por la defensa de los derechos humanos, propone una justicia más humana, enfocada en la protección de grupos vulnerables como indígenas, mujeres y la comunidad LGBTQ+. Sus propuestas incluyen facilitar el acceso a la información sobre derechos, generar mecanismos de evaluación de la función jurisdiccional por parte de la sociedad civil, y optimizar el uso de recursos con transparencia y rendición de cuentas. Su curriculum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Carlos-Daniel-Sanchez-Zetina/61572531524328/?locale=es_LA
+- https://x.com/i/flow/login?redirect_after_login=2FDanielZetinaAbg
+- https://www.instagram.com/accounts/login/?next=https3A2F2Fwww.instagram.com2Fdanielzetinaabg2F3Figsh3DYjVoY2V5OHR5bGJ426utm_source3Dqr&is_from_rle
+- https://www.tiktok.com/@daniel.zetina2025
+
+
+## Cursos
+
+- Especialidad en Asesoría Jurídica, Diplomado Juicio de Amparo y Curso de actualización en asesoría jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55034/11
+
+
+## Trayectoria Academica
+
+- LICENCIADO en Derecho (titulo) y MAESTRÍA en Ciencias Penales y Criminalista (concluida)
+
+
+## Motivo para buscar el Cargo Publico
+
+Como promotor y defensor de los derechos humanos, considero que podría impartir una justicia con un sentido mas humano.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe enfocarse en proteger a los mas desprotegidos; asimismo, que los procesos sean mas agiles y eficientes, habilitando herramientas humanas para desburocratizar el acceso a la justicia y atender las causas de fondo, defendiendo así la integridad y dignidad de las personas. Ser sensibles a la pertenencia de grupos indígenas, mujeres, niños, personas adulas, diversidad sexual y/o de aquellas categorías que tengan imitaciones para acceder a un tribunal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema de impartición de justicia en su conjunto requiere de transformaciones significativas. Sin embargo, estos cambios deben ser positivos y orientados hacia el bien común o interés colectivo, de manera que el sistema de justicia cumpla verdaderamente con su misión, abarcando realmente los problemas sociales que quejan a la ciudadanía. Lograr un sistema de impartición de justicia en que las personas sientan un espacio de esperanza y dignidad.
+
+
+## Propuestas
+
+- Generar mecanismos que faciliten la comprensión de los derechos de las personas, así como brindar herramientas para ejercerlos, por medio de los órganos jurisdiccionales.
+- Generar un mecanismo que permita a los justiciables, instituciones, activistas y académicos, evaluar y validar la función, así como las determinaciones de juezas y jueces.
+- Uso de recursos materiales, presupuestales y humanos de manera eficiente y racional. Asimismo, fomentar la transparencia, rendición de cuentas, autonomía e independencia sobre las decisiones jurisdiccionales.
+

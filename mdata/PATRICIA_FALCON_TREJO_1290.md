@@ -1,0 +1,76 @@
+Nombre Candidato: PATRICIA FALCON TREJO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: patyfalcon.pj@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Audiencias Laborales, Conciliación, Convenios, Decisión Judicial, Derecho Laboral, Igualdad de Género, Justicia Laboral., Licenciatura en Derecho, Maestría en Derecho Laboral, Mediación, Seguridad Social
+Tags Propósito: Justicia, accesibilidad, cercanía ciudadana, confianza ciudadana, derechos humanos, desarrollo., dignidad, equidad, estabilidad, evaluación jurisdiccional, humanidad, imparcialidad, laboral, lenguaje sencillo, organización judicial, rendición de cuentas, sentencias claras, transparencia
+
+
+## Descripción del Candidato 
+
+Patricia Falcon Trejo es candidata a las Magistraturas de Tribunales Colegiados de Circuito en Morelos, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con Maestría en Derecho Laboral y una trayectoria académica que incluye Licenciatura en Derecho por la UAEM y dos Maestrías en Derecho Laboral. Su motivación para buscar el cargo público se centra en aportar experiencia y sensibilidad al Poder Judicial, aplicando la ley con justicia.
+
+Su visión sobre la función jurisdiccional se basa en la cercanía con la ciudadanía, la equidad y la aplicación imparcial de la ley, promoviendo una justicia sensible y humana.  Sus propuestas incluyen la creación de un “Tribunal Accesible” para fomentar el diálogo con la ciudadanía, la publicidad de los mecanismos de medición y evaluación de la labor jurisdiccional, y el uso de un lenguaje sencillo y comprensible en las sentencias, buscando así fortalecer la transparencia y la confianza ciudadana en el Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://patyfalcon.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/patty.falcon
+- https://www.instagram.com/pattyfalcont
+- https://www.tiktok.com/@pattyfalcontrejo
+
+
+## Cursos
+
+- Taller sobre conciliación y mediación y elaboración de convenios en materia de trabajo,Taller de oralidad y conducción de audiencias laborales y construcción de la decisión judicial,Curso Genero como Herramienta para la Igualdad
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Seguridad Social
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53043/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho (UAEM), Maestría en Derecho Laboral (ELD), Maestría en Derecho Laboral (UP)
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero aportar experiencia y sensibilidad al nuevo Poder Judicial, aplicando la ley con justicia para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión se basa en la cercanía con la ciudadanía, la equidad en las decisiones y la aplicación imparcial de la ley. Creo en una justicia sensible, humana y técnica, que proteja los derechos sin distinciones y que responda con claridad y oportunidad. Creo que es posible emitir decisiones fundamentadas, transparentes y orientadas a proteger los derechos humanos, especialmente en el ámbito laboral, donde está en juego la estabilidad, la dignidad y el desarrollo de trabajadores.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Propongo modelos de organización interna que impulsen sentencias claras y objetivas, que contribuyan a resolver los problemas reales de la sociedad. La justicia debe ser cercana a las personas, comprensible y humana, porque solo así se fortalece la confianza ciudadana y se transforma la percepción del Poder Judicial como una herramienta útil y accesible para todos.
+
+
+## Propuestas
+
+- TRIBUNAL ACCESIBLE: que fomente el diálogo directo entre la ciudadanía y los operadores de justicia. Esta cercanía permitirá humanizar la función jurisdiccional, combatir la percepción de lejanía y generar confianza. A través de espacios accesibles y transparentes, se buscará sensibilizar también a quienes imparten justicia sobre los problemas reales de la sociedad, fortaleciendo así una justicia más empática, abierta y útil para todas las personas.
+- PUBLICIDAD EN LOS MECANISMOS DE MEDICIÓN Y EVALUACION DE LA LABOR JURISDICCIONAL: Si bien los tribunales ya cuentan con herramientas para medir su desempeño, estas suelen ser poco claras y de conocimiento limitado. La difusión transparente, comprensible y accesible de dichos resultados fortalecerá la rendición de cuentas, promoverá la confianza ciudadana y visibilizará los esfuerzos por mejorar la impartición de justicia desde una visión abierta, responsable y cercana a la sociedad.
+- LENGUAJE SENCILLO: Propongo impulsar la emisión de sentencias claras, sencillas y comprensibles para todas las personas, sin perder solidez jurídica. Una redacción accesible fortalece la transparencia, facilita el entendimiento de las decisiones judiciales y dignifica a quienes acuden a los tribunales. La claridad en el lenguaje también permite que la ciudadanía confíe en la justicia y sienta que sus demandas son atendidas con cercanía y responsabilidad.
+

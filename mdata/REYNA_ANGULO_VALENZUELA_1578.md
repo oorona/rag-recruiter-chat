@@ -1,0 +1,71 @@
+Nombre Candidato: REYNA ANGULO VALENZUELA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: MUJER
+Telefono: 6677806857
+Correo Electronico: angulovalenzuelareyna@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Anticorrupción, Auditoría Forense, Compliance, Derecho, Derecho Constitucional, Derecho Procesal Penal, Derechos Humanos, Doctorado, Lavado de Dinero, Licenciatura, Maestría., Responsabilidades Administrativas, Responsabilidades Penales, Servidores Públicos, Transparencia
+Tags Propósito: Abuso de Poder, Acceso a la Justicia, Autonomía, Confiabilidad, Confianza, Constitucionalidad, Corrupción, Derechos Humanos, Eficiencia, Equidad, Estabilidad Institucional., Estado de Derecho, Imparcialidad, Impunidad, Independencia, Justicia, Legalidad, Nepotismo, Paz Social, Resolución de Conflictos, Ética
+
+
+## Descripción del Candidato 
+
+REYNA ANGULO VALENZUELA es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho y ha completado diversos diplomados en áreas como Administración Pública, Derechos Humanos, Derecho Constitucional y temas relacionados con la transparencia y la corrupción.
+
+Su motivación para buscar el cargo se centra en contribuir a la impartición de justicia, fortalecer el Estado de Derecho y la confianza en el Poder Judicial Federal. Su visión de la función jurisdiccional se basa en principios de imparcialidad, independencia, legalidad y respeto a los derechos humanos. Sus propuestas principales incluyen la impartición de justicia eficaz y accesible, la salvaguarda de la autonomía e independencia del Poder Judicial, y el combate a la impunidad y la corrupción.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18UR7VADt8/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Diplomado en Administración Pública,Diplomado en Derechos Humanos, Género y Justicia,Diplomado en Derecho Constitucional y Amparo,Diplomado en Transparencia, Anticorrupción y Auditoría Forense,Diplomado en Lavado de Dinero, Responsabilidades Administrativas y Penales de Servidores Públicos, y Compliance
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52342/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestra en Derecho procesal Penal Oral, Doctora en Derecho, Diplomada en diversas materias
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a la impartición de justicia, garantizar el Estado de Derecho y fortalecer la confianza en el PJF.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la piedra angular del Estado de Derecho y tiene como propósito garantizar la paz social mediante la correcta aplicación de la ley. Su ejercicio debe estar guiado por principios de imparcialidad, independencia, legalidad y equidad, asegurando que cada resolución sea justa y conforme a los derechos humanos, con un sentido igualitario y humanista, que permita el acceso a la justicia de todas y todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia de forma igualitaria, desde un sentido profundamente humano y ético, que garantice un sistema judicial eficiente y confiable, para mantener la paz social, erradicando y previniendo el abusos de poder, el nepotismo y la corrupción, con el fin de lograr el acceso a la justicia de todas y todos los ciudadanos.
+
+
+## Propuestas
+
+- Impartición de justicia eficaz y accesible: El Poder Judicial debe resolver los conflictos de manera pronta y expedita, garantizando que todas las personas puedan acceder a la justicia sin obstáculos indebidos.
+- Autonomía e independencia: La labor jurisdiccional debe ejercerse sin interferencias externas, garantizando que los fallos sean producto de un análisis jurídico libre de presiones políticas o económicas. Salvaguardando en todo momento los derechos humanos, con un sentido humanista e igualitario.
+- Combate a la impunidad y la corrupción: A través de resoluciones justas y apegadas a derecho, el Poder Judicial debe contribuir a la estabilidad institucional y al fortalecimiento del Estado de Derecho, erradicando las malas practicas al interior de la institución y en las determinaciones jurisdiccionales que se emiten, observándose en todo momento la constitucionalidad y el sentido ético en el actuar de las personas juzgadoras.
+

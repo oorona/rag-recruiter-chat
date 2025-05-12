@@ -1,0 +1,91 @@
+Nombre Candidato: YAMIN FRANCISCO GONZALEZ MENDOZA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5639684444
+Correo Electronico: gonzalezmmendozayaminfrancisco@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Justicia, Constitucionalismo Transformador, Delitos Cibernéticos, Derechos Ambientales, Derechos Culturales, Derechos Económicos, Derechos Sociales, Derechos de la Infancia, Doctorado, Especialidad Judicial., Formación Judicial, Generación de Espacios Libres de Violencia, Licenciatura en Derecho, Maestría en Amparo, Universidad La Salle Noreste
+Tags Propósito: Acceso a la Justicia, Asistencia Legal Gratuita, Corrupción, Derechos Humanos, Eficiencia, Evaluación Ciudadana, Formalismos, Grupos Vulnerables, Juicios de Amparo, Justicia Transformadora., Lenguaje Sencillo, Poder Judicial, Rendición de Cuentas, Transparencia, Trato Digno
+
+
+## Descripción del Candidato 
+
+YAMIN FRANCISCO GONZALEZ MENDOZA es candidato a Juez/a de Distrito en la Ciudad de México, postulando desde En Funciones. Cuenta con un Doctorado en Derecho por la Universidad la Salle Noreste y una Especialidad en Escuela Judicial. Su trayectoria académica incluye Licenciatura, Maestría y Doctorado en Derecho, complementada por diversos cursos en el Instituto de la Judicatura Federal y la Escuela Federal de Formación Judicial, enfocados en derechos de la infancia, delitos cibernéticos, constitucionalismo transformador y protección de derechos humanos.
+
+Su motivación para buscar el cargo se centra en transformar el Poder Judicial desde adentro, promoviendo la transparencia y combatiendo la corrupción para garantizar el acceso a la justicia. Su visión se basa en una función jurisdiccional humana y cercana a la gente, con énfasis en la protección de grupos vulnerables. Entre sus propuestas destacan establecer una cultura de trato digno en los juzgados, reducir tiempos de espera, simplificar el lenguaje jurídico en las sentencias, garantizar la rendición de cuentas mediante plataformas públicas y mecanismos de evaluación ciudadana, y brindar apoyo a personas vulnerables en el acceso a la justicia.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15ZiVEYmnw/
+- https://x.com/mendoza_yamin?t=fiBbhI6wxQ6YieHYLNfSdQ&s=09
+- https://www.instagram.com/yaminfranciscogonzalezmendoza?utm_source=qr&igsh=bXJkYzhtZXZiNTQ4
+- https://youtube.com/@yaminfranciscogonzalezmendoza?si=Aco0DeZtVpUkYPpn
+- https://www.tiktok.com/@yaminfranciscogonzalezme?_t=ZM-8uw2Wy8BpVF&_r=1
+- https://bsky.app/profile/yaminfcogonzalezm.bsky.social
+
+
+## Cursos
+
+- Los Derechos de la Infancia y el Acceso a la Justicia
+- 2017
+- Instituto de la Judicatura Federal
+- ,Taller sobre Delitos Cibernéticos
+- 2018
+- Instituto de la Judicatura Federal
+- ,El Constitucionalismo Transformador
+- 2021
+- Instituto de la Judicatura Federal
+- ,Protección Judicial de los Derechos Económicos, Sociales, Culturales y Ambientales
+- 2023
+- Escuela Federal de Formación Jud,Curso para Generar Espacios Libres de Violencia
+- 2022
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53363/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Maestría en Amparo y Doctorado, en Universidad la Salle Noreste
+- Especialidad en Escuela Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Para transformar el Poder Judicial desde adentro; dar acceso a la justicia transparente, sin privilegios ni corrupción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Desempeñar una función humana y cercana a la gente, alejada de los formalismos; construir una función que resuelva conflictos, aplique la ley y proteja en forma eficiente los derechos humanos de todas y todos, poniendo énfasis en lograr una protección con mayor alcance en favor de las personas que pertenecen a grupos vulnerables. Y en el día a día otorgar un trato digno a las personas que acuden al juzgado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe transformarse en beneficio de la gente. Para ello es necesario erradicar la corrupción para que las personas juzgadoras tengan abiertas las puertas para todas y todos los gobernados sin formalismos; deben privilegiarse interpretaciones jurídicas que maximicen el ejercicio y protección de los derechos humanos de todas las personas, con énfasis en las personas que pertenecen a grupos vulnerables y dictar sentencias con lenguaje sencillo y comprensible.
+
+
+## Propuestas
+
+- Establecer una cultura de trabajo donde el personal del juzgado otorgue un trato digno y decoroso a todas las personas que asisten físicamente al Juzgado, incluido su Titular; reducir los tiempos de espera para la atención de las solicitudes que hagan los justiciables; tramitar y resolver los juicios de amparo en el menor tiempo posible; privilegiando el dictado de sentencias con lenguaje sencillo y comprensible y utilizar formatos de lectura fácil, cuando sea necesario, resolviendo el fondo.
+- Establecer mecanismos claros y ágiles que garanticen la rendición de cuentas, a fin de que las y los Jueces den a conocer las acciones que realizan al frente de los órganos jurisdiccionales, entre los cuales pueden existir plataformas públicas donde se formulen preguntas sobre la función; consultas públicas donde los jueces den respuesta de manera personal a los cuestionamientos que se les realicen y ser sometidos a procesos de evaluación por observatorios ciudadanos.
+- En reconocimiento a que las personas pertenecientes a grupos vulnerables no cuentan con la capacidad económica para contratar abogados para la tramitación del juicio de amparo que es muy especializado, se propone en este tipo de asuntos, especialmente en la materia administrativa que las y los jueces tengan la obligación de designar una persona abogada gratuito que les brinde asistencia legal, con independencia del tipo de controversia que planteen.
+

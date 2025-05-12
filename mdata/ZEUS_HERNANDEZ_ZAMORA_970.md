@@ -1,0 +1,72 @@
+Nombre Candidato: ZEUS HERNANDEZ ZAMORA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 7444480411
+Correo Electronico: zeushernandezzamora@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización Legislativa, Administración de Justicia, Argumentación Jurídica, Capacitación Jurídica., Derecho Constitucional Tributario, Experiencia Profesional, Materia Civil, Nivel Federal, Secretaría de Juzgado, Secretaría de Tribunales, Servicio Público
+Tags Propósito: Acceso a la justicia, Administración de justicia, Capacitación judicial, Comunicación ciudadana., Derechos ciudadanos, Difusión de información, Impartición de justicia, Justicia social, Poder Judicial, Transparencia judicial, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Zeus Hernandez Zamora es candidato a Magistratura de Tribunales Colegiados de Circuito en Guerrero, postulándose a través del Poder Ejecutivo Federal. Cuenta con 28 años de experiencia en la administración de justicia a nivel federal y posee licenciatura con cédula profesional. Ha completado cursos de capacitación en áreas como secretaría de juzgados, argumentación jurídica y derecho constitucional tributario.
+
+Su motivación para el cargo es facilitar el acceso a la justicia, con una visión de proteger los derechos de la ciudadanía, especialmente a los grupos vulnerables. Sus propuestas incluyen la capacitación constante de los operadores del sistema judicial, la promoción de la transparencia en la administración de justicia ("Justicia a puertas abiertas") y la difusión de la labor del Poder Judicial para facilitar el acceso a los servicios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574895050394
+- https://www.tiktok.com/@zeus.hernandez.zamora?lang=es
+
+
+## Cursos
+
+- Curso de Preparación y Capacitación para Secretario de Juzgado de Juzgado de Distrito,Curso de Preparación y Capacitación para Secretario de Tribunales Unitarios y Colegiados,Curso de Introducción a la Teoría de Argumentación Jurídica,Seminario de Derecho Constitucional Tributario en Iberoamérica,Curso de Actualización Legislativa, Módulo: Materia Civil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53803/10
+
+
+## Trayectoria Academica
+
+- Cuento con 28 de experiencia en el servicio público en la administración de justicia a nivel federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Es mi aspiración como servidor público federal, proporcionar y facilitar el acceso a la justicia a todos y todas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El objetivo principal de la función jurisdiccional es la amplia protección de los derechos de la ciudadanía, debe ser de excelencia, con personas especializadas en la administración de justicia, que además cuenten con el conocimiento para operar el sistema y la aplicación de las normas jurídicas, siempre priorizando la defensa de aquellos en situación de vulnerabilidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es importante que en el servicio público se realicen las gestiones necesarias para superar todos aquellos obstáculos que se han presentado sistemáticamente hacía la ciudadanía y las personas vulnerables, para lograr el acceso a la justicia para todos, siempre teniendo una visión de justicia social.
+
+
+## Propuestas
+
+- Capacitación constante a los operarios del sistema judicial: Procurar que todos aquellos que ocupen un cargo dentro de la administración de justicia estén en contacto directo con las necesidades de la sociedad y de aquellos que requieran el servicio, para así poder tener una impartición de justicia efectiva y asertiva.
+- Justicia a puertas abiertas: Que la ciudadanía tenga conocimiento de todo lo que se lleva acabo en la administración de justicia, así como abrir espacios para estar en constante comunicación con el pueblo y facilitar espacios para que las personas conozcan cuales son sus derechos y tengan fácil acceso a la justicia.
+- Difusión a la comunidad y al público en general de cual es la labor que se realiza en los diferentes órganos del Poder Judicial de la Federación, a fin de que cuando requieran de su intervención sepan a donde y con quien acudir.
+

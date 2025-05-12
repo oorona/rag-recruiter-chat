@@ -1,0 +1,83 @@
+Nombre Candidato: ALICIA DEL CARMEN HERNANDEZ DOMINGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIHUAHUA
+Sexo: MUJER
+Telefono: 6147114387
+Correo Electronico: haliciadelcarmen@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho, Derecho Constitucional, Derecho del Trabajo, Diplomado, Especialización., Formación Judicial, Igualdad Género, Justicia, Maestría, Precedente Judicial, Prevención Violencia, Seguridad Social
+Tags Propósito: Ciudadanía, Confianza, Derechos Humanos, Equidad, Experiencia, Igualdad., Justicia, Justicia Cercana, Justicia Humanista, Justicia Social, Lenguaje Sencillo, Libertad, Patrimonio, Protección, Resolución, Servidores Públicos, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alicia del Carmen Hernández Domínguez es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose para los Poderes Ejecutivo, Judicial y Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo, y Especialización en Derecho del Trabajo y Justicia, respaldada por cédula profesional. Ha realizado diversos cursos en áreas como seguridad social, igualdad de género, precedentes judiciales y prevención de la violencia.
+
+Su motivación para buscar el cargo es fortalecer la confianza de la sociedad en una justicia equitativa y con sentido social. Propone una justicia con lenguaje claro y accesible para la ciudadanía, un trato igualitario y atención especial a grupos vulnerables, y una mayor cercanía entre los juzgadores y la sociedad. Su visión se centra en un enfoque humanista y social de la función jurisdiccional e impartición de justicia, priorizando los derechos humanos y el bienestar de las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AliciaHernandezDmgz
+- https://x.com/AliciaHern2590
+- https://www.instagram.com/aliciadelcarmenh2590/
+- https://www.youtube.com/@AliciadelCarmenHernC3A1ndezDomC3ADng
+- https://www.tiktok.com/@alicia.hernandez3735?lang=es
+
+
+## Cursos
+
+- Diplomado en Seguridad Social
+- Escuela Federal de Formación Judicial,Seminario en Seguridad Social
+- Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia
+- Escuela Federal de Formación Judicial,Curso Género como Herramienta para la Igualdad
+- Escuela Federal de Formación Judicial,Curso El Precedente Judicial
+- Principales Aspectos Teóricos y su aplicación en México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53496/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho; Maestra en Derecho Constitucional y Amparo, y Especialista en Derecho del Trabajo y Justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo reforzar un vínculo de confianza con la sociedad que aspira una justicia con equidad y sentido social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se requiere de la excelencia en el diario quehacer jurisdiccional y del compromiso ineludible para salvaguardar los derechos humanos de las personas más necesitadas de justicia. No es suficiente la preparación académica, se requiere de la experiencia y el compromiso con la ciudadanía al resolver sus asuntos conforme a la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia Humanista y social. Los Juzgadores no debemos olvidar que frente a los casos que se someten a nuestra consideración se encuentran seres humanos, que sienten, sufren y necesitan la protección de sus derechos. Cada caso no debe ser tratado como un número más para inflar las estadísticas de egresos, debemos de tener presente que está en juego la libertad, los bienes, el patrimonio, la vida de las personas y sus familias.
+
+
+## Propuestas
+
+- Una justicia con lenguaje sencillo. Es importante que mediante nuestras resoluciones se mantenga a la sociedad informada, pero con un lenguaje sencillo, claro, entendible para cualquier ciudadano. Que comprenda por qué de las determinaciones de los juzgadores; sin perder la esencia jurídica de la decisión.
+- Una justicia con equidad y sentido social. En el que todas las personas sin distinción reciban un trato igualitario al momento de impartir justicia. Es trascendente identificar a los grupos vulnerables para garantizarles el respeto de sus derechos humanos
+- Justicia cercana a la gente. La interacción del juzgador con la sociedad es importante para afianzar el sentido de confianza. Es importante que las personas conozcan quienes son los servidores que van a resolver sobre sus propiedades, posesiones, bienes, salud, libertad y familia.
+

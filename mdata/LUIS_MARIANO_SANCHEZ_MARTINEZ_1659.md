@@ -1,0 +1,77 @@
+Nombre Candidato: LUIS MARIANO SANCHEZ MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9934578631
+Correo Electronico: lmarianosanchez4@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho del Trabajo, Derechos Humanos, Diplomado, Especialidad, Juicio Oral, Juicio de Amparo, Justicia Laboral, Licenciatura.
+Tags Propósito: Accesibilidad, AdministraciónDeJusticia, Bondad, Capacitación, Desapego, Desempeño, Diligencia, Eficiencia, Equidad, Imparcialidad, Justicia, LenguajeClaro, Libertad, Memoria, Miedo, Paciencia, Patrimonio, Reflexión, Sentencias, ServidoresPúblicos, Transparencia, ÓrganosJurisdiccionales.
+
+
+## Descripción del Candidato 
+
+LUIS MARIANO SANCHEZ MARTINEZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Tabasco, postulándose al Poder Legislativo Federal. Licenciado en Derecho con Especialidad en Derecho del Trabajo y Justicia Laboral, cuenta con formación en áreas como Derechos Humanos, juicio oral y juicio de amparo, evidenciado en su cédula profesional y cursos realizados. 
+
+Su motivación para el cargo público es contribuir a una impartición de justicia pronta, expedita e igualitaria para todos. Propone dictar sentencias con lenguaje claro y accesible, eficientar las labores de los órganos jurisdiccionales mediante un proyecto laboral, y promover la capacitación constante de los servidores públicos a través de grupos de estudio. Su visión de la función jurisdiccional se basa en la equidad, la reflexión y el desapego, así como en la importancia de una administración de justicia que comience en la agilización de los procesos internos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/196qRwEzHT/?mibextid=wwXlfr
+- https://x.com/marianomar77146?S=11
+- https://www.instagram.com/luismarianosanchezmartinez?igsh=MWYxM3Nhdmo3NHF2dw3D3D&utm_source=gr
+- https://www.tiktok.com/@luis.mariano.snch1?t=ZM-8uz9z7fNidi&_r=1
+
+
+## Cursos
+
+- Semanario del  Juicio de,Derechos Humanos
+- ,Curso introductorio del juicio oral
+- ,Etapas del juicio oral
+- ,Diplomado del juicio de amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55002/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y con una Especialidad en Derecho del Trabajo y Justicia Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ayudar a que la sociedad cuente con una impartición de justicia pronta y expedita, que llegue por igual a todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las cosas que hacen de un hombre un buen Juez son: 1) un recto entendiemiento de esa principal ley de la naturaleza humana llamada equidad, que depende no de la lectura de los escritos de otros hombres, sino de la bondad propia, razón natural del hombre y su capacidad de reflexión; 2) un desprecio por las riquezas y honores inncesarios; 3) la capacidad a la hora de juzgar, de despojarse de todo miedo; 4) paciencia para escuchar, diligente atención a lo que oye, memoria para retener y ser justo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debemos hacer realidad una justicia pronta expedita y eficaz en nuesto país, a través del dictado de sentencias que contengan un lengüaje claro, sin tecnisismo, a efecto de que las personas entiendan el por qué de esa sentencia. No todo lo que sabes como Juzgador lo debes de poner es una sentencia o en algun acuerdo, pero, sí todo lo que pongas lo debes de saber. La administración de justicia empieza desde casa, esto es, se debe agilizar las labores de los órganos jurisdiccionales.
+
+
+## Propuestas
+
+- Dictar sentencias con un lengüaje que sea entendible, para todas las personas, pues no todos conocen de las leyes y/o del derecho, por lo que es importante que la sociedad en general, entiendan el contenido de las sentencias que se emitan, a efecto de que puedan entender el porqué el sentido de la misma; por ello, es importante que seamos conscientes que detrás de cada juicio, se encuentra la vida, la libertad e incluso, el patrimonio de las personas.
+- Elaborar un proyecto laboral para todos los trabajadores, con el objetivo de eficientar nuestras labores como servidores públicos, y así, poder mejorar nuestro desempeño, a través de una eficaz administración de nuestras labores que nos permitan brindar una impartición de justicia pronta, eficaz y expedita.
+- Organizar grupos de estudio dentro del órgano jurisdiccional, a efecto de que nos mantengamos en constante capacitación y así poder brindar un servicio de la más alta calidad en la impartición de justicia y sobre todo, que permita conscientizar a todos los trabajadores, respecto a la importancia de nuestra labor como servidores públicos.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE TREJO MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5532257604
+Correo Electronico: jose.trejo.m289@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Derechos Humanos, Diplomado., EFFJ, Función Jurisdiccional, Justicia Penal Acusatorio, Litigación Penal, Master, Oposición Jueces, Poder Judicial, Sistemas Penales, Universidad Alberto Hurtado, Universidad Anáhuac, Universidad Iberoamericana
+Tags Propósito: Acceso a la justicia, Capacitación fiscal, Capacitación policial, Defensa pública, Delitos bagatela, Derechos humanos, Digitalización, Igualdad, Impunidad, Justicia, Libertad, Mecanismos alternativos de solución de controversias, Reclusión, Recursos legales, Salud, Simplificación procesos, Vida.
+
+
+## Descripción del Candidato 
+
+José Trejo Martínez es candidato a Magistratura de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal en la Ciudad de México. Cuenta con Maestría en Sistemas Penales y Problemas Sociales, así como diversos diplomados en áreas como Derechos Humanos, el proceso penal acusatorio y la función jurisdiccional. Su trayectoria académica y profesional se centra en el ámbito legal y su motivación para el cargo público es la construcción de un país más igualitario con acceso a la justicia para todos.
+
+Su visión de la función jurisdiccional se basa en la resolución rápida y accesible de conflictos legales, priorizando la armonía social y la protección de los más vulnerables. Sus propuestas incluyen la capacitación continua de policías y fiscalías, la expansión de mecanismos alternativos de solución de controversias, la creación de defensorías públicas en centros de reclusión y la digitalización de trámites legales para agilizar procesos y reducir la carga administrativa.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AMv3svTpi/
+- https://x.com/josetrejom29
+- https://www.instagram.com/jose.trejo.martinez?igsh=amptN3dtNmE2eXV1
+- https://www.tiktok.com/@jos.trejo.martnez?_t=ZM-8uyEOsBjkBR&_r=1
+
+
+## Cursos
+
+- Curso de Inducción/Segundo Concurso Interno Oposición para Jueces de Distrito Sistema Acusatorio (EFFJ)
+- Calif
+- 9
+- 04,Diplomado en litigación en el proceso penal (Universidad Alberto Hurtado de Chile y Universidad Anáhuac)
+- Calif
+- 9,Diplomado en Derechos Humanos en el Poder Judicial de la Federación (Universidad Iberoamericana),Diplomado sobre el nuevo Sistema de Justicia Penal Acusatorio en México, desde la perspectiva constitucional (EFFJ),Diplomado en Introducción a la Función Jurisdiccional (EFFJ)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55344/10
+
+
+## Trayectoria Academica
+
+- Abogado/Master en Sistemas Penales y Problemas Sociales/Diplomado en Derechos Humanos, Proceso Penal Acusatorio y otros
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero construir un país mejor y más igualitario, donde el acceso a la justicia sea en beneficio de todas y todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe servir para resolver de fondo los conflictos legales, de manera rápida, gratuita, sencilla, sin tecnicismos, ni formalismos legales y procurar la armonía social con miras al bienestar general, en particular de las personas más desprotegidas y vulnerables, cuando acuden como justiciables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras deben contar con una sólida formación profesional, ética y con enfoque de derechos humanos; tener una visión práctica y social de la justicia, para resolver de manera rápida las controversias legales, pues ello, junto con la existencia de leyes y políticas públicas tendentes a una intensa capacitación de policías y fiscalías, así como a la educación, acceso a bienes y servicios de las personas más desprotegidas y vulnerables, reducirá el delito y otros problemas sociales.
+
+
+## Propuestas
+
+- Intensa y permanente capacitación legal, en materia de derechos humanos, técnica y de gestión de las policías y fiscalías. La inadecuada investigación y persecución del delito e incorrecta integración de carpetas de investigación, genera impunidad. Real aplicación y ampliación de los mecanismos alternativos de solución de controversias (ley respectiva, acuerdos reparatorios y suspensión condicional del proceso) desde la investigación inicial. Ampliación del Abreviado. Ello reducirá los juicios.
+- Creación de unidades de defensoría pública en todos los centros de reclusión. En la justicia penal, gran parte de los amparos y de sus recursos, proviene de reclusos, los cuales resultan improcedentes por desconocer los mecanismos legales en materia penitenciaria. Los defensores orientarán sobre los trámites y recursos, previos a la promoción del amparo. En esta materia y en todas, las notificaciones deben ser por teléfono o correo para evitar trámites y gastos innecesarios de personas actuarias
+- Todas las promociones y trámites podrían ser digitales (correo electrónico) y eliminar por completo expedientes físicos, mediante mecanismos sencillos para corroborar la petición del gobernado y resolverla de plano. Reducir los recursos legales a uno solo en la legislación ordinaria y limitar los juicios y el amparo a asuntos que involucren solo afectaciones relevantes a derechos humanos (VIDA, LIBERTAD, SALUD, DESCA, etc). En delitos bagatela vedado el juicio y resolver alternativamente.
+

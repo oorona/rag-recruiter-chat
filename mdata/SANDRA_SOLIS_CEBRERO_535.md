@@ -1,0 +1,73 @@
+Nombre Candidato: SANDRA SOLIS CEBRERO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 7445887180
+Correo Electronico: soliscebrero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ambiente Laboral, Cálculo de Prestaciones Laborales, Derecho Internacional del Trabajo, Derecho Laboral, Derecho Procesal, Especialización, IJF., Juicio de Amparo, Justicia Laboral, Maestría, Reforma Laboral, UAGRO
+Tags Propósito: Acceso a la información, Actualización profesional., Certeza jurídica, Confianza, Constitución Política, Convenios internacionales, Derechos humanos, Derechos laborales, Expedientes, Igualdad de género, Imparcialidad, Ley Federal del Trabajo, Mejora continua, Nepotismo, No discriminación, Perspectiva de género, Poder Judicial, Profesionalización, Transparencia
+
+
+## Descripción del Candidato 
+
+SANDRA SOLIS CEBRERO es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal desde la Ciudad de México. Cuenta con Maestría y Cédula Profesional, complementada por formación en Derecho Laboral, Juicio de Amparo y otros cursos relacionados con la justicia laboral.
+
+Su motivación para el cargo público es superar las barreras de género en altos mandos. Su visión de la función jurisdiccional y la impartición de justicia se centra en el cumplimiento de la Constitución y la Ley Federal del Trabajo, con apego a los convenios internacionales de derechos humanos y una perspectiva de género. Sus propuestas incluyen la especialización del personal judicial, la capacitación continua del Poder Judicial y la transparencia en el acceso a los expedientes para generar confianza en los usuarios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Sandra Solís Cebrero
+- https://www.instagram.com/cebrero315
+- https://www.facebook.com/SandraCebrero
+
+
+## Cursos
+
+- CURSO DERECHO LABORAL PROCESAL Y DERECHO INTERNACIONAL DEL TRABAJO,TALLER DE CÁLCULO DE PRESTACIONES LABORALES,CURSO PARA LA MEJORA DEL AMBIENTE LABORAL,JORNADAS DE SENSIBILIZACIÓN SOBRE LA REFORMA EN MATERIA DE JUSTICIA LABORAL,DIPLOMADO DE JUICIO DE AMPARO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55191/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en UAGRO, Maestría en UAGRO y Especialidad en el IJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Como mujer es un gran reto llegar a altos mandos, ya que aún existe el estigma de que ciertos puestos son para hombres
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar el cumplimiento de la Constitución Política; resolver los asuntos conforme a la Ley Federal del Trabajo, sin perder de vista los convenios internacionales respecto de los derechos humanos; que las resoluciones emitidas cumplan con los términos establecidos en la ley, siendo imparciales; mantenerme actualizada a fin de aplicar la mejora continua en cada uno de los asuntos a resolver; proporcionar a los usuarios confianza y certeza de que sus asuntos serán estudiados a profundidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar que cada expediente sea tratado como la persona que lo promueve y no como un simple número; verificar que el asunto haya sido trabajado de manera correcta y apegada a derecho; cerciorarme que todos los asuntos no sean contrarios al derecho ni las buenas costumbres; estudiar y aportar nuevos criterios enfocados a los convenios internacionales con pauta en los derechos humanos; prepararme a fin de juzgar con perspectiva de género combatiendo así la discriminación.
+
+
+## Propuestas
+
+- Verificar que el personal cumpla con el perfil especializado en la materia laboral, eliminando así el nepotismo, y logrando tener un equipo de trabajo vanguardista en los derechos laborales, quienes se comprometan con los usuarios a velar por sus derechos a fin de que las resoluciones sean emitidas apegadas a derecho y con imparcialidad, observando los convenios internacionales enfocados a los derechos humanos.
+- Proponer al órgano que sustituya al Consejo de la Judicatura Federal, que sigan impartiendo cursos, talleres, diplomados y maestrías, para mantener actualizado a todo el personal del Poder Judicial, a fin de aplicar la mejora continua en cada uno de los asuntos a resolver; en caso de no lograrlo, me comprometo a mantenerme actualizada con mis propios recursos, ya que mi responsabilidad es con la sociedad.
+- Dar a conocer a los usuarios que así lo deseen a través de sus medios de contacto, las vías en que puedan consultar sus expedientes a fin de generar un vinculo de confianza entre la autoridad y las partes con el propósito de que tengan la certeza de que los mismos serán estudiados a profundidad.
+

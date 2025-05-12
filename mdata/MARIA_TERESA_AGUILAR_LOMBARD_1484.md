@@ -1,0 +1,74 @@
+Nombre Candidato: MARIA TERESA AGUILAR LOMBARD
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2215677611
+Correo Electronico: terelombard@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Curso Inducción Administrativa, Derecho del Trabajo, Diplomado, Especialización, Formación Judicial, Justicia Laboral, Poder Judicial de la Federación, Secretarios Judiciales, Seguridad Social, Seminario.
+Tags Propósito: Administración, Agilidad, Arbitrariedad, Desempeño, Eficiencia, Equipo, Gestión, Impartir Justicia, Justicia, Legitimidad, Productividad, Protección, Resolución de conflictos, Sentencias, Sincronización., Tecnologías de la información, Tiempo, Trámite, Órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+MARIA TERESA AGUILAR LOMBARD es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulándose para el Poder Judicial de la Federación. Es abogada con especialidad en Derecho del Trabajo y experiencia como Secretaria del Poder Judicial de la Federación, avalada por diversos cursos y diplomados en materia laboral y de seguridad social.
+
+Su motivación para buscar el cargo es garantizar el acceso a un tribunal que proteja a los ciudadanos contra abusos. Su visión se centra en optimizar la función jurisdiccional a través de la aplicación de conocimientos especializados y en mejorar la impartición de justicia mediante la implementación de metodologías de trabajo eficientes, el uso de tecnologías de la información y el cumplimiento de las disposiciones administrativas, buscando así agilizar los trámites y fortalecer el desempeño del equipo judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1DSWdxHh61/?mibextid=wwXIfr
+- https://x.com/tere_lombard
+- https://www.instagram.com/tere_lombard?igsh=enJra2d6bnhpdWow&utm_source=qr
+- https://www.tiktok.com/@teresa.lombard3?_t=ZM-8v68bHA1dWZ&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral ¿ Quinta Generación Junio 2022,Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, ciclo escola,Curso Inducción Administrativa para Juezas y Jueces de Reciente Adscripción en el Poder Judicial de la Federación, mayo,Seminario en Seguridad Social, octubre 2023,Diplomado En Seguridad Social, marzo 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52199/10
+
+
+## Trayectoria Academica
+
+- ABOGADA CON ESPECIALIDAD EN DERECHO DEL TRABAJO Y COMO PERSONA SECRETARIA DEL PODER JUDICIAL DE LA FEDERACIÓN
+
+
+## Motivo para buscar el Cargo Publico
+
+Lograr que las personas cuenten con un tribunal que los escuche y proteja contra el fuerte y el arbitrario
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Si bien la legitimidad de la función de las personas juzgadoras se logra a través de las sentencias porque es ahí donde se expresa el derecho, éstas no suelen ser leídas por la mayoría de la sociedad, de ahí que es indispensable allegarse de conocimientos y habilidades que permitan optimizar la noble labor de impartir justicia por lo que, de resultar favorecida por el proceso de elección pondré en práctica los conocimientos que he adquirido al prestar mis servicios dentro del tribunal colegiado
+
+
+## Vision sobre la Imparticion de Justicia
+
+Implementaré un adecuado modelo para el trámite de los asuntos, propiciaré una correcta gestión del tiempo de tal forma que todo el personal trabaje sincronizadamente evitando duplicidad de procesos, trazaré los objetivos a corto y mediano plazo con la ayuda del personal, e implementaré estrategias de productividad eficientes para fortalecer y aumentar el desempeño de mi equipo, en beneficio de las personas justiciables.
+
+
+## Propuestas
+
+- Metodología de trabajo que optimice los tiempos de trámite y resolución de los asuntos, con procesos más ágiles y visión de justicia pronta
+- Uso de las tecnologías de la información para la correcta gestión del tiempo de tal forma que todo el personal trabaje sincronizadamente evitando duplicidad de procesos
+- Cumplimiento de las disposiciones en materia administrativa de los órganos jurisdiccionales
+

@@ -1,0 +1,73 @@
+Nombre Candidato: PEDRO ALFREDO DUARTE ALBARRAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9981476449
+Correo Electronico: pduarte78@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Control de Convencionalidad, Derecho Constitucional, Derechos Humanos, Justicia Administrativa, Licenciatura en Derecho, Responsabilidades Administrativas, Sistema Nacional Anticorrupción, Universidad Autónoma de Yucatán
+Tags Propósito: Acceso a la justicia, Capacitación, Constitución, Derechos humanos, Eficiencia, Equidad, Impartición de justicia, Justicia, Marco jurídico., Perspectiva de género, Poder Judicial, Profesionalismo, Protección de derechos, Rezagos judiciales, Servidores públicos, Sistema judicial, Supervisión jurisdiccional, Tribunal de Disciplina
+
+
+## Descripción del Candidato 
+
+PEDRO ALFREDO DUARTE ALBARRAN es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en Quintana Roo. Cuenta con Maestría y trayectoria como Licenciado en Derecho por la Universidad Autónoma de Yucatán, complementada con especializaciones en Justicia Administrativa, Derechos Humanos y Derecho Constitucional.
+
+Su motivación para buscar el cargo se centra en su compromiso con la impartición de justicia completa e igualitaria. Propone fortalecer el Poder Judicial a través del compromiso en la labor jurisdiccional, la implementación de programas para prevenir rezagos en la tramitación de juicios, la capacitación continua del personal jurisdiccional con enfoque de derechos humanos y perspectiva de género, y la creación de reglas claras para el Tribunal de Disciplina que garanticen el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Pedro Duarte
+- https://www.x.com/Pedro Duarte
+- https://www.instagram.com/pedro.duarte.legis
+
+
+## Cursos
+
+- ESPECIALIDAD en Justicia Administrativa,LAS Responsabilidades Administrativas en el Marco del Sistema Nacional Anticorrupción,LOS Derechos Humanos en la Justicia Administrativa,SEMINARIO en Derecho Constitucional,DERECHOS Humanos y Control de Convencionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52969/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Yucatán
+
+
+## Motivo para buscar el Cargo Publico
+
+Creo en el compromiso del País y en una responsabilidad por conseguir una impartición de justicia completa e igualitaria
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estoy convencido que el fortalecimiento del Poder Judicial de la Federación, es a través de un compromiso en la labor jurisdiccional y de impartición de justicia, como una verdadera vocación de servicio para el pueblo mexicano, que permitirá resolver los conflictos sometidos a su consideración, dentro del marco jurídico Constitucional y legal, derribando cualquier barrera que impida analizar y resolver con imparcialidad, protegiendo los derechos humanos que emanan de la Constitución y Tratados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En éste proceso de elección, existe una gran oportunidad de aportar en el fortalecimiento del Sistema de Impartición de Justicia en México, a través de la participación de profesionales del Derecho que aman nuestra Nación, que están dispuestos a implementar nuevas herramientas que permitan alcanzar una mejor y mayor justicia, más equitativa, accesible para todos los justiciables y que brinde confianza en nuestro sistema judicial, con un enfoque de derechos humanos y con perspectiva de género.
+
+
+## Propuestas
+
+- Implementar programas que permitan prevenir y abatir rezagos en la tramitación y resolución de los juicios tramitados ante los Órganos jurisdiccionales y con ello logra, una justicia pronta y expedita.
+- Realizar una continua capacitación en el personal jurisdiccional, procurando un acercamiento entre los justiciables y los operadores jurídicos para analizar los asuntos siempre desde un enfoque de protección de derechos humanos y con perspectiva de género, ya que somos servidores públicos encargados de atender a los justiciables.
+- Que le nuevo Tribunal de Disciplina emita reglas claras y precisas para que el Poder Judicial e la Federación como Institución, observe las mismas con el objetivo de que se pueda cumplir cabalmente el derecho humano al acceso a la justicia, previsto en el numeral 17 Constitucional, asimismo, se haga una supervisión de la actividad jurisdiccional para en su caso sancionar el incumplimiento a las mismas.
+

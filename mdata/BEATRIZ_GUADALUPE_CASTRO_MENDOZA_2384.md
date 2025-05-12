@@ -1,0 +1,84 @@
+Nombre Candidato: BEATRIZ GUADALUPE CASTRO MENDOZA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5549628165
+Correo Electronico: castromendozabeatrizguadalupe@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Autonomía, Derecho Europeo, Derechos Humanos, Derechos de la Mujer, Doctorado, Libertad de Expresión, Máster, Protección de Datos, Pueblos Indígenas, Universidad CEU San Pablo., Universidad Panamericana
+Tags Propósito: Acceso a la Justicia, Códigos de Ética, Derechos Humanos, Eficiencia, Empatía, Equidad, Estado de Derecho, Grupos Vulnerables, Género, Imparcialidad., Inclusión, Independencia Judicial, Justicia Humanista, Justicia Social, Justicia Ágil, Perspectiva Social, Pro Persona, Transparencia, Tutela de Derechos Fundamentales
+
+
+## Descripción del Candidato 
+
+BEATRIZ GUADALUPE CASTRO MENDOZA es candidata al Poder Legislativo Federal, con trayectoria en el ámbito judicial como Jueza/es de Distrito en la Ciudad de México. Cuenta con estudios de Doctorado concluidos y ha realizado diversos cursos en materia de Derechos Humanos, Protección de Datos y temas relacionados.
+
+Su motivación para buscar el cargo público se centra en la transformación del sistema judicial, buscando impartir justicia con un enfoque empático y social. Propone una justicia humanista, priorizando el análisis sustantivo sobre el formalismo, facilitando el acceso a la justicia para grupos vulnerables y optimizando los procedimientos para lograr una justicia ágil y transparente. Su visión de la función jurisdiccional la define como un pilar para la protección de los derechos humanos, el estado de derecho y la justicia social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://editor.wix.com/html/editor/web/renderer/render/document/33bcc0cf-4a09-4105-97bf-cb15502c72dccastromendozabeatrizguadalupe1016
+
+
+## Redes Sociales
+
+- https://www.facebook.com/beatriz.castrom
+- https://x.com/BEATRIZGCASTRO
+- https://www.instagram.com/beatrizgcm?igsh=YXVoNzZ5OGRiMWlx&utm_source=qr
+- http://www.youtube.com/@BEATRIZGUADALUPECASTROMENDOZA
+- https://www.tiktok.com/@bgcm41?_t=ZM-8v4tU8yfR0X&_r=1
+
+
+## Cursos
+
+- o	Curso de introducción a los Derechos Humanos
+- Comisión Nacional de Derechos Humanos
+- 2022,o	Curso Introducción al Derecho Europeo a la Protección de Datos Personales Universidad de Sevilla, España
+- 2021,o	Curso Libertad de Expresión
+- Comisión Nacional de Derechos Humanos
+- 2022,o	Curso Autonomía y Derechos Humanos de la Mujeres
+- Comisión Nacional de Derechos Humanos
+- 2022,o	Curso Derechos Humanos de los Pueblos y Comunidades Indígenas
+- Comisión Nacional de Derechos Humanos
+- 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52514/11
+
+
+## Trayectoria Academica
+
+- Doctoranda en Derecho, Maestra por la Universidad Panamericana y Master por la la Universidad CEU San Pablo en Madrid ,
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte del cambio, Impartir Justicia en base a la ley, pero con empatía y con una perspectiva social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser un pilar fundamental de la protección de los derechos humanos, la preservación del Estado de derecho y el medio para garantizar la justicia social. Su propósito no es solo la resolución de conflictos, sino la justicia para todos, asegurando que cada individuo, sin distinción de su condición social, económica o cultural, reciba un trato justo, imparcial y equitativo ante la ley.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un acto profundamente humano, guiado por principios de equidad, empatía y respeto hacia la dignidad de cada individuo, sin importar su origen, clase social, raza o situación económica; no debe verse únicamente a través de los ojos de la ley, sino también a través de los valores universales que garantizan el bienestar y los derechos fundamentales de todas las personas. Dar a casa quien lo que corresponda, con apego a la verdad, pero con una perspectiva social
+
+
+## Propuestas
+
+- Justicia Humanista y No Formalista. La labor judicial debe priorizar el análisis sustantivo sobre la aplicación mecánica de normas y jurisprudencia. Adoptar el principio pro persona en todas las resoluciones, asegurando que las decisiones sean justas y no solo legales. Esto implica un enfoque más humano en la argumentación jurídica, evitando formalismos excesivos que obstaculicen la tutela efectiva de los derechos fundamentales.
+- Acceso Efectivo a la Justicia para Grupos Vulnerables. Es necesario eliminar barreras económicas, lingüísticas y culturales en el acceso a la justicia. Propongo una impartición de justicia equitativa y accesible para todos, acorde con las necesidades del entorno social y legal de México, trabajar con una perspectiva social inclusiva y de género. La justicia no debe ser un privilegio, sino un derecho accesible para todas y todos, especialmente para quienes enfrentan condiciones de vulnerabilidad
+- Justicia Ágil y Transparente. Optimizar procedimientos y plazos para garantizar el acceso a la justicia de manera oportuna y eficiente, reducir tiempos de espera y fomentar el uso de tecnología, definir plazos específicos para cada fase del proceso (por ejemplo, emisión de sentencias, audiencias preliminares). Asegurar la independencia, imparcialidad y transparencia de los funcionarios mediante Códigos de Ética y Conducta, capacitación, publicación de sentencias, y auditorías internas
+

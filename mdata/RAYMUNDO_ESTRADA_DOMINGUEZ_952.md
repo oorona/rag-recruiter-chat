@@ -1,0 +1,78 @@
+Nombre Candidato: RAYMUNDO ESTRADA DOMINGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 4286880301
+Correo Electronico: contacto@raymundoestrada.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Congreso, Derecho, Derecho de Amparo, Divorcio, Experiencia Jurídica., Filosofía, Juicios Orales, Maestro en Fiscal, Taller, Universidad Autónoma de San Luis Potosí, Universidad de Guanajuato
+Tags Propósito: Acceso a la justicia, Amparo, Constitución, Demandas de amparo., Derechos humanos, Garantías individuales, Guanajuato, Impartición de justicia, Iusnaturalismo, Jurisprudencia, Justicia, Justicia itinerante, Revisión de casos penales, Tribunales colegiados, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Raymundo Estrada Dominguez es candidato a Magistratura de Tribunales Colegiados de Circuito por Guanajuato, postulándose a través del Poder Legislativo Federal. Abogado con Maestría en Fiscal por la Universidad de Guanajuato, cuenta con amplia experiencia en el ámbito jurídico y ha participado en diversos cursos y congresos especializados en derecho, incluyendo temas de amparo, filosofía del derecho y juicios orales.
+
+Su motivación para buscar el cargo público se centra en servir a la población y atender sus necesidades en materia de impartición de justicia.  Su visión se enfoca en garantizar el acceso a la justicia para todos los niveles de la población, con una revisión profunda de casos penales y respeto a las garantías individuales.  Entre sus propuestas destacan la implementación de justicia itinerante en el norte de Guanajuato, la contribución a la creación de jurisprudencia en el estado y una revisión de las demandas de amparo desde una perspectiva iusnaturalista.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://raymundoestrada.com.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/RaymundoEstradaD
+- https://x.com/RaymundoEstra14
+- https://www.tiktok.com/@raymundo.estrada2
+
+
+## Cursos
+
+- Asistente del Congreso Nacional de Derecho de Amparo impartido por el Instituto Mexicano del Amparo en Marzo de 2008
+- ,Curso Temas Actuales de Filosofía del impartido por la Universidad Autónoma de San Luis Potosí en Julio de 2006
+- ,Taller Divorcio, Interdictos y Alimentos impartido por la Universidad Autónoma de San Luis Potosí en Junio de 2008
+- ,Congreso Nacional de Derecho impartido por la Federación de Abogados Especialistas en Juicios Orales en Noviembre 2022
+- ,Asistente al Congreso de la Gran Chichimeca impartido por la Universidad Autónoma de San Luis Potosí en Mayo de 2007
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53034/10
+
+
+## Trayectoria Academica
+
+- Abogado con amplia experiencia en el ámbito jurídico
+- Maestro en Fiscal por la Universidad de Guanajuato
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la población y vivir en carne propia sus necesidades de impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que la impartición de la justicia esté al alcance de todos los niveles de nuestra población mexicana, así como la revisión a profundidad de los casos penales para garantizar una verdadera impartición de justicia apegada a la Constitución Política de los Estados Unidos Mexicanos, y que el culpable cumpla su condena, y el inocente se le respeten sus garantías individuales y derechos humanos que contempla nuestra Carta Magna con el fin de que no vaya injustamente a la cárcel.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Revisión de los amparos directos a profundidad con la finalidad de analizar si el sistema de justicia federal ampara y protege al inocente o al culpable en caso de una clara violación a sus garantías individuales y derechos humanos que contempla la Constitución de los Estados Unidos Mexicanos. Así como, los recursos de revisión que competen a los tribunales colegiados de circuito en los amparos indirectos que van en contra de las resoluciones injustas emitidas por la autoridad del fuero común.
+
+
+## Propuestas
+
+- Justicia itinerante a los lugares más apartados del Norte de Guanajuato con el fin de acercar a los grupos más vulnerables y alejados a los centros de impartición de justicia.
+- Contribuir en la creación de jurisprudencia como magistrado integrante del Tribunal Colegiado de Circuito en el estado de Guanajuato para generar precedentes que ayuden en impartición de sentencias más justas y apegadas a las garantías individuales y derechos humanos que contempla nuestra Constitución Política de los Estados Unidos Mexicanos.
+- Que el estudio de las demandas de amparo para su admisión sean con una filosofía iusnaturalista, es decir que las causales de improcedencia y sobreseimiento no sean el principal motivo para desechar la demanda de amparo, por lo que se debe de estudiar que el planteamiento por los abogados postulantes y defensores de sus clientes sea apegado a la justicia con la finalidad de pedir la protección de la justicia federal en vista de que en el fuero común y en los Juzgados de Distrito les fue negada.
+

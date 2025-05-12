@@ -1,0 +1,81 @@
+Nombre Candidato: PATRICIA MARTINEZ MELENDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8341450850
+Correo Electronico: pmartinezme@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acoso Sexual, Derecho, Derecho Procesal Penal, Derecho del Trabajo, Género, Hostigamiento Sexual, Igualdad, Justicia Laboral, Justicia para Adolescentes, Licenciatura, Maestría, Perspectiva de Género, Universidad Autónoma de Tamaulipas., Violencia de Género
+Tags Propósito: Acceso a la Justicia, Artículo 17 Constitucional, Derechos Humanos, Eficiencia Judicial, Equidad, Estructura Judicial, Evaluación Judicial, Formación de Jueces, Función Jurisdiccional, Justicia, Orden Social, Resolución de Casos, Seguimiento de Casos, Servicios Legales, Sistema Judicial., Tribunales
+
+
+## Descripción del Candidato 
+
+Patricia Martinez Melendez es candidata a las Magistraturas de Tribunales Colegiados de Circuito en Tamaulipas, postulándose para las funciones del Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal y una Licenciatura en Derecho de la Universidad Autónoma de Tamulipas. Su trayectoria académica se complementa con especializaciones en Derecho del Trabajo, Justicia para Adolescentes, perspectiva de género y prevención del hostigamiento sexual.
+
+La candidata se motiva por un compromiso personal con la justicia, la equidad y el orden social, visualizando la función jurisdiccional como una alta responsabilidad con impacto social. Sus propuestas incluyen fortalecer la formación de jueces, mejorar la estructura y distribución de los tribunales, e implementar un sistema de seguimiento y evaluación de casos para agilizar la impartición de justicia y garantizar el acceso a la misma.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/share/16BdHeDG2A/?mibextid=wwXIfr
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16BdHeDG2A/?mibextid=wwXIfr
+- https://x.com/patriciamtz77?s=11&t=Ve-SvPUYPXN-PnwqmGQcsA
+- https://www.instagram.com/patricia.martinez77/profilecard/?igsh=YzJzZ2VnZ3lrNm1p
+- https://www.tiktok.com/@patricia.martinez1837?_t=ZM-8v1FvEU94kw&_r=1
+
+
+## Cursos
+
+- Maestra en Derecho Procesal Penal, Centro de Estudios de Posgrado
+- Fecha de titulación: 17 de julio de 2015
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral
+- ,Especialidad en Justicia para Adolescentes
+- ,Género como Herramienta para la Igualdad
+- Quinta Edición, Juzgar con Perspectiva de Género en Materia Laboral,Taller para la Prevención de Hostigamiento Sexual, Acoso Sexual Y/o Violencia de Género en Órganos Jurisdiccionales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53673/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Autónoma de Tamaulipas,  Fecha de titulación: 26 de marzo de 2001
+
+
+## Motivo para buscar el Cargo Publico
+
+Esta inspiración surge como un compromiso personal con la justicia, la equidad y el orden social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un área de alta responsabilidad, en el cual las resoluciones que se toman dejan una huella en la vida de las personas, las familias y la sociedad en general, implica también una gran responsabilidad de velar por la correcta interpretación y aplicación de la ley de manera equitativa a todos los ciudadanos, con independencia de su estrato social, económico o político.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Nuestra Carta Magna establece que toda persona tiene derecho a recibir justicia, independientemente de su condición social, económica o política. Esto implica la creación de mecanismos que faciliten el acceso al sistema judicial, como el fortalecimiento de los tribunales y la implementación de servicios legales gratuitos o de bajo costo para quienes no tienen los recursos necesarios.
+
+
+## Propuestas
+
+- Fortalecer la formación y especialización de los jueces: Es esencial que los jueces y magistrados cuenten con una formación continua en áreas específicas del derecho, dada la complejidad de los casos y la constante evolución de la legislación, pero sobre todo la capacitación en derechos humanos, así como en las ramas del derecho civil, laboral, penal, administrativa, entre otros.
+- Mejorar la estructura y distribución de los tribunales, pues el sistema judicial enfrenta sobrecarga en los tribunales, lo que genera retrasos y una lentitud en la resolución de los casos. a fin de que los asuntos se resuelvan de manera pronta y expedita conforme lo establece el artículo 17 Constitucional.
+- Implementar un sistema de seguimiento y evaluación de los casos, a fin de que los procesos judiciales se prolonguen indebidamente, creándose sistemas de seguimiento de los mismos, donde las partes puedan verificar el estatus de sus procesos.
+

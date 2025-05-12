@@ -1,0 +1,78 @@
+Nombre Candidato: JUAN RAMON RODRIGUEZ MINAYA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 9992221240
+Correo Electronico: juanrominaya14@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: AECID, América Latina, Anáhuac Cancún, Autor, BID, CGPJ, Cooperación internacional, Educación superior, España, Función pública, Gestión pública, Iberoamérica., Integridad pública, Inteligencia Artificial, Knight Center, Libertad de expresión, OEA, Prevención de la corrupción, Protección de periodistas, Razonamiento probatorio, Trata de personas, UJAT, UNAM, UNESCO, Universidad Olmeca
+Tags Propósito: Amparo, Atención al Público, Comunicación, Derechos Humanos, Eficiencia, Especialización Jurídica, Expedientes Electrónicos, Foros Jurídicos, Imparcialidad, Justicia, Lenguaje de Señas, Maya, Orientación Jurídica., Progresividad, Redes Sociales, Rezago, Sociedad, Tecnología, Transparencia, Tutela Judicial
+
+
+## Descripción del Candidato 
+
+Juan Ramón Rodríguez Minaya es candidato a Magistrado de Tribunales Colegiados de Circuito en Yucatán, postulando en funciones. Cuenta con doctorado y cédula profesional, además de una trayectoria académica como profesor en universidades públicas y privadas (UNAM, UJAT, Universidad Olmeca y Anáhuac Cancún) y como autor de libros. 
+
+Su motivación para buscar el cargo se basa en su experiencia como juzgador y su capacidad intelectual para contribuir a la impartición de justicia. Su visión de la función jurisdiccional la define como un servicio esencial del Estado, enfocado en la resolución imparcial de conflictos, privilegiando los derechos humanos. Entre sus propuestas destacan la creación de un módulo de apoyo técnico para expedientes electrónicos, aumentar la eficiencia en la gestión de casos, acercar la justicia a la ciudadanía a través de modalidades a distancia y promover la transparencia y el conocimiento de criterios jurídicos relevantes, incluyendo el uso de tecnología y la consideración de lenguas indígenas.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/JuanRaMinaya
+- https://www.instagram.com/juanraminaya
+- https://www.tiktok.com/@juan.ro.minaya
+
+
+## Cursos
+
+- Integridad Pública y Prevención de la Corrupción para el buen gobierno y una efectiva gestión pública, EG de OEA [2022]
+- ,Inteligencia Artificial Generativa (IAGen): Fundamentos para la función pública de América Latina y el C
+- , BID [2025]
+- ,Trata de seres humanos: Abordaje y cooperación en el marco de Iberoamérica, CGPJ España y AECID [2024]
+- ,Curso Marco Jurídico Internacional de la Libertad de Expresión y Protección de Periodistas, UNESCO y Knight Center[2014],Curso de Especialización Bases del razonamientos probatorio, Universidad de Girona, España [2020]
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54402/10
+
+
+## Trayectoria Academica
+
+- Profesor en diversas universidades públicas y privadas: UNAM, UJAT, Universidad Olmeca y Anáhuac Cancún
+- Autor de libros
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy preparado, tengo experiencia como juzgador, con posibilidad intelectual de aportar a la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un servicio esencial del Estado mexicano, distinto del policial o de la investigación de delitos a cargo de fiscalías. Su importancia radica en garantizar a las personas que sus conflictos [entre ellas o con autoridades], se resolverán en justicia. Esto es de forma imparcial, privilegiando los derechos humanos y sus garantías con la mayor progresividad, calidad, transparencia, sin formalismos, con sentido social y en breve término.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México es un concepto amplio que comprende las funciones jurisdiccionales tanto estatales como federales, cada una con su problemática diferente. En el caso de la federal, la mayor competencia radica en el conocimiento del juicio de amparo, que es el proceso previsto en nuestro país para que los gobernados soliciten protección ante los distintos actos de autoridad. El amparo debe privilegiar la tutela judicial efectiva y el principio de progresividad.
+
+
+## Propuestas
+
+- Gestionar la creación de un módulo que proporcione apoyo técnico a los usuarios en la revisión de expedientes electrónicos. Continuar impulsando las políticas ¿cero papel¿ y mayor eficiencia de los recursos materiales y tecnológicos a mi cargo. Invitar alumnos de preparatoria y carreras de derecho para que conozcan la labor jurisdiccional así como resolver sus inquietudes. Tener un canal de comunicación abierto con la sociedad para escuchar sus comentarios con el fin de mejorar el servicio.
+- Aumentar el número de asuntos a listar en las sesiones. Atención al público no sólo en forma presencial sino por videoconferencia para que no tengan necesidad de trasladarse a Mérida. Se gestionará la especialización completa de los órganos jurisdiccionales de Yucatán y el auxilio para abatir el rezago. Usar traducción con lenguaje de señas y del español al maya en las sesiones. Progresividades de los derechos y sus garantías en las resoluciones.
+- Impulsar y participar en foros de debate jurídico presenciales y virtuales que permitan a la sociedad conocer los criterios jurídicos de mayor relevancia e interés para la defensa de sus derechos. Comunicar por redes sociales criterios jurídicos relevantes y de interés a la población sobre la protección de sus derechos humanos. Gestionar campañas de orientación y de manejo sobre el uso de la tecnología para promover demandas o hacer consultas de los asuntos.
+

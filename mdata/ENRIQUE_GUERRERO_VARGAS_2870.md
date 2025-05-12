@@ -1,0 +1,79 @@
+Nombre Candidato: ENRIQUE GUERRERO VARGAS
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8124215789
+Correo Electronico: enriqueguerrerovargas21@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la justicia, Ciencias sociales, Derecho, Enfoques diferenciales, Formación judicial, Igualdad de género, Juicio oral penal, Sistema penal acusatorio, Universidad Autónoma de Nuevo León., Violencia
+Tags Propósito: Constitución, acceso a la justicia, certeza jurídica, derechos humanos, eficiencia judicial, estado de derecho, honradez, igualdad de género, justicia completa, justicia expedita., justicia imparcial, justicia pronta, leyes, orden público, profesionalismo, responsabilidad, servicio público, transparencia
+
+
+## Descripción del Candidato 
+
+Enrique Guerrero Vargas es candidato a Juez/a de Distrito en Nuevo León, postulándose desde el Poder Judicial de la Federación. Licenciado en Derecho y Ciencias Sociales, egresado de la Universidad Autónoma de Nuevo León, cuenta con formación continua en áreas del sistema penal acusatorio, derechos humanos e igualdad de género a través de cursos impartidos por la Escuela Federal de Formación Judicial del Consejo de la Judicatura Federal.
+
+Su motivación para buscar el cargo se centra en servir a la sociedad garantizando una justicia imparcial y cercana a la gente.  Sus propuestas incluyen reducir los tiempos de integración de expedientes y dictado de sentencias, garantizar la imparcialidad y transparencia en la función jurisdiccional, y desarrollar un trabajo profesional, honesto y dedicado para asegurar una impartición de justicia igualitaria, pronta y completa.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/.profile.php?id=61574799931477&mibextid=wXlfr&mibextid=wwXlfr
+- https://www.tiktok.com/.@enrique.guerrero483?_t=ZM-8v65FlQeNEN&_r=1
+
+
+## Cursos
+
+- Sistema penal acusatorio, situación actual
+- Escuela Federal de Formación Judicial del Consejo de la Judicatura Federal,Género como herramienta para la igualdad
+- Escuela Federal de Formación Judicial del Consejo de la Judicatura Federal
+- ,Curso para generar espacios libres de violencia
+- Escuela Federal de Formación Judicial del Consejo de la Judicatura F
+- ,Enfoques diferenciales para el acceso a la justicia
+- Escuela Federal de Formación Judicial del CJF
+- ,Curso de Capacitación  sobre el Juicio Oral Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53563/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho y ciencias sociales egresado de la Universidad Autónoma de Nuevo León
+
+
+## Motivo para buscar el Cargo Publico
+
+Tendré la oportunidad de servir a la sociedad como juez y garantizaré una justicia imparcial y cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un componente fundamental del Estado de derecho, pues sin ésta no podría existir una verdadera impartición de justicia y salvaguarda de los derechos humanos de las personas. Mi aspiración principal es contribuir al mantenimiento del orden público y la estabilidad social, de una manera imparcial, cercana a la gente y sin intereses personales de por medio. Porque un juz no debe ser ajenos a las situaciones sociales y particulares de cada individio que pide justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Cuento con la vocación de servicio y experiencia necesaria para desarrollar el cargo, a lo largo de mi carrera me he capacitado con múltiples cursos y diplomados relacionados con el sistema de impartición de justicia, derechos humanos e igualdad de género; además, mis actividades cotidianas y laborales siempre son realizadas con apoyo en las ideologías adquiridas en el seno familiar, cuyas principales directrices son la educación, el trabajo, la honradez y la responsabilidad.
+
+
+## Propuestas
+
+- Buscaré siempre reducir los tiempos de integración de los expedientes y el dictado de las sentencias correspondientes, implementando estrategias de estudio eficaz y concreto, pero con un enfoque protector de los derechos humanos de las partes, para poder así mejorar la certeza de las decisiones judiciales.
+- Garantizar a los ciudadanos que la funsión jurisdiccional se realiza de manera imparcial, transparente y en pro de sus derechos humanos, pues cada determinación tomada será con apego a la Constitución y a las leyes que de ella emanan, a fin de proporcionar un servicio público de calidad, con cortesía y amabilidad total y garantizando siempre el acceso a la justicia.
+- Desarrollar un trabajo de excelencia, con profesionalismo, honradez, dedicación y rectitud, buscando siempre que la impartición de justicia sea igualitaria, pronta, completa y expedita como lo manda nuestra Carta Magna
+

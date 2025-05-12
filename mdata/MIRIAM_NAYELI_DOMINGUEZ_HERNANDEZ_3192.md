@@ -1,0 +1,71 @@
+Nombre Candidato: MIRIAM NAYELI DOMINGUEZ HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9222308687
+Correo Electronico: dohemina1986@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación judicial, Educación continua., Escuela Judicial, Formación en línea, Veracruz
+Tags Propósito: Acceso a la justicia, Amparo, Bienestar social, Confianza ciudadana, Derechos Humanos, Eficiencia, Equidad, Estado de derecho, Impartición de justicia, Independencia judicial, Justicia efectiva., Justicia pronta, Personal capacitado, Plazos judiciales, Recursos, Resolución pronta, Transparencia, Ética constitucional
+
+
+## Descripción del Candidato 
+
+Miriam Nayeli Domínguez Hernández es candidata a Jueza/es de Distrito en Tabasco, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura y cédula profesional, además de haber realizado cursos en la Escuela Judicial del Estado de Veracruz.
+
+Su motivación para buscar el cargo es agilizar la impartición de justicia, a la que busca dar prioridad a la protección del orden jurídico y el bienestar social, promoviendo un Poder Judicial confiable y creíble. Sus propuestas principales incluyen: cumplir con los plazos constitucionales para la resolución de controversias (máximo un mes), asegurar que el personal judicial tenga un amplio conocimiento jurídico y emitir sentencias de amparo de manera lisa y llana para evitar retrasos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://www.facebook.com/miriam.dominguezhernandez.52
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53008/11
+
+
+## Trayectoria Academica
+
+- Cursos de la Escuela Judicial del Estado de Veracruz que ofrece en línea
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque la impartición de justicia es lenta en todos los ámbitos y por ello espero poder agilizar dicha impartición.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Proteger el orden jurídico, impartir justicia, garantizar el bienestar social para que seamos reconocidos como un Poder Judicial confiable y creíble, ejerciendo de manera independiente, pronta, completa, imparcial y gratuita la justicia, basada en los principios éticos y valores constitucionales tomando en cuenta a los grupos prioritarios pero siempre respetando los Derechos Humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de la justicia es garantizar el Estado de derecho, la equidad y la transparencia, así como la confianza en la sociedad, tratando de brindar un servicio de manera eficiente y eficaz, interpretar leyes de manera correcta, así como administrar recursos, y emitir resoluciones de manera pronta, completa e imparcial.
+
+
+## Propuestas
+
+- Que la impartición de justicia sea dentro de los términos marcados por el artículo 17 constitucional. Sin que los plazos deban ser mayores a un mes, toda vez que hay problemáticas, actualmente que los juzgados de distritos, así como los tribunales colegiados y de circuito, tardan más de 3 meses para resolver una controversia.
+- Que el personal que se contrate tenga conocimiento en todas las materias y demás ramas vinculadas con el derecho, esto para poder impartir y administrar la justicia pronta, justa y efectiva.
+- Que los juicios de amparo al momento de resolverse, si se les concede se haga de manera lisa y llana, esto para evitar que si es para efectos que la autoridad primaria vuelva a dictar una misma resolución y que tenga los quejosos volverse a amparar, esto es un retraso a la impartición de justicia el concederlo para efectos.
+

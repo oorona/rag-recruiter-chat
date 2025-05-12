@@ -1,0 +1,74 @@
+Nombre Candidato: JOSEFINA RODRIGUEZ MENDEZ
+Cargo: Juezas/es de Distrito
+Entidad: COLIMA
+Sexo: MUJER
+Telefono: 3121449854
+Correo Electronico: josefinarodriguezmendez9@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Criminalística, Curso., Derecho, Derechos, Derechos Humanos, Diplomado, Dogmática Penal, Genética Forense, Género, Juicio de Amparo, Maestría, Proceso Penal
+Tags Propósito: Acceso a la Justicia, Conciliación, Criterios Jurisdiccionales, Debido Proceso, Democracia., Derechos Humanos, Desigualdad Estructural, Diversidad, Eficacia Procesal, Estado de Derecho, Igualdad, Imparcialidad, Independencia Judicial, Interés Superior del Niño, Justicia, Pronta Resolución, Protección Familiar, Protección de Vulnerables, Tutela Judicial
+
+
+## Descripción del Candidato 
+
+Josefina Rodríguez Méndez es candidata a Jueza/es de Distrito en Colima, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Género, Derecho y Proceso Penal, y en Derecho con línea en Derechos Humanos, y posee cédula profesional. Su trayectoria académica y profesional se complementa con cursos en áreas como derechos, dogmática penal, juicio de amparo y criminalística.
+
+Motivada por la impartición de justicia basada en la igualdad y el respeto a los derechos humanos, Josefina Rodríguez Méndez propone una función jurisdiccional orientada a la protección de estos derechos y a garantizar el acceso a la justicia. Sus propuestas incluyen el establecimiento de criterios jurisdiccionales uniformes con enfoque diferenciado, la promoción de una justicia independiente e imparcial, y la resolución pronta y expedita de controversias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jossy.rodriguez.77
+- https://www.instagram.com/josefinarome20
+- http://www.youtube.com/@josefinarodriguezmendez3412
+- https://www.tiktok.com/@josssyrome
+
+
+## Cursos
+
+- Curso  para la enseñanza de derechos,Curso Complementario de Dogmática Penal Aplicada,Diplomado de Juicio de Amparo,Curso Criminalística de campo con énfasis en indicios biológicos para su estudio en genética forense,Curso de Inducción a los puestos de la administración de los Centros de Justicia Penal Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54398/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Género, Derecho y Proceso Penal y Maestría en Derecho con línea en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Me motiva la impartición de justicia basada en la igualdad y con respeto de los derechos humanos de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Visualizo una función jurisdiccional orientada hacia la protección de los derechos humanos de las personas en igualdad de oportunidades, dirigido a garantizar la tutela judicial efectiva en los procesos para fortalecer la confianza ciudadana en el Poder Judicial Federal mediante sentencias claras, con lenguaje sencillo, simple, directo y comprensible, garantizando el derecho de acceso a la justicia y a la información.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la impartición de justicia como un mecanismo que no solo resuelve controversias legales, sino que también protege los derechos fundamentales de las personas involucradas, especialmente de aquellas en situación de vulnerabilidad. En materia familiar, mi visión se enfoca en priorizar el interés superior de la niñez y garantizar la protección integral de la familia. En el ámbito civil y mercantil, trabajaré para que los procesos sean eficaces, ágiles y resolutivos.
+
+
+## Propuestas
+
+- Establecer criterios jurisdiccionales uniformes y especializados con un enfoque diferenciado e interseccional como herramienta analítica para el reconocimiento de las desigualdades, en busca de que los procesos judiciales consideren de manera integral la diversidad de las realidades familiares, condiciones de vulnerabilidad psicosocial, discapacidad y las desigualdades estructurales que enfrentan las personas justiciables.
+- Propongo una justicia independiente, pues la función jurisdiccional debe ser independiente e imparcial y los procedimientos deben cumplir con estándares de competencia, imparcialidad e independencia, para garantizar un ejercicio independiente de su cargo, y con ello fortalecer la democracia y el Estado de Derecho.
+- Justicia pronta y expedita a través de la resolución de controversias dentro de los plazos y términos prudentes evitando dilaciones indebidas, resolviendo los conflictos de manera rápida, efectiva y sin obstáculos, respetando el debido proceso e impulsando los procesos de forma oficiosa, y promoviendo la conciliación.
+

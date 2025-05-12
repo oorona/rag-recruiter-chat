@@ -1,0 +1,76 @@
+Nombre Candidato: ALMA LILIANA RAMIREZ RAMOS
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: 4431415875
+Correo Electronico: almaliliana.ram@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Arbitraje comercial internacional, Competencias jurídicas, Consejo justicia penal Michoacán., Derecho procesal constitucional, Derechos humanos, Escuela Libre de Derecho, Instituto de la Judicatura Federal, Juicios orales, Reformas constitucionales, Sistema de justicia penal, Suprema Corte de Justicia de la Nación
+Tags Propósito: Acceso a la justicia, Burocracia, Confianza en la ley, Cosmovisión indígena, Criterios judiciales, Derechos humanos, Desigualdad estructural, Dignidad, Empatía, Equidad, Humanización., Inclusión, Interculturalidad, Justicia itinerante, Justicia social, Pobreza, Protección, Pueblos indígenas, Reparación, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Alma Liliana Ramírez Ramos es candidata a Jueza/es de Distrito en Michoacán, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con maestría en Derecho Procesal Constitucional y una trayectoria académica en Derecho.
+
+Su motivación para buscar el cargo se centra en la resolución de casos que restauren la dignidad y promuevan una sociedad más justa e incluyente. Su visión de la función jurisdiccional la concibe como un puente entre el derecho y la realidad social, enfatizando la importancia de la sensibilidad, la justicia y el acceso a la misma para todos los ciudadanos. Sus propuestas principales incluyen la incorporación de un enfoque intercultural en la impartición de justicia, el fortalecimiento del acceso a la justicia itinerante y la reducción de la burocracia, así como la humanización de los procesos judiciales priorizando a personas en situación de vulnerabilidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18U2qAFGjR/?mibextid=wwXIfr
+- https://x.com/ilianaram6?s=11&t=X2vjIfe6Fp3vdEmYPecR5w
+- https://www.instagram.com/alma_liliana_ramirez_ramos?igsh=anJxa2MzeTJmdHYx
+- https://www.tiktok.com/@alma.liliana.ram?_t=ZM-8v65pcJ2tMs&_r=1
+
+
+## Cursos
+
+- Principios rectores de los juicios orales, impartido por el Consejo para el nuevo sistema de justicia penal de Michoacán,Curso de competencias Jurídicas Básica, impartido por el Instituto de la Judicatura Federal
+- ,Diplomado Reformas Constitucionales en materia de Amparo, impartido por la Suprema Corte de Justicia de la Nación,Diplomado Procesal de los Derechos Humanos, impartido por la Suprema Corte de Justicia de la Nación,Diplomado en Arbitraje Comercial Internacional, impartido por la Escuela Libre de Derecho
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54425/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y maestra en Derecho Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque puedo resolver casos que restituyan dignidad y abran caminos hacia una sociedad más justa e incluyente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser un puente entre el derecho y la realidad social, un espacio donde la ley dialogue con la vida y se aplique con sensibilidad y justicia, porque sé que la justicia tiene rostro, historia y memoria. No basta con dictar sentencias; se requiere comprender las circunstancias, los contextos y las desigualdades estructurales que afectan a las personas que acuden a los tribunales. Por tanto, la justicia no es un privilegio, sino un derecho accesible para todas y todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no es solo una institución; es un derecho humano que debe ejercerse con empatía, ética y compromiso con los más débiles. Para mí, impartir justicia es un acto de reparación, de reconocimiento y de construcción de un país más equitativo. Significa garantizar que las mujeres, los pueblos indígenas, las personas mayores y todas aquellas que han sido despojadas de su voz tengan acceso a un sistema que las proteja y les devuelva la confianza en la ley.
+
+
+## Propuestas
+
+- La justicia en México ha sido históricamente ajena a la cosmovisión indígena. Las comunidades enfrentan barreras estructurales que dificultan el ejercicio pleno de sus derechos, por tanto, se propone la incorporación del enfoque intercultural en la impartición de justicia, respetando la identidad y valores comunitarios de los pueblos indígenas.
+- El sistema judicial debe transformarse para garantizar que las decisiones se tomen en favor del pueblo y no de los intereses económicos o políticos, para lo cual, se necesita fortalecer el acceso a la justicia itinerante, llevando jueces y defensores a comunidades alejadas y marginadas, así como, la reducción de la burocracia en los procesos judiciales, eliminando trabas que obstaculizan el acceso a la justicia para las personas de bajos recursos.
+- La justicia no debe ser un mecanismo exclusivo para quienes tienen poder económico o político. Es necesario humanizar los procesos judiciales y acercarlos al pueblo, dando atención prioritaria a personas en situación de pobreza o vulnerabilidad, asegurando que no enfrenten barreras económicas en el acceso a la justicia ni profesionales, por lo que, se requiere una adecuación de criterios judiciales para evitar interpretaciones rígidas que perjudiquen a los sectores más desfavorecidos.
+

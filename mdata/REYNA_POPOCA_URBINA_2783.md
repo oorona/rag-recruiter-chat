@@ -1,0 +1,80 @@
+Nombre Candidato: REYNA POPOCA URBINA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7773040797
+Correo Electronico: reynapopocaconoceme@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Procesal Constitucional, DDHH, Derecho, Formación Judicial, IBERO Puebla., Juicio de Amparo, Justicia Mercantil, La Salle Cuernavaca, Poder Judicial de la Federación, Precedente Judicial, Suprema Corte de Justicia de la Nación, UNIVAC
+Tags Propósito: Acceso a la justicia, Artículo 17 Constitucional, Atención al público, Capacitación, Defensa adecuada, Derechos Humanos, Dignidad Humana, Equidad, Imparcialidad, Interés superior del menor, Jurisdicción, Justicia, Justicia completa, Justicia imparcial., Justicia pronta, Pro persona, Sentencias, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+RENA POPOPCA URBINA es candidata a Jueza/es de Distrito en Morelos, postulándose a través del Poder Judicial de la Federación. Cuenta con cédula profesional, Licenciatura en Derecho y especialidades en DDHH y Amparo Procesal Constitucional. Su trayectoria incluye diversos cursos y diplomados en áreas como justicia mercantil, juicio de amparo y derechos humanos impartidos por instituciones como la Escuela Federal de Formación Judicial y la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo es mejorar la impartición de justicia para que sea accesible en igualdad de condiciones. Propone capacitar al personal jurisdiccional, mejorar la atención al público y facilitar el acceso a los órganos de justicia. En su visión de la función jurisdiccional, prioriza la resolución equitativa, la escucha a las partes, el respeto a los derechos humanos y la justicia pronta, completa e imparcial, poniendo especial atención en casos de personas vulnerables y en el interés superior del menor.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573820754275&mibextid=wwXIfr&mibextid=wwXIfr
+- https://x.com/reynapopocaur?s=21
+- https://www.instagram.com/soyreyna.ur?igsh=am4yNWw5YnVxaTlj
+- https://www.tiktok.com/@soyreyna87?_t=ZM-8v6Et32ErH3&_r=1
+
+
+## Cursos
+
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación, ciclo 2015, extensión Puebla,Curso para generar espacios libres de violencia de la Escuela Federal de Formación Judicial
+- ,Diplomado en Justicia Mercantil, campus virtual de la Escuela de Formación Judicial, año 2022
+- ,Diplomado Juicio de Amparo, edición 2021, Suprema Corte de Justicia de la Nación
+- Casas de la Cultura Jurídica
+- ,Curso el Precedente Judicial
+- Principales aspectos teóricos y su aplicación en México, quinta edición
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54704/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en derecho por la UNIVAC, Especialidades en DDHH La Salle Cuernavaca y Amparo Procesal Constitucional IBERO Puebla
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero mejorar la impartición de justicia, para que sea accesible para todos en igualdad de condiciones.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es más que solo aplicar las leyes, se debe resolver en equidad y justicia, escuchando siempre a las partes, no resolver de forma arbitraria. Debe respetarse el contenido del numeral 17 constitucional: justicia pronta, completa e imparcial. En cada sentencia el juzgador debe velar por el respeto a los derechos humanos y la dignidad humana. Los valores y principios del juzgador son parte fundamental en su labor.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quien imparte justicia debe no sólo tener conocimientos jurídicos sino vocación de servicio. La Imparcialidad es una característica del buen juzgador, su decisión debe estar alejada de intromisiones externas. La justicia debe ser accesible para todos, hoy en día no todas las personas tienen acceso a ella, eso debe cambiar, y tratándose de quienes se encuentran en situación de vulnerabilidad, el juzgador debe garantizar su derecho a una defensa adecuada.
+
+
+## Propuestas
+
+- Capacitar a todo el personal que labora en órganos jurisdiccionales, a fin tomar cursos, talleres y diplomados de la materia que conocen para un mejor desempeño en su función; mejorar la atención al público; volver los órganos jurisdiccionales más accesibles al público pues hoy en día es muy difícil que un juez federal te atienda y escuche, eso debe cambiar.
+- Juzgar respetando los derechos humanos y en asuntos dónde estén involucrados niñas, niños y adolescentes, resolver siempre atendiendo al interés superior del menor; asimismo, en los casos dónde las partes sean personas en situación de vulnerabilidad, suplir la queja deficiente, siempre atendiendo al principio pro persona.
+- Que la justicia sea pronta, completa e imparcial como lo mandata el artículo 17 constitucional y que cada sentencia se emita siempre respetando los derechos humanos establecidos en la constitución y los tratados internacionales.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN JOSE CANTU TREVIÑO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 5510162946
+Correo Electronico: juanito19713@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Capacitación, Cibernética, Control de Convencionalidad, Delitos Bancarios, Derecho Internacional, Derechos Humanos, Especialización Judicial, Justicia Penal Acusatoria, Poder Judicial Federal, SCJN, Universidad de Guadalajara.
+Tags Propósito: acceso a la justicia, colectividad, derechos humanos, ecosistemas, grupos vulnerables, humanismo, igualdad, imparcialidad, independencia, juicio de amparo, justicia cercana, justicia expedita, justicia profesional., justicia social, orden jurídico, protección animal, sensibilidad social
+
+
+## Descripción del Candidato 
+
+JUAN JOSE CANTU TREVIÑO es candidato a Jueces/as de Distrito en Veracruz, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría y cédula profesional, además de diversos cursos en áreas como Amparo, Nuevo Sistema de Justicia Penal, Derechos Humanos y Reformas en Delitos Bancarios y Cibernéticos (información detallada en su CV: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52935/11).
+
+Su motivación para el cargo público se centra en el compromiso con los grupos vulnerables, el respeto a los derechos humanos y la no discriminación. Propone una función jurisdiccional sencilla, imparcial e independiente, con acceso a la justicia federal para todos los ciudadanos, especialmente los más vulnerables. Sus propuestas incluyen facilitar el acceso a la justicia para grupos vulnerables, una protección implacable de los animales a través del juicio de amparo, y un análisis humanista de los casos, priorizando las necesidades de la colectividad en la toma de decisiones judiciales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/profile.php?id=61573693826825
+- https://instagram.com/trevinojuanjosecantu?utm_source=qr&igsh=Mnh3cDmbWRva3lv
+- https://tiktok.com/@juanjosecantu2?_t=ZM-8uwq2v9jl7r&_r=1
+- https://facebook.com/share/1665Wgggq2/
+
+
+## Cursos
+
+- Diplomado en Amparo Séptima Edición, División de Estudios Jurídicos de la Universidad de Guadalajara
+- ,Nuevo Sistema de Justicia Penal Acusatorio en México, Desde la Perspectiva Constitucional,Derechos Humanos Control de Convencionalidad, el Poder Judicial Federal y el Derecho Internacional,Especialización Judicial y Preparación y Capacitación para Secretarios de Estudio y Cuenta de la SCJN,Curso de Reformas en Materia de Delitos Bancarios y Cibernéticos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52935/11
+
+
+## Trayectoria Academica
+
+- Trayectoria de constancia, perseverancia y éxito
+
+
+## Motivo para buscar el Cargo Publico
+
+Por el compromiso con los grupos vulnerables, respeto a los derechos humanos y, una no discriminación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser sencilla y sin poner formalismos a las personas que solicitan la justicia federal, además, de imparcial, independiente, e integrada, ello con el fin de resolver conflictos y proteger el orden jurídico, esta función debe de llegar a todos por igual, sin importar clase o condición social, puesto que debe de cumplir con el reclamo de justicia en favor del pueblo de Veracruz en la forma indicada.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la actualidad la justicia debe de estar más cercana a la gente con una visión humanista, llegando a todos por igual, no importando clase social, credo o condición física. En especial, el Juicio de Amparo debe constituir una herramienta mediante la cual los grupos vulnerables y las clases sociales relegadas tengan acceso a una justica profesional, imparcial y expedita, en donde se sientan confiados en que el juez dictará un fallo tomando en cuenta una visión integral de las circunstancias.
+
+
+## Propuestas
+
+- Justicia cercana a la gente y de puertas abiertas, en los cuales los grupos vulnerables y las personas de condición social precaria accederán a la justicia federal en forma real y efectiva sin poner obstáculos o formulismos que vulneren sus derechos, la idea es allanar el camino para que todos puedan acceder el reclamo de justicia en una forma real y efectiva.
+- En materia de protección animal, con las recientes reformas constitucionales aprobadas en este sentido se será implacable en darle voz a aquellos que no tiene, facilitando el juicio de amparo para el efecto de proteger no solo a las especies domesticas sino a las silvestres y migratorias que transitan por el país, ello a fin de preservar los ecosistemas que en la actualidad todavía subsisten en México.
+- Que el juicio de amparo sea analizado con un sentido humanista, donde el pueblo sea el factor determinante para tomar las decisiones al momento de dictar las sentencias, es decir, que no se tenga una visión de atender únicamente a las constancias de autos sino teniendo la sensibilidad de atender a las necesidades particulares de la colectividad, a efecto de que las sentencias constituya un equilibrio para lograr la justicia social que se solicite.
+

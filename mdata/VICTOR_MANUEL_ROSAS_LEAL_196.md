@@ -1,0 +1,81 @@
+Nombre Candidato: VICTOR MANUEL ROSAS LEAL
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 2282379601
+Correo Electronico: vmrosasl@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Acción Política, Administración Pública, Análisis Político Estratégico, CIDE, Curso., Decisiones Judiciales, Derecho, Derecho Electoral, Diplomado, Especialización Judicial, Estado de Derecho, Justicia Electoral, Maestría, Seminario, TEPJF, UNAM, Ética Judicial
+Tags Propósito: Acceso a la Justicia, Autonomía TEPJF, Comunidades Indígenas, Democracia, Derechos Humanos, Derechos Políticos, Digitalización, Diversidad, Enfoque de Género, Expedientes Judiciales, Grupos Vulnerables, Imparcialidad, Inclusión, Integridad, Justicia, Modernización, Participación Ciudadana, Rendición de Cuentas, Resolución de Conflictos Electorales, Servicio Comunitario., Sistema Judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+Víctor Manuel Rosas Leal es candidato a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulándose desde la entidad nacional y buscando representación tanto en el Poder Judicial como en el Legislativo Federal. Cuenta con estudios de maestría en Derecho, especializándose en Derecho Electoral y Justicia Electoral, y ha realizado diversos cursos de especialización judicial y en análisis político estratégico, incluyendo estudios en la UNAM y el CIDE/TEPJF.
+
+Su motivación para el cargo se centra en garantizar una justicia imparcial, proteger los derechos políticos y promover la transparencia. Sus propuestas principales incluyen el fortalecimiento de la democracia con especial atención a grupos vulnerables, la promoción de acceso público a las resoluciones judiciales a través de la digitalización y plataformas interactivas, y el impulso de resoluciones con enfoque de género, diversidad y protección de derechos de comunidades indígenas dentro del sistema electoral, buscando siempre defender la autonomía del TEPJF.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/vmrosasl
+- https://x.com/vmrosasl
+- https://www.instagram.com/vmrosasl/
+- https://www.youtube.com/@victormanuelrosasleal1010
+- https://www.tiktok.com/@vmrosasl
+- https://www.facebook.com/profile.php?id=61574283870720
+
+
+## Cursos
+
+- Estudos de Maestría en Acción Política y Administración Pública,Curso de Especialización Judicial por el Instituto de la Judicatura Federal,Curso de ética judicial por la Comisión Iberoamericana de Ética Judicial y otras,Seminario sobre decisiones judiciales
+- Estado de Derecho: problemas particulares y perspectiva
+- TEPJF,Diplomado en análisis político estratégico
+- CIDE y TEPJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/18127/9
+
+
+## Trayectoria Academica
+
+- Licenciado y maestro en Derecho por la UNAM
+- Especialidades en Derecho Electoral y Justicia Electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser magistrado para garantizar una justicia imparcial, proteger derechos políticos y promover la transparencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se centra en garantizar un acceso equitativo a la justicia, promoviendo la transparencia y la rendición de cuentas. Me comprometo a la imparcialidad y objetividad en todas las decisiones, protegiendo los derechos humanos y modernizando el sistema judicial con innovaciones tecnológicas. Aspiro a un sistema justo y eficiente que refleje los valores de integridad y servicio a la comunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión se basa en varios principios fundamentales que considero esenciales para un sistema judicial justo y eficaz. Creo firmemente que todas las personas deben tener acceso a un sistema judicial que sea justo y eficiente. Es fundamental que nadie se quede atrás en la búsqueda de justicia. Mi compromiso es con la imparcialidad y la objetividad en todas las decisiones judiciales. Es esencial que las decisiones se basen únicamente en los hechos y la ley, y en la protección de los derechos.
+
+
+## Propuestas
+
+- Fortalecimiento de la Democracia. Garantizar la protección de los derechos políticos de los ciudadanos y partidos, especialmente, en las controversias electorales, de mujeres, personas y comunidades indígenas, jóvenes, y, en general, grupos en situación de vulnerabilidad. Trabajar para agilizar los tiempos de respuesta en la resolución de conflictos electorales. Defender la autonomía de la Sala Xalapa del TEPJF frente a influencias externas, y garantizar que las decisiones sean conforme a la ley
+- Promover una política de acceso público a las resoluciones y procesos judiciales, facilitando que los ciudadanos comprendan las decisiones y motivos detrás de cada caso. Política de puertas abiertas para las partes, y personas en general, para conocer mejor el contexto en el que se dan los casos a resolver. Digitalizar los expedientes y procesos judiciales para facilitar el acceso y reducir los tiempos de trámite. Establecer plataformas interactivas de consulta y modernizar el sistema juicial
+- Impulsar resoluciones con enfoque de género y diversidad que fomenten la inclusión en los procesos electorales. Proteger y defender los derechos de comunidades indígenas y grupos vulnerables dentro del sistema electoral. Defender la autonomía del TEPJF frente a influencias externas, garantizando que las decisiones se tomen con base en la ley y no en intereses políticos. Fomentar la participación ciudadana y la confianza en las instituciones judiciales.
+

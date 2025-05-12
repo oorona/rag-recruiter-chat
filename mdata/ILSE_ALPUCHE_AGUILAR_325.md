@@ -1,0 +1,77 @@
+Nombre Candidato: ILSE ALPUCHE AGUILAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CAMPECHE
+Sexo: MUJER
+Telefono: 9811017755
+Correo Electronico: alpucheaguilarilse@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Curso., Derecho, Derecho Constitucional, Derechos Humanos, Diplomado, Doctorado, Especialización, Formación, Justicia Laboral, Licenciatura, Maestría, Poder Judicial, Razonamiento Probatorio, Seguridad Social, Seminario
+Tags Propósito: Acceso a la Justicia, Autonomía, Capacitación, Eficiencia, Estado de Derecho, Expeditez, Imparcialidad, Integridad, Interés Común, Jurisprudencia, Justicia Integral., Justicia Social, Medios Electrónicos, Normatividad, Percepción Ciudadana, Plazos, Servidores Públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Ilse Alpuche Aguilar es candidata a Magistraduras de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con un Doctorado en Derechos Humanos, además de estudios en Derecho Constitucional y Amparo, y ha realizado diversas especializaciones y cursos en temas de justicia y seguridad social.
+
+Su motivación para buscar el cargo es contribuir a una impartición de justicia más transparente y enfocada en los valores sociales. Propone una función jurisdiccional que considere la percepción ciudadana y una correcta interpretación de las normas, así como una justicia pronta, expedita e imparcial. Adicionalmente, busca fomentar la capacitación constante de los servidores públicos y el aprovechamiento de herramientas electrónicas para facilitar los procesos y mejorar la comunicación con la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574002767751
+- https://x.com/ilsealpuche?s=11&t=WCWcQq3alCoBlVN0QmTffA
+- https://www.instagram.com/ilsealpucheaguilar?igsh=MWw4M2k0NTdiYXQxeg==
+- https://www.youtube.com/@IlseAlpucheAguilar
+- https://www.tiktok.com/@ilsealpuche
+- https://www.linkedin.com/in/ilse-alpuche-aguilar-78594b355?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Especialidad en Curso de Especialización sobre la Reforma en Materia de Justicia Laboral,Diplomado en Seguridad Social,Seminario de Amparo en Material Laboral,Curso en Razonamiento Probatorio en Materia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52392/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, con Maestría en Derecho Constitucional y Amparo, y Doctorado en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ayudar a la ciudadanía desde una impartición de justicia más transparente y enfocada en los valores de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe de tomar un enfoque desde la percepción social de la ciudadanía y la correcta interpretación de las normas vigentes a través de la corriente de la justicia social, tomando como pilar para su práctica la plena transparencia de los servidores públicos en sus actuaciones y una política de integridad tanto en las resoluciones emitidas como en la atención dada al público en general.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe de enfocarse en los principios de expeditez, prontitud e imparcialidad previstos en el artículo 17 Constitucional, a fin de brindar una justicia integral a toda la ciudadanía y derivado de ello, permitir la instauración de un Estado de derecho eficiente, en el cual la sociedad se sienta comprendida y respalda por un órgano jurisdiccional justo y autónomo que en todo momento vea por el interés común de la sociedad.
+
+
+## Propuestas
+
+- La búsqueda de una justicia pronta y expedita en términos reales y no únicamente en palabras, en la que la ciudadanía pueda percibir una verdadera sensación de justicia y que los procesos no se prolongan injustificadamente, sino que las actuaciones y resoluciones sean dictadas conforme a los plazos establecidos en la normatividad vigente.
+- La continua capacitación de la persona titular a fin de estar actualizada en los temas normativos y jurisprudenciales que faciliten la correcta resolución de los asuntos a resolver en el órgano jurisdiccional, así como estimular a los demás servidor públicos adscritos a buscar una capacitación constante para la mejor ejecución de sus funciones encomendadas en beneficio de la justicia social.
+- El correcto aprovechamiento de los medios electrónicos que permitan la facilitación de los procesos jurisdiccionales a partir de una pronta integración de los expedientes e inmediata notificación de las partes por medios remotos, así como la permisibilidad de una justicia a puerta abierta a fin de que la ciudadanía tenga una mayor apertura a los órganos jurisdiccionales que le permitan conocer el estado procesal que guarda su asunto y los avances realizados.
+

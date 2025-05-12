@@ -1,0 +1,75 @@
+Nombre Candidato: NAYELI URBANO JUAREZ
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: MUJER
+Telefono: 7475295622
+Correo Electronico: Asesoriajuridica_Urbano@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Certificación., Conciliación, Curso de Actualización, Derecho Constitucional, Derecho Electoral, Derecho Laboral, Derecho Procesal Civil, Derechos de la Naturaleza, Diplomado, Litigio Estratégico, Maestría, Reforma Laboral, Sistema de Nulidades, Solución de Conflictos, Universidad Autónoma de Guerrero
+Tags Propósito: LGBTTTIQ+, acceso a la justicia, adultos mayores, afromexicanos, bienestar común, daño ambiental., derechos humanos, eficacia judicial, equidad de género, estado de derecho, grupos vulnerables, igualdad, infancia, justicia social, paz social, pobreza, protección ambiental, pueblos indígenas, sentencias vinculatorias
+
+
+## Descripción del Candidato 
+
+NAYELI URBANO JUAREZ es candidata a Jueza/es de Distrito por el Poder Judicial de la Federación en el estado de Guerrero. Cuenta con Maestría en Derecho, opción terminal Constitucional, de la Universidad Autónoma de Guerrero. Su formación incluye certificaciones y diplomados en áreas como conciliación, derecho electoral, justicia laboral, litigio estratégico y derecho procesal civil.
+
+Su motivación para buscar el cargo es transformar Guerrero hacia la igualdad, justicia social y protección de los derechos humanos. Su visión se centra en contribuir a la erradicación de las desigualdades a través del acceso a una justicia pronta, imparcial y eficaz, con especial atención a la perspectiva de género y la protección de grupos vulnerables. Sus propuestas incluyen la administración de justicia en igualdad de condiciones, la impartición de justicia pronta y eficaz, y la garantía de un medio ambiente sano a través de sentencias vinculatorias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/nayeli.urbanojuarez/
+- https://www.instagram.com/nayeliurbanojuarez?igsh=MW4yNWVqc2NlbGIwZg==
+- https://www.tiktok.com/@nayeliurbanojuare?_t=ZM-8v1ACKbPvcN&_r=1
+
+
+## Cursos
+
+- Certificación en el Estándar de Competencias Conciliación para la solución de conflictos en materia laboral individual,Diplomado en Derecho Electoral 2023, impartido por la Facultad de Derecho de la Universidad Autónoma de Guerrero,Curso de Actualización sobre la reforma en materia de justicia laboral, impartido por el Instituto de la Judicatura
+- ,Curso en la Clínica de Litigio Estratégico para la Defensa de los Derechos de la Naturaleza,Diplomado en Tópicos del Derecho Procesal Civil y el Sistema de Nulidades
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54800/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho opción terminal Constitucional de la Universidad Autónoma de Guerrero
+- Generación 2023
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero transformar mi Estado en igualdad de condiciones, con justicia social y protección de los derechos humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Para contribuir en la erradicación de las desigualdades sociales a través del acceso a la justica, pronta, imparcial y eficaz, donde los mexicanos cuenten con un sistema de protección amplia de los derechos humanos, brindándole la confianza a la sociedad en general de que la impartición de justicia será igualitaria sin discriminación, con equidad de género, protegiendo y salvaguardando a los grupos más vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Resolver los procedimientos en tiempo y forma, logrando obtener una mayor eficacia en la impartición de justicia, aplicando la perspectiva de género en la resolución de los conflictos, así como la protección más amplia a los grupos vulnerables entre ellos a los pueblos indígenas, comunidades afromexicanas, LGBTTTIQ+, así como también los niños y niñas, personas adultas mayores y personas en extrema pobreza.
+
+
+## Propuestas
+
+- Que la justicia se administre en igualdad de condiciones, sin que exista discriminación alguna para que los mexicanos logren obtener un estado de derecho pleno, de tal manera que se alcance la paz social y el bienestar común.
+- Que la impartición de justicia sea pronta, de forma que la sociedad obtenga la protección de sus derechos humanos, por medio de sentencias eficaces que logren una verdadera restitución de las violaciones que reclamen.
+- Garantizar un medio ambiente sano por medio de sentencias vinculatorias donde se contemplen acciones afirmativas en las que, de manera inmediata, tienda a prevenir y restaurar el daño ambiental de que se trate.
+

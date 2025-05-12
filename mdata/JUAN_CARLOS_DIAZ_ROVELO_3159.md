@@ -1,0 +1,71 @@
+Nombre Candidato: JUAN CARLOS DIAZ ROVELO
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 8128853050
+Correo Electronico: jrovelo10@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Ciencias Penales, Derecho, Derecho Civil, Derechos LGBTTTI, Discapacidad, Especialización., Formación Judicial, Judicatura Federal, Jueces, Juicios Orales, Magistrados, Niñez, Psicología Forense, Violencia
+Tags Propósito: abogados., acceso a cargos públicos, acoso, cero tolerancia, experiencia, función jurisdiccional, justicia, objetivos del estado, paz social, república, rezago, seguridad social, talentos institucionales, vocación de servicio
+
+
+## Descripción del Candidato 
+
+Juan Carlos Díaz Rovelo es candidato a Jueces/as de Distrito en Sonora, postulándose en funciones. Cuenta con estudios de doctorado en Ciencias Penales y Juicios Orales, además de una licenciatura y maestría en Derecho. Su formación complementaria incluye cursos en Psicología Forense, Protección de Derechos LGBTTTI, Asuntos de Competencia Judicial, Generación de Espacios Libres de Violencia y Justicia con Perspectiva de Discapacidad.
+
+Díaz Rovelo busca el cargo con el objetivo de continuar sirviendo al país, basándose en su experiencia y formación académica. Considera la función jurisdiccional como una herramienta clave para la paz social y la impartición de justicia, enfocándose en combatir el rezago, maximizar el talento institucional, y promover la tolerancia cero al acoso. Su perfil completo y CV se encuentran disponibles en el enlace proporcionado.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/jrovelo10
+
+
+## Cursos
+
+- CURSO PSICOLOGIA FORENSE ESPECIALIZADA EN LA NIÑEZ (CASA DE CULTURA JURÍDICA),CONVERSATORIO PROTECCIÓN DE LOS DERECHOS DE PERSONAS LGBTTTI (CONSEJO DE LA JUDICATURA FEDERAL),SEMINARIO DE ASUNTOS DE COMPETENCIA PARA MAGISTRADOS Y JUECES MEXICANOS,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA   I (ESCUELA FEDERAL DE FORMACIÓN JUDICIAL),CURSO ESPECIALIZADO IMPARTICIÓN DE JUSTICIA CON PERSPECTIVA DE DISCAPACIDAD (ESCUELA FEDERAL DE FORMACIÓN JUDICIAL)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53206/11
+
+
+## Trayectoria Academica
+
+- licenciatura en derecho, maestria en derecho civil y doctorado concluido en ciencias penales y juicios orales
+
+
+## Motivo para buscar el Cargo Publico
+
+Para seguir sirviendo al país, con base en la experiencia adquirida y los estudios desarrollados
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función judicial es una pieza clave en la paz social, porque en medida de que a cada persona se le dé lo que le corresponde se verá y se sentirá la actividad del Estado. concibo a la función jurisdiccional como una herramienta fundamental de la república, en la que las personas no deberían de resentir efectos nocivos de personas sin experiencia y vocación de servicio. La función jurisdiccional debe ser extraordinaria como reflejo de una paz y seguridad social que el Estado debe otorgarnos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El reto es impartir justicia como está en el papel, intentar cumplir con los objetivos del estado y trabajando para lograrlo.
+
+
+## Propuestas
+
+- cero tolerancia al acoso en cualquiera de sus modos
+- Atender a las causas del rezago y combatirlo
+- Maximizar los talentos institucionales y facilitar el acceso a cargos públicos a cualquier abogade interesade
+

@@ -1,0 +1,74 @@
+Nombre Candidato: EULALIO HIGUERA VELAZQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4432307914
+Correo Electronico: eulalio.h@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Derecho Constitucional, Derecho Electoral, Derechos Humanos, Diplomado, Doctorado., Elaboración de Sentencias, Interpretación Jurídica, Jurisprudencia, Licenciatura en Derecho, Maestría, Perspectiva de Género, Posgrado, Resolución, Seminario, Tesis
+Tags Propósito: acceso a la justicia, cercanía social., claridad, conciliación, confianza institucional, derechos laborales, difusión judicial, eficiencia, equidad, imparcialidad, justicia comprensible, justicia itinerante, justicia laboral, litigiosidad, resolución de conflictos, transparencia, vinculación ciudadana
+
+
+## Descripción del Candidato 
+
+EULALIO HIGUERA VELAZQUEZ es candidato a Jueces/es de Distrito en MICHOACAN, postulado por el Poder Ejecutivo Federal. Cuenta con Doctorado en Derecho Constitucional y Derechos Humanos, además de una Maestría en Derecho Electoral y Licenciatura en Derecho. Su trayectoria académica se complementa con cursos en argumentación jurídica, elaboración de sentencias y jurisprudencia.
+
+El candidato basa su motivación en su preparación, experiencia y vocación para impartir justicia de manera clara, imparcial y efectiva.  Su visión de la función jurisdiccional y la impartición de justicia se centra en la accesibilidad, comprensión y cercanía con la sociedad. Sus propuestas incluyen la implementación de jornadas de justicia laboral itinerantes, la creación de un programa de difusión y vinculación ciudadana, y la simplificación del lenguaje en las sentencias para asegurar su comprensión y aplicación efectiva.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://eulaliohigueravelazquez.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61570601583947&sk=about_contact_and_basic_info&locale=es_LA
+- https://www.instagram.com/eulaliohv/#
+- https://www.youtube.com/@eulaliohiguera
+- https://www.tiktok.com/@eulaliohiguera
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica con perspectiva de género,Curso de elaboración de sentencias,Curso de argumentación y elaboración de resoluciones,Seminario de interpretación y argumentación jurídicas,Curso para la elaboración de tesis y jurisprudencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53623/11
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho Constitucional y Derechos Humanos, Maestría en Derecho Electoral y Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo la preparación, la experiencia y la vocación para impartir justicia de manera clara, imparcial y efectiva.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+A través de la función jurisdiccional se debe impartir justicia de forma clara, imparcial y eficiente, asegurando que cada resolución proteja los derechos laborales y sea comprensible para todos, por eso considero que la función jurisdiccional debe dejar de ser un proceso burocrático y se debe convertir en una herramienta efectiva para fortalecer la justicia laboral y mejorar la vida de la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia se basa en la claridad, la imparcialidad y la cercanía con la sociedad, por eso estoy convencido que la justicia no solo debe ser efectiva, sino también comprensible y accesible para todos, de ahí que, como juez, mi compromiso es garantizar que cada resolución sea justa, apegada a la ley y expresada de manera que las personas comprendan su alcance y significado, creo que sólo así se puede generar confianza en las instituciones.
+
+
+## Propuestas
+
+- La justicia debe ser comprensible para que sea efectiva. Considero que la claridad en las sentencias no solo beneficia a quienes intervienen en un juicio, sino que también reduce la litigiosidad innecesaria y contribuye a la confianza en el sistema judicial. Como jueces, nuestra labor no termina con la emisión de un fallo; debemos garantizar que este sea entendido y aplicado correctamente, asegurando así que la justicia no solo se imparta, sino que también se sienta y se viva en la sociedad.
+- Propongo la implementación de jornadas de justicia laboral itinerante, donde jueces y conciliadores acudan a distintas regiones para atender conflictos directamente en las comunidades, considero que esto permitiría acercar la justicia a trabajadores y empleadores que tienen dificultades para trasladarse a los tribunales, agilizando la resolución de disputas, promoviendo acuerdos conciliatorios y garantizando un acceso real y equitativo a la justicia laboral.
+- Propongo la creación de un programa de difusión y vinculación ciudadana, donde el tribunal laboral organice charlas, foros y simulaciones de juicios abiertos al público para explicar de manera sencilla cómo funciona la justicia laboral y cuáles son los derechos y obligaciones de trabajadores y empleadores. A través de estas actividades, la ciudadanía podrá conocer de primera mano el papel de los jueces laborales, fomentar la confianza en las instituciones y sentirse identificada con el juez.
+

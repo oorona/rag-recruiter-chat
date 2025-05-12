@@ -1,0 +1,80 @@
+Nombre Candidato: JOSE ANTONIO GARZA LOPEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 5529679675
+Correo Electronico: jagarzal@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información Judicial, Derecho Constitucional, Derecho Familiar, Derechos Fundamentales, Equidad de Género, Federalismo Judicial, Licenciatura., Maestría, Suprema Corte de Justicia de la Nación, UANL, Universidad Carlos III, Universitat Pompeu Fabra
+Tags Propósito: Justicia humanista, acceso a la justicia, análisis predictivo, certeza jurídica, contexto social, derechos humanos, digitalización, eficiencia, estandarización, expedientes, homologación, jurisprudencia, orden jurídico, procesos ágiles., sentencias, sistema jurídico mexicano, tecnología, transparencia, tutela judicial efectiva
+
+
+## Descripción del Candidato 
+
+Jose Antonio Garza Lopez es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación en Nuevo León. Cuenta con Maestría en Derecho y ha realizado diversos cursos y diplomados en áreas como Derechos Fundamentales, Equidad de Género, Derecho Familiar y Acceso a la Información Judicial.
+
+Su motivación para buscar el cargo es promover una impartición de justicia humanista, transparente y sensible a las necesidades sociales. Su visión se centra en soluciones concretas y eficientes, priorizando la justicia oportuna y la protección de los derechos humanos. Propone la utilización de nuevas tecnologías para análisis predictivo y gestión de casos, la implementación de un portal de transparencia en tiempo real, y la creación de comisiones para homologar criterios judiciales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573497178944
+- https://x.com/home?lang=es
+- https://www.instagram.com/jantoniogarzal/
+- https://www.youtube.com/@antonbenet
+- https://www.tiktok.com/@antoniogarza849
+- https://www.facebook.com/jAntonioGarzal/
+
+
+## Cursos
+
+- Master en Derechos Fundamentales  Line, por la Universidad Carlos III de la Madrid, Getafe
+- ,Curso sobre Equidad de Género, llevado a cabo de manera presencial en la Universitat Pompeu Fabrá, en Barcelona, España
+- ,Seminario Internacional de Federalismo Judicial Protección de los Derechos Fundamentales en los Estados Federales SCJN,Diplomado de Derecho Familiar, Facultad de Derecho y Ciencias Sociales y Colegio de Criminología de la UANL
+- ,Seminario Internacional de Acceso a la Información Judicial y Nuevas Tecnologías, Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53153/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho y Ciencias Sociales y Materias cursadas de la Maestría en Derecho Constitucional y Gobernabilidad UANL
+
+
+## Motivo para buscar el Cargo Publico
+
+Para que la impartición de justicia sea humanista, sólida, transparente, cercana y sensible a las necesidades sociales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Exige soluciones concretas, eficientes y socialmente útiles; la justicia debe ser oportuna, ya que los procesos ágiles y las sentencias ejecutables son aspectos prioritarios, evitando que el formalismo obstaculice el acceso a la tutela judicial efectiva; las resoluciones deben generar confianza, mediante criterios claros y consistentes, debiéndose considerar el contexto económico, social y cultural, para lograr la integración armónica de las decisiones judiciales en el Sistema Jurídico Mexicano
+
+
+## Vision sobre la Imparticion de Justicia
+
+La más amplia protección de los derechos humanos, pues más allá del caso concreto, se debe buscar sentar precedentes que impacten, en la realidad, la vida de las personas; la simplificación de trámites mediante las nuevas tecnologías de la información resulta esencial para descongestionar a los tribunales; y, más allá de discusiones bizantinas, es necesario tener presente que lo prioritario es que las resoluciones restablezcan el orden jurídico y otorguen certeza a las personas gobernadas.
+
+
+## Propuestas
+
+- Utilización de nuevas tecnologías de la información: para llevar a cabo análisis predictivos de jurisprudencia, detección de contradicciones en sentencias y priorización de casos urgentes.
+- Transparencia en tiempo real: mediante un portal público, con seguimiento de expedientes y sentencias estadísticamente analizadas, para identificar cuellos de botella.
+- Comisiones de homologación: mediante la creación de grupos de trabajo con magistrados, jueces y académicos para estandarizar criterios en las materias más conflictivas.
+

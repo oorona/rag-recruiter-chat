@@ -1,0 +1,74 @@
+Nombre Candidato: SERGIO MECINO MORALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4431393931
+Correo Electronico: sergiomecinom@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración pública, Argumentación jurídica, Capacitación, Derecho, Derechos humanos, Diplomado, Justicia administrativa, Licenciatura, Maestría, Materia fiscal, Procuración de justicia, Redacción judicial, Seminario, Sistema anticorrupción, Taller.
+Tags Propósito: acceso a la justicia, calidad de justicia, desempeño judicial, función jurisdiccional, imparcialidad, independencia, justicia, necesidades sociales, objetividad, operadores judiciales, paz social., profesionalismo, recursos judiciales, resolución de conflictos
+
+
+## Descripción del Candidato 
+
+Sergio Mecino Morales es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde Michoacán para el Poder Legislativo Federal. Cuenta con maestría en administración pública y es estudiante de maestría en administración y procuración de justicia, además de contar con diversos cursos y diplomados en áreas como justicia administrativa, derechos humanos y argumentación jurídica.
+
+Su motivación para buscar el cargo público es servir a la ciudadanía y garantizar la justicia con una visión humana e inclusiva. Visualiza la función jurisdiccional como un eje central para la pacificación del país y propone fortalecer la profesionalización de las personas juzgadoras, priorizando cualidades como objetividad, imparcialidad e independencia. Adicionalmente, plantea dotar a los operadores judiciales de las herramientas y recursos necesarios para un desempeño efectivo. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BC6TaBPvm/?mibextid=wwXIfr
+- https://x.com/sergiomecino?s=21
+- https://www.instagram.com/sergiomecinomorales/
+- https://www.tiktok.com/@sergiomecinomorales?_t=ZM-8uxqO7APPmx&_r=1
+
+
+## Cursos
+
+- Diplomado en justicia administrativa y derechos humanos,Curso de capacitación en materia de argumentación jurídica y redacción judicial,Seminario de actualización en materia fiscal,Taller del sistema anticorrupción,Curso sobre argumentación jurídica e interpretación jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54184/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, Maestro en administración pública y Maestrando en administración y procuración de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la ciudadanía y garantizar la justicia con una visión humana, inclusiva y acorde a la realidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Visualizo la función jurisdiccional como uno de los ejes centrales para pacificar nuestro país, ya que las personas juzgadoras deben ser el conducto para resolver de la manera más adecuada los conflictos que se sometan a su consideración, para ello, se necesita que quienes ejercen la función la dignifiquen, a través de la aplicación de la justicia acorde a las necesidades que la sociedad demanda.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es una función fundamental del estado, mediante la cual se busca resolver las controversias que se susciten en la sociedad; sin embargo, para que la impartición de justicia sea completa, no basta que existan tribunales para que a través de sus juezas y jueces se dicte el derecho; se necesita garantizar que la justicia sea de fácil acceso, profesional, pronta, expedita y de calidad.
+
+
+## Propuestas
+
+- La función jurisdiccional requiere de personas juzgadoras profesionales para dictar el derecho; sin embargo, no basta solamente de conocimientos en la materia, también se requiere priorizar que quienes ocupen los cargos tengan determinadas cualidades como la objetividad, imparcialidad, honradez e independencia; además de tener sentido común de la justicia.
+- Para el mejoramiento de la función jurisdiccional, las personas operadoras judiciales deben ser dotadas de las herramientas necesarias, recursos materiales y humanos para un efectivo desempeño.
+- No proporcionó
+

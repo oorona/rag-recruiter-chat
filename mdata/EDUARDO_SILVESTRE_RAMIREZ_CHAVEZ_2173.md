@@ -1,0 +1,77 @@
+Nombre Candidato: EDUARDO SILVESTRE RAMIREZ CHAVEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5548891020
+Correo Electronico: eduardosil18@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Justicia, Argumentación Jurídica, CIDÉ, Código Nacional de Procedimientos Civiles y Familiares, Derechos de la Infancia, Diplomado, Experiencia Profesional., Justicia Administrativa, Maestro, PJF, Regulación, Regulación Ambiental, UNICEF, Universidad de Alicante
+Tags Propósito: Acceso a la Información, Audiencias Virtuales, Capacitación Continua, Conciliación, Cultura de Paz, Derechos Humanos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Expedientes Electrónicos, Independencia Judicial, Integridad, Inteligencia Artificial, Justicia, Mediación, Modernización Tecnológica, Métodos Alternativos de Resolución de Conflictos, Optimización de Recursos., Perspectiva de Género, Rendición de Cuentas, Sensibilidad Social, Transparencia, Vulnerables
+
+
+## Descripción del Candidato 
+
+EDUARDO SILVESTRE RAMIREZ CHAVEZ es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con una Maestría en Derecho y 27 años de experiencia en el Poder Judicial Federal, especializándose en justicia administrativa. Su motivación para buscar el cargo es garantizar una justicia equitativa, proteger a los vulnerables y aplicar la ley con integridad y compromiso social.
+
+Su visión se centra en una función jurisdiccional eficaz, imparcial y accesible, con enfoque en derechos humanos y equidad. Sus propuestas incluyen la digitalización de procesos judiciales, la capacitación continua de jueces en temas de derechos humanos y perspectiva de género, y el fortalecimiento de la mediación y conciliación como métodos alternativos de resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16A6dB8NqC/
+- https://www.instagram.com/eduardosil?utm_source=qr&igsh=MTd1dmtzbDFjYXZheQ==
+- https://www.tiktok.com/@eduardramz
+- https://www.linkedin.com/in/eduardo-silvestre-ramC3ADrez-chC3A1vez-932373128?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica: Instituto de la Judicatura Federal, Universidad de Alicante (España) y Universidad
+- ,Diplomado en Regulación: Centro de Investigación y Docencia Económicas (CIDE)
+- ,Diplomado en Regulación Ambiental
+- ,Curso de Actualización Sobre el Código Nacional de Procedimientos Civiles y Familiares,Los Derechos de la Infancia y el Acceso a la Justicia: Fondo de las Naciones Unidas para la Infancia (UNICEF)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55132/11
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho especializado en justicia administrativa, con formación sólida y 27 años de experiencia en el PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar justicia con equidad, proteger a los más vulnerables y aplicar la ley con integridad y compromiso social
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia eficaz, imparcial y accesible, con enfoque en derechos humanos y equidad. Debe ejercerse con independencia, transparencia y sensibilidad social, protegiendo a los más vulnerables. La modernización tecnológica, la capacitación continua y el fortalecimiento de métodos alternativos de solución de conflictos son claves para mejorar su eficiencia. Un juez debe ser garante del Estado de Derecho, resolviendo con ética, criterio y compromiso social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser pronta, imparcial y accesible, garantizando la protección de los derechos y la equidad. Debe basarse en la independencia judicial, la transparencia y la cercanía con la sociedad. La modernización tecnológica y la capacitación continua son esenciales para su eficiencia. Es fundamental fortalecer los métodos alternativos de resolución de conflictos, asegurando que la justicia sea un pilar de confianza, estabilidad y desarrollo para la sociedad.
+
+
+## Propuestas
+
+- Es fundamental impulsar la digitalización de los procesos judiciales y garantizar la transparencia en la impartición de justicia. Modernización tecnológica en los tribunales mediante la digitalización de expedientes, audiencias virtuales y uso de inteligencia artificial para agilizar la gestión judicial. Esto reducirá tiempos procesales, mejorará el acceso a la justicia y optimizará la transparencia en la toma de decisiones.
+- Capacitación continua para jueces y personal jurisdiccional en derechos humanos, perspectiva de género y nuevas tendencias jurídicas. Esto garantizará resoluciones más justas, actualizadas y con enfoque inclusivo, fortaleciendo la confianza en el Poder Judicial.  de tiempos procesales mediante la optimización de recursos y la capacitación del personal judicial.  de herramientas tecnológicas para la gestión de expedientes y audiencias.
+- Fortalecimiento de la mediación y conciliación como métodos alternativos de resolución de conflictos. Esto permitirá desahogar la carga judicial, promover soluciones rápidas y satisfactorias para las partes, y fomentar una cultura de paz y diálogo en la sociedad.  publicidad, implementar expedientes electrónicos públicos, con supresión de datos en cualquier etapa del proceso y audiencias virtuales. Mayor rendición de cuentas y acceso a la información judicial.
+

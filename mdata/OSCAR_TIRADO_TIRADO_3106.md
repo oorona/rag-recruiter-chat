@@ -1,0 +1,78 @@
+Nombre Candidato: OSCAR TIRADO TIRADO
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6691555628
+Correo Electronico: oscartiradotirado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Atención Pública, Comisión Nacional de Derechos Humanos., Derecho, Derecho Penal, Derechos Humanos, Discriminación, Doctorado, Jurisdicción Indígena, Licenciatura, Maestría, SCJN, Seminario Judicial, Violencia
+Tags Propósito: Acceso a la justicia, Bienestar, Ciudadanía, Cultura de servicio, Derechos, Eficiencia, Estado de derecho, Expedita., Formalismo, Justicia, Necesidades actuales, Paz social, Renovación estructural, Servicio público, Transparencia
+
+
+## Descripción del Candidato 
+
+Oscar Tirado Tirado es candidato a Juez/a de Distrito en Sinaloa, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho, respaldados por una cédula profesional. Su formación incluye cursos en sistemas de consulta del Seminario Judicial de la Federación, jurisdicción indígena, derechos humanos y atención pública no discriminatoria.
+
+El candidato manifiesta su deseo de contribuir al bienestar de los mexicanos a través de su participación en el Poder Judicial. Su visión de la función jurisdiccional se centra en el compromiso con la sociedad, evitando el formalismo excesivo y considerando la justicia como un servicio público fundamental. Sus propuestas incluyen fomentar una cultura de servicio en la función pública, impulsar una renovación estructural para lograr una justicia más ágil y eficiente, y brindar un acceso a la justicia más accesible, efectiva, transparente y cercana a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- LOS SISTEMAS DE CONSULTA DEL SEMINARIO JUDICIAL DE LA FEDERACIÓN
+- 150 ANIVERSARIO DEL SJF
+- IMPARTIDO POR LA SCJN
+- ,LAS RAZONES DE LA CORTE, JURISDICCIÓN ESPECIAL INDIGENA
+- IMPARTIDO POR LA SCJN
+- ,JORNADAS DE DERECHOS HUMANOS EN LÍNEA, IMPARTIDO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+- ,CURSO DENOMINADO CLAVES PARA LA ATENCIÓN PÚBLICA SIN DISCRIMINACIÓN
+- ,CURSO DE DERECHOS HUMANOS Y VIOLENCIA IMPARTIDO POR LA COMISIÓN NACIONAL DE DERECHOS HUMANOS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55377/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciado en Derecho, tengo Maestría en Derecho Penal y tengo Doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseamos ser parte de este nuevo equipo de trabajo y contribuir con el BIENESTAR DE LOS MEXICANOS.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los jueces deben comprometerse con la sociedad. Es decir, implica reconocer que la impartición de justicia es un servicio público fundamental para la vida de los ciudadanos y la consolidación del Estado de derecho en nuestra sociedad. Uno de los peores vicios de nuestra cultura jurídica es el formalismo exacerbado que rige en la forma de comunicación durante el ejercicio profesional. Los jueces deben, por ello evitar los formalismos excesivos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que administrar justicia es una función seria y difícil, ustedes lo saben mejor que nadie. Aplicar el derecho, dirimir las controversias con sentido jurídico y humano, es contribuir a la realización de la justicia y de la paz social, pero qué grave responsabilidad entraña el ejercicio de esta función. El acceso a la justicia debe tomar en cuenta las diferencias existentes en la sociedad, con el objetivo de constituirse como un verdadero canal de acceso a la protección de los derechos.
+
+
+## Propuestas
+
+- Fomentar una cultura de servicio, es decir, que las y los funcionarios públicos comprendan la relevancia del puesto y área en dónde laboran.
+- Hacer una renovación estructural para generar una justicia más ágil y eficiente, alineándose con los cambios sociales y culturales generados en los últimos años, y para cumplir los llamados de la sociedad mexicana de una justicia pronta y expedita.
+- Brindar una justicia más accesible, más efectiva, más transparente, más abierta y más cercana a la ciudadanía y a sus necesidades actuales.
+

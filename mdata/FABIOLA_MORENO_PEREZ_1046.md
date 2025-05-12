@@ -1,0 +1,75 @@
+Nombre Candidato: FABIOLA MORENO PEREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3351211114
+Correo Electronico: fabiolam7@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acciones Colectivas, Actuarios, Argumentación, Derechos Humanos, Desaparición Forzada, Doctorado., Filosofía del Derecho, Género, Igualdad, Inteligencia Emocional, Justicia para Adolescentes, Liderazgo, Procuración de Justicia, Secretarios de Juzgado, Sistema Penal Acusatorio, Suprema Corte de Justicia, Violencia de Género
+Tags Propósito: acceso a la justicia, asesoría legal, asistencia a víctimas., derechos, eficiencia judicial, empatía, formación judicial, igualdad, justicia comprensible, justicia humana, justicia pronta, paz social, reparación del daño, resolución de conflictos, tecnología, transparencia, vulnerabilidad, víctimas
+
+
+## Descripción del Candidato 
+
+Fabiola Moreno Perez es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en Jalisco. Cuenta con doctorado y una trayectoria académica enfocada en procuración y administración de justicia, con especialidad en argumentación. Su motivación para buscar el cargo público se centra en servir a las personas vulnerables, impartir justicia con un enfoque humano y priorizar a las víctimas del delito. 
+
+Su visión de la función jurisdiccional se basa en una justicia pronta, sin formalismos y enfocada en la resolución de fondo de los problemas, priorizando el acceso a la justicia y el uso de la tecnología. Sus propuestas incluyen la distribución de funciones en la formulación de sentencias para reducir tiempos y formar a nuevas generaciones, la implementación de un sistema de información telefónica para facilitar el acceso a la justicia a personas de bajos recursos, y el fortalecimiento de la asesoría profesionalizada para víctimas, incluyendo acciones para obtener la reparación del daño.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16BhDLuNMm/
+- https://x.com/fabiolamoreno_8?t=hukdSmH45Jvwc8JWj-nn_g&s=09
+- https://www.instagram.com/fabiolamoreno_7?igsh=Ymk0amM0cTZudWc0
+- https://www.tiktok.com/@fabiolamoreno_7?_t=ZM-8uOHkyjiVux&_r=1
+
+
+## Cursos
+
+- Diplomados en Derechos Humanos, en sistema penal acusatorio, en acciones colectivas, justicia para adolescente y género
+- ,Título de Experto en intervención con Mujeres Víctima de Violencia de Género, seminario desaparición forzada de personas,Curso Inteligencia Emocional, Unidad y Liderazgo II; visiones de la filosofía del derecho, género herramienta p igualdad,Cursos de preparación para actuarios, secretarios de juzgado, secretarios tribunal y de la Suprema Corte de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54242/10
+
+
+## Trayectoria Academica
+
+- licenciada con maestría en procuración y administración de justicia, especialidad en argumentación, candidata a doctora
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a las personas más vulnerables, impartir justicia con sentido humano, priorizando a las víctimas del delito
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una justicia pronta, sin formalismos, que resuelva de fondo la problemática de las personas y abone a la paz social. La función jurisdiccional debe reflejar un trabajo de equipo siempre en beneficio del justiciable, no priorizar el rendimiento estadístico ya que eso genera que muchas demandas sean desechadas y las personas se decepcionen del sistema de justicia. Por el contrario, se debe propiciar el acceso a la jurisdicción y fomentar el uso de la tecnología para el ahorro de insumos y personal
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un derecho de todas las personas, no debe haber exclusiones. La justicia debe reflejar los valores que como magistrada sostengo: la empatía, congruencia, transparencia y el esfuerzo. La justicia no debe quedarse en los tribunales, debe cambiar la vida de la gente. Además, debe ser comprensible para todos, sin palabras complicadas. Pero no se trata de castigar, sino también comprender: muchas veces quienes delinquen son producto de una sociedad que les ha fallado.
+
+
+## Propuestas
+
+- Distribuir las funciones jurisdiccionales entre el personal de manera que todos contribuyan en formular proyectos de sentencia, no solo hacer cosas de forma mecánica; ello contribuirá a reducir el tiempo en la resolución de casos y además formará a las nuevas generaciones, dándoles la oportunidad de participar en forma plena en la solución de los conflictos.
+- el uso de las tecnologías hará que las personas no tengan que trasladarse hasta el tribunal. sugiero un sistema de información telefónica a las personas que residan fuera del lugar del juicio, mediante el otorgamiento de una clave que se proporciones al inicio y que les permita llamar y efectivamente ser atendidos, evitando así el gasto de recursos para aquellas personas de bajo nivel socioeconómico, pues ello no debe ser un obstáculo para que conozcan el avance de su caso o asunto.
+- Que el Poder Judicial cuente con un sistema de asesoría de víctimas profesionalizado, que permita que el mismo nivel de técnica y conocimientos que tienen los defensores públicos lo tengan los asesores jurídicos y que se les exija participar activamente defendiendo a las víctimas, y sobre todo ejerciendo acciones para obtener la reparación del daño, pues muchas veces se dicta una sentencia que condena a pagar el daño causado, pero se queda en solo el papel, pues no se ejercen actos para el cobro
+

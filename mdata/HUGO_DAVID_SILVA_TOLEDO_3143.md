@@ -1,0 +1,77 @@
+Nombre Candidato: HUGO DAVID SILVA TOLEDO
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6622049911
+Correo Electronico: hugosilvat@hotmail.es
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Conciliación, Derecho, Derecho Procesal Penal, Derechos Humanos, Juicios Orales, Justicia Penal, Maestría, Mediación., UABC, ULSA
+Tags Propósito: Accesibilidad, Capacitación, Carrera Judicial., Certeza Jurídica, Desarrollo Económico, Desarrollo Social, Estabilidad Legal, Humanismo, Justicia, Legitimidad, Leyes, Participación Ciudadana, Poder Judicial, Sistema de Justicia
+
+
+## Descripción del Candidato 
+
+Hugo David Silva Toledo es candidato a Juez/a de Distrito por Sonora, postulándose al Poder Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal Oral y cédula profesional. Su formación incluye diversas capacitaciones en juicios orales, justicia penal indígena, derechos humanos y conciliación/mediación en el sistema de justicia penal.
+
+Su motivación para buscar el cargo público se basa en la aplicación del conocimiento de las leyes para lograr un mejor país. Su visión para la función jurisdiccional es establecer un sistema renovado, humanista, accesible y con apoyo ciudadano, mientras que para la impartición de justicia, busca contribuir a la estabilidad legal y certeza jurídica en México. Sus propuestas principales son la capacitación continua del personal judicial, el fortalecimiento de la carrera judicial y el fomento de la participación ciudadana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Capacitacion en Juicios Orales
+- ,Curso Especializado para Jueces en el Sistema de Justicia Penal
+- ,Capacitacion en juicios orales penales
+- ,Justicia Penal Indigena y Derechos Humanos
+- ,Curso especializado para Conciliadores y mediadores en el Sistema de Justicia Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54917/11
+
+
+## Trayectoria Academica
+
+- Estudie Derecho en UABC campus Mexicali B
+- C
+- , Maestria en derecho Procesal Penal Oral en ULSA en Cajeme Sonora
+
+
+## Motivo para buscar el Cargo Publico
+
+Siempre he creido que el conocimiento de las Leyes y su debida aplicacion es la base de la Justicia para un mejor pais.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es indispensable un Sistema de Imparticion de justicia renovado , un poder judicial humanista , que se lejitime con el apoyo de la poblacion, que la justicia sea accesible y comprensible para el ciudadano comun y que este conozca a las personas que componen el andamiaje del poder judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se debe asegurar que el poder judicial en Mexico, tenga apertura a la sociedady contribuya a la estabilidad legal y a la certeza juridica que son fundamentales para el desarrollo economico y social del pais.
+
+
+## Propuestas
+
+- Capacitacion y mejora continua del personal del poder judicial.
+- Fortalecer la carrera judicial , respetando todos y cada uno de los eslabones que la componen.
+- Asegurar una mayor paticipacion ciudadana.
+

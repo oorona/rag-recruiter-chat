@@ -1,0 +1,78 @@
+Nombre Candidato: DAVID GUSTAVO LEON HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 9511010378
+Correo Electronico: david2317leon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Autor., Derecho Constitucional, Derecho Fiscal, Diplomado, Docencia, Igualdad, Inconstitucionalidad, Maestría, Universidad Iberoamericana Puebla, Universidad del Valle de México, Violencia
+Tags Propósito: acceso a la justicia, agilidad procesal, audiencias orales, conciliación, convivencia pacífica., derechos humanos, dignidad humana, inclusión, justicia, justicia digital, lenguaje accesible, mecanismos alternativos, mediación, población vulnerable, responsabilidad pública, servicio público, tecnología, transformación social, zonas rurales, ética
+
+
+## Descripción del Candidato 
+
+DAVID GUSTAVO LEON HERNANDEZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Veracruz, postulando en funciones. Cuenta con un doctorado y amplia trayectoria académica, con 25 años dedicados a la docencia y autoría de publicaciones especializadas en derecho, incluyendo el libro "La Acción de Inconstitucionalidad". Su motivación para buscar el cargo es continuar sirviendo como magistrado, garantizando la justicia con honestidad, inclusión y un enfoque humano.
+
+Su visión de la función jurisdiccional y de la impartición de justicia se centra en un servicio público ético, imparcial e inclusivo, poniendo la dignidad de las personas como fin último del derecho.  Sus propuestas incluyen la implementación de justicia digital con enfoque inclusivo, la consolidación de audiencias orales y mecanismos procesales ágiles, y el fomento de mecanismos alternativos de resolución de conflictos como la conciliación y la mediación.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15ir7KcxZB/?mibextid=wwXIfr
+- https://www.instagram.com/davidgustavoleonhernandez?igsh=MW10aW1iZ3Y1NDNzeg3D3D&utm_source=qr
+- https://www.tiktok.com/@david.gustavo.leo?_t=ZM-8v10DnYGydL&_r=1
+
+
+## Cursos
+
+- Maestria en Derecho Fiscal por la Universidad del Valle de México
+- ,Maestria en Derecho Constitucional y Amparo, por la universidad iberoamericana de puebla, obteniendo mención honorifica
+- ,Diplomado en derecho Constitucional y Amparo
+- ,Género como Herramienta para la Igualdad; para Generar Espacios Libres de Violencia   I
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53960/10
+
+
+## Trayectoria Academica
+
+- 25 años dedicados a la docencia
+- Autor del libro la acción de inconstitucionalidad
+- Impartido diversos cursos
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo seguir sirviendo como magistrado para garantizar e impartir justicia con honestidad, inclusión y sentido humano.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Juzgar es un acto de responsabilidad pública, ética y humana, no solo un ejercicio técnico o formal. El juez no es un mero aplicador de normas, sino un servidor del pueblo. Mi visión es la de un servicio imparcial, incluyente, profesional y profundamente humano, que no pierde de vista que el fin último del Derecho es servir a la dignidad de las personas y contribuir a una convivencia más justa, solidaria y pacífica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es la de una función pública con profundo sentido humano, fuerte base ética y vocación de transformación social. La justicia no puede ni debe ser un privilegio, sino un derecho pleno, efectivo y accesible para todas las personas, sin importar su condición económica, social, cultural o territorial. Una justicia que sirve, protege, orienta y transforma.
+
+
+## Propuestas
+
+- Implementación de justicia digital con enfoque de inclusión. Para ello, se debe impulsar el uso de tecnologías para facilitar el acceso a la justicia laboral, especialmente en zonas rurales o con población vulnerable, mediante plataformas accesibles, audiencias virtuales y presentación digital de demandas y pruebas. Esto debe hacerse sin excluir a quienes no cuentan con medios tecnológicos, asegurando opciones presenciales y asistencia institucional.
+- Impulsar la consolidación de audiencias orales y el uso de mecanismos procesales más ágiles que eliminen formalismos innecesarios, permitiendo que las personas trabajadoras, muchas veces sin representación legal, puedan comprender y participar activamente en sus juicios. Esto incluye fomentar resoluciones claras y de lenguaje accesible.
+- Fomentar el uso de mecanismos alternativos como la conciliación judicial, la mediación laboral y los acuerdos entre partes, bajo la supervisión del órgano jurisdiccional, para resolver conflictos de manera más rápida, justa y pacífica.
+

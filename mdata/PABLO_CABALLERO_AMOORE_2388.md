@@ -1,0 +1,83 @@
+Nombre Candidato: PABLO CABALLERO AMOORE
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5545539809
+Correo Electronico: caballeroamoorepablo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: FCPyS UNAM, INACIPE, INAP, Inteligencia Seguridad Nacional, Licenciatura Derecho, Proceso Penal Acusatorio, Promedio 9+, SETEC, Titulación Examen General., UNAM
+Tags Propósito: *No generado*
+
+
+## Descripción del Candidato 
+
+Pablo Caballero Amoore es candidato a Juez de Distrito para la Ciudad de México, buscando un cargo en el Poder Legislativo Federal. Licenciado en Derecho por la UNAM, cuenta con una sólida formación académica complementada por diversos diplomados y especializaciones en áreas como el proceso penal acusatorio, inteligencia para la seguridad nacional y justicia.
+
+Su motivación para buscar el cargo público radica en participar en un momento histórico que permite la elección popular de los juzgadores. Su visión se centra en la importancia de la función jurisdiccional como pilar de la vida pública y en la necesidad de renovar el Poder Judicial para responder a los retos actuales, como la inseguridad pública. Sus propuestas principales incluyen acercar la justicia a la sociedad, eliminar la discriminación en el sistema, promover la capacitación en derechos humanos, realizar jornadas informativas y asegurar la pronta resolución de los casos, cumpliendo con los plazos constitucionales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://pablocaballeroamoore.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574735000087
+- https://x.com/Pabloamoore
+- https://www.instagram.com/pabloamoore/
+- https://www.tiktok.com/@pabloamoore
+
+
+## Cursos
+
+- Diplomado ¿Proceso Penal Acusatorio y Oral¿; INACIPE; duración 120 hrs, promedio final 9
+- 5; año 2024
+- ,Diplomado ¿Proceso Penal Acusatorio y Oral¿; INACIPE; duración 120 hrs, promedio final 9; año 2015
+- ,Curso  Sistema de Justicia  SETEC, Secretaría de Gobernación; año 2015
+- ,Especialización en Inteligencia para la Seguridad Nacional; INAP; duración 248 hrs, promedio final 9
+- 2
+- año 2012
+- ,Diplomado  Nacional y  FCPyS UNAM; duración 120 hrs, promedio final 9; año 2011
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52466/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, UNAM CU, promedio final 9
+- 40
+- Titulación por examen general de conocimientos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ser parte de un momento histórico que permite a los ciudadanos para votar y ser votados en temas de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La administración de justicia, que es el tramo de responsabilidad que le corresponde al poder judicial, es uno de los pilares que sostienen el día a día de la vida pública, es en donde se recarga la salvaguarda de los principios que rigen a una sociedad, dicho en otras palabras, del correcto funcionamiento de esta función del Estado depende la protección de los derechos, bienes, valores y principios de los ciudadanos, es en esta función en la que recae lo que llamamos justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Este momento histórico, en donde se hará parte a la sociedad para participar en la elección de las personas juzgadoras, constituye una oportunidad para replantear la justicia en nuestro país, para conservar y fortalecer aquello que viene funcionando bien, pero replantear, renovar y modificar todo aquello que quedo obsoleto y que se alejó por mucho de su objetivo. Nuestro país atraviesa por momentos en los que la inseguridad pública es un gran reto y el poder judicial esta llamado a renovarse.
+
+
+## Propuestas
+
+- Recuperar el sentido social de la función judicial, convertirla cercana a la sociedad y velar por una adecuada atención al usuario del sistema de justicia. Eliminar la discriminación y los malos tratos al público usuario. Capacitación y formación obligatoria en materia de derechos humanos para todo el personal integrante del Poder Judicial Federal que tenga contacto con el público en general, y sobre todo para las personas juzgadoras.
+- Jornadas nacionales educativas e informativas sobre las funciones y alcances de la función judicial, dirigidas principalmente a sectores vulnerables de la sociedad, así como realizar pláticas y eventos pedagógicos en escuelas y centros comunitarios de todo el país, para efectos que la sociedad conozca y sea informada de la función que desempeña el poder judicial y de que manera impacta en la vida de los ciudadanos. Jornadas nacionales de asesoría jurídica gratuita privilegiando zonas marginadas
+- Que las resoluciones sean dictadas dentro de los términos previstos en el artículo 20 apartado B de la Constitución, es decir, que sea efectiva la obligación que recae en los órganos jurisdiccionales de dar aviso al Tribunal de Disciplina Judicial en caso de que por alguna razón no hubiese sido posible, poniendo especial importancia en la justificación que sea expuesta para evitar que se utilice como una salida evasiva al mandato constitucional. Justicia pronta y expedita.
+

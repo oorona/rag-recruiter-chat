@@ -1,0 +1,74 @@
+Nombre Candidato: MARIA CATALINA IBARRA MAYORGA
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6632911150
+Correo Electronico: mariacatalinaibarramayorga@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Laboral, Derechos Humanos, Diplomado., Especialidad Laboral, Formación, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Penal, Poder Judicial, Reforma Laboral, Seguridad Social
+Tags Propósito: acceso a la justicia, capacitación judicial, confianza, debido proceso, decisiones justas., dignidad humana, eficacia, eficiencia, equidad, gestión judicial, imparcialidad, justicia, paz social, procesos judiciales, profesionalismo, recursos, rendición de cuentas, servidores públicos, transparencia, usuarios, valores, verdad
+
+
+## Descripción del Candidato 
+
+MARIA CATALINA IBARRA MAYORGA es candidata a Jueza/es de Distrito en Baja California, postulada por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho Penal y una trayectoria académica centrada en el ámbito laboral y penal. Su motivación para buscar el cargo público es contribuir a restaurar la confianza en la justicia.
+
+Su visión se centra en una función jurisdiccional y una impartición de justicia basadas en el derecho, la accesibilidad, la imparcialidad, el debido proceso y el respeto a la dignidad humana. Sus propuestas incluyen la mejora de la eficiencia y eficacia de la función jurisdiccional, el fortalecimiento de la capacitación judicial y el compromiso con la transparencia y la rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+http://www.catalinaibarra.com/
+
+
+## Redes Sociales
+
+- http://www.facebook.com/catalinaibarramx
+- http://www.instagram.com/catalinaibarramx
+- http://www.tiktok.com/catalinaibarramx
+
+
+## Cursos
+
+- Especialidad sobre la Reforma en Materia de Justicia Laboral,Especialidad del Curso Básico de Formación para Secretarios del Poder Judicial de la Federación,Diplomado en el Juicio de Amparo,Diplomado en materia de Seguridad Social,Diplomado en Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53882/11
+
+
+## Trayectoria Academica
+
+- Soy Lic
+- en Derecho, con especialidad laboral y maestrías en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es el camino más noble para contribuir y devolver a la sociedad la confianza que ha perdido en la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe fundamentarse en una visión en la que el derecho, cuando de ejerce de manera adecuada, se convierte en una herramienta poderosa al servicio del bien común, con el firme compromiso de contribuir a la construcción de un sistema de justicia más accesible, confiable y humano. Su esencia radica en asegurar que todas las personas tengan paso a la justicia de manera imparcial y respetando el debido proceso, buscando constantemente la equidad y paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es la de un sistema que inspire confianza, brinde certeza y refleje los más altos valores de quienes ejercemos la función jurisdiccional. La impartición de justicia es un compromiso diario con la sociedad, una responsabilidad que exige se imparcial, objetivo, independiente y profesional; por tanto, es hablar de equilibrio, respeto a la dignidad humana y búsqueda siempre la verdad.
+
+
+## Propuestas
+
+- Comprometerme a la mejora de la función jurisdiccional, bajo los principios de eficiencia y eficacia; es decir, lograr la excelencia optimizando al máximo los recursos, direccionando los esfuerzos hacia metas que tengan sentido y ayuden al crecimiento de la impartición de justicia en el tribunal, beneficiando tanto al servidor público como a la sociedad.
+- Fortalecer la capacitación judicial, ya que una administración judicial eficiente y profesional requiere de funcionarios capacitados que no solo sean expertos en el derecho, sino que también comprendan la importancia de una gestión adecuada de los recursos, tiempos y procedimientos, impulsando sus habilidades y capacidades, liderazgo y eficiencia operativa; así como, en el servicio a los usuarios, logrando así brindar una atención más humano, respetuoso y profesional.
+- Me comprometo a ser transparente y rendir cuentas, ello con el fin de devolverle a la sociedad la confianza en el sistema de justicia; brindando claridad en los procesos judiciales y asegurando que las decisiones sean justas y comprensibles para todos. Del mismo modo, permitiendo que los ciudadanos puedan expresar sus quejas o preocupaciones de manera confiable.
+

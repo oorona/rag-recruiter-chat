@@ -1,0 +1,80 @@
+Nombre Candidato: JESSICA IRAIS CUEVAS HIGUERA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5532255013
+Correo Electronico: jesscuevash@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Barra Nacional de Abogados, Defensa Penal, Derecho Constitucional, Derecho Probatorio Penal, Derecho Procesal Penal, Especialidad, Formación Judicial, Formación en el extranjero, Instituciones públicas, Instituto de Estudios Superiores, Justicia para adolescentes, Maestría, Mención honorífica., Razonamiento Probatorio, Universidad de Girona, Universidad de Mancha
+Tags Propósito: Justicia humanista, acceso a la justicia, capacitación, derechos humanos, dignidad, discapacidad, equidad, función jurisdiccional., grupos vulnerables, inclusión, interculturalidad, justicia cercana, legitimidad, perspectiva de género, procesos penales, reparación integral, sistema penitenciario, transformación social, transparencia, víctimas
+
+
+## Descripción del Candidato 
+
+Jessica Irais Cuevas Higuera es candidata a Jueza de Distrito en la Ciudad de México, postulando a los poderes Ejecutivo Federal y Judicial de la Federación. Cuenta con Maestría y diversa especialización en áreas como Derecho Procesal Penal, Constitucional y Probatorio, incluyendo estudios en universidades de España.  
+
+Su motivación para el cargo se centra en servir a México promoviendo una justicia humanista, incluyente y accesible.  Sus propuestas incluyen fortalecer la función jurisdiccional con perspectiva de derechos humanos y grupos vulnerables, facilitar el acceso a la justicia y la comunicación con la ciudadanía, y garantizar la protección integral de las víctimas respetando la dignidad de las personas procesadas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572986345087
+- https://x.com/licjesca?s=21
+- https://www.instagram.com/jesscuevash?igsh=em9mOXBkc3g1aDA1&utm_source=qr
+- https://www.tiktok.com/@jesscuevash?_t=ZM-8uwIYWubcyD&_r=1
+- https://www.linkedin.com/in/jessica-irais-cuevas-higuera-b5b7b9357
+
+
+## Cursos
+
+- Universidad de Girona, Curso de especialización, Bases del razonamiento Probatorio,Escuela Federal de Formación Judicial
+- Especialidad en Justicia para adolescentes y Defensa Penal
+- ,Universidad de  Mancha, Especialidad en Derecho Probatorio Penal
+- ,Instituto de Estudios Superiores en Derecho Penal, Maestría en Derecho Procesal Penal,Barra Nacional de Abogados, Maestría en Derecho Constitucional y Amparo
+- Mención honorifica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52675/11
+
+
+## Trayectoria Academica
+
+- Cuento con maestrías, especialidades, diplomados, cursos en el extranjero y en instituciones públicas del país
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a México para que todos tengamos una justicia con visión humanista, incluyente, cercana a la gente y accesible.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión parte de la convicción de que la justicia debe ser un instrumento de transformación social. La impartición de justicia no puede ser un ejercicio meramente técnico o formalista, sino que debe estar guiado por principios de equidad, inclusión y perspectiva de género. Como Jueza de Distrito, mi compromiso sería garantizar que cada persona reciba un trato justo, digno, respetuoso de su identidad y género.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es humanista, inclusiva y transformadora. Creo en una justicia cercana a las personas, que garantice la dignidad y los derechos fundamentales de todas y todos, sin distinciones. Como Jueza de Distrito, impulsaría resoluciones con perspectiva de género, interculturalidad y enfoque en grupos vulnerables. La justicia debe ser accesible, transparente y sensible a las realidades sociales, asegurando que víctimas y acusados sean escuchados con equidad y respeto.
+
+
+## Propuestas
+
+- Justicia con perspectiva de derechos humanos y enfoque diferenciado. Fortalecer la función jurisdiccional mediante la aplicación de criterios con perspectiva de género, interculturalidad y discapacidad. Esto garantizaría que las decisiones judiciales respondan a las realidades de los grupos en situación de vulnerabilidad, evitando estereotipos y asegurando que se respeten sus derechos fundamentales en cada etapa del proceso penal.
+- Acceso efectivo a la justicia y cercanía con la sociedad. Impulsar mecanismos que faciliten la comunicación entre el juzgado y la ciudadanía, como audiencias accesibles y programas de difusión sobre derechos y procedimientos judiciales. Esto fortalecería la confianza en la impartición de justicia y permitiría que las personas comprendan mejor el sistema, asegurando que no solo sea eficiente, sino también transparente e inclusivo. Capacitación especializada al personal en horarios flexibles.
+- Protección integral de las víctimas y respeto a la dignidad de las personas procesadas. Garantizar la participación activa de las víctimas en los procesos penales, evitando su revictimización y asegurando la reparación integral del daño. Al mismo tiempo, velar porque las personas privadas de la libertad reciban un trato digno y se respeten sus derechos humanos dentro del sistema penitenciario. Un enfoque equilibrado fortalecería la legitimidad del sistema de justicia y su función social.
+

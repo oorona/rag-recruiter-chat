@@ -1,0 +1,73 @@
+Nombre Candidato: ADRIAN GUADALUPE AGUIRRE HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3311945174
+Correo Electronico: candidato.adrian.aguirre@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Procesal Penal, Jornadas Iberoamericanas., Juicio de Amparo, Justicia Integral Adolescentes, Licenciatura Abogado, Poderes Judiciales, SCJN, STJ Jalisco, Sistema Interamericano Derechos Humanos, Sistema Penal Acusatorio Adversarial, UDG
+Tags Propósito: Acceso a la Justicia, Confianza Ciudadana., Democracia, Derechos Fundamentales, Eficiencia, Estado de Derecho, Función Jurisdiccional, Garantismo, Igualdad ante la Ley, Imparcialidad, Justicia para el Pueblo, Paz Social, Rendición de Cuentas, Sector Privilegiado, Transparencia
+
+
+## Descripción del Candidato 
+
+Adrian Guadalupe Aguirre Hernandez es candidato a Jueces/es de Distrito en Jalisco, postulado por el Poder Ejecutivo Federal. Licenciado en Derecho por el Centro Universitario de Monterrey (UDG) y con estudios de maestría en el Sistema Penal Acusatorio y Adversarial, cuenta con diplomados en Juicio de Amparo y Justicia Integral para Adolescentes, entre otros.
+
+Su motivación para buscar el cargo es participar en la impartición de justicia al pueblo, no a los privilegiados. Su visión se centra en una función jurisdiccional imparcial, con una justicia accesible para todos los mexicanos, independiente de su posición social. Propone una justicia penal eficiente y garantista, transparencia y rendición de cuentas en la función jurisdiccional, y mantener una oficina abierta a la ciudadanía para atender sus inquietudes.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/candidato_adrian_aguirre/
+- https://www.tiktok.com/@lic.adrian.gpe.aguirre.h
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo   Casa de la Cultura Jurídica de la SCJN,Diplomado de Justicia Integral para Adolescentes   Escuela Judicial del STJ Jalisco,Panel Internacional, Los Retos de los Poderes Judiciales en Iberoamérica
+- ,Jornadas Iberoamericanas de Derecho Procesal Penal, en el marco del 200 aniversario Poder Judicial del Estado de Jalisco,Conferencia: La victima en el Sistema Interamericano de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52214/11
+
+
+## Trayectoria Academica
+
+- Licenciatura Abogado, Centro Universitario de Monterrey (UDG), Maestrante en el Sistema Penal Acusatorio y Adversarial
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte de los primero jueces en la historia de México que imparten justicia al Pueblo y NO a los Privilegiados
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar esencial del Estado de derecho, cuyo propósito es garantizar la correcta aplicación de la ley, el respeto a los derechos fundamentales y la impartición de justicia de manera imparcial, pronta y expedita, sin importar si eres amigo del Juzgador o si eres del sector privilegiado como se ha llevado a cabo el funcionamiento del poder judicial los últimos años, todas y todos nos merecemos juezas y jueces que vean por las necesidades del pueblo Mexicano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es la base del Estado de derecho y un pilar fundamental para la paz social, la protección de los derechos humanos y la consolidación de la democracia. Desde mi perspectiva, la impartición de justicia tiene que ser igual para todo el pueblo de México, basta de jueces y juezas que solo imparten justicia para el sector más privilegiado de México, todos merecen que se les respeten sus derechos sin importar quien sea la persona que necesita la justicia.
+
+
+## Propuestas
+
+- Justicia penal eficiente y garantista, esto es, agilizar las resoluciones de los asuntos sin comprometer la calidad ni el respeto a los derechos fundamentales del Pueblo de México.
+- Transparencia y rendición de cuentas en la función jurisdiccional, es decir, fomentar la confianza en la impartición de justicia a través de un actuar transparente y accesible para la sociedad.
+- Puertas abiertas para el pueblo en general de mi oficina, para escuchar sus inquietudes, dudas y preocupaciones, para que no haya incertidumbre respecto a sus asuntos.
+

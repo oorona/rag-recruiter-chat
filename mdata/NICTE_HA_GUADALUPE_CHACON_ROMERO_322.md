@@ -1,0 +1,76 @@
+Nombre Candidato: NICTE-HA GUADALUPE CHACON ROMERO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CAMPECHE
+Sexo: MUJER
+Telefono: 9992004192
+Correo Electronico: nicteha.chacon.romero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Administración Pública, Derecho Laboral, Derecho Procesal Civil, Docente, Licenciatura., Mediación, Niñas, Niños y Adolescentes, Psicología, Sistema Integral de Justicia Penal, Suprema Corte de Justicia de la Nación, Universidad del Sur
+Tags Propósito: Capacitación Jurisdiccional, Confianza Ciudadana, Derechos Humanos, Desempeño Judicial, Digitalización, Dignidad Humana, Diálogo Ciudadano, Eficiencia, Equidad, Estado de Derecho, Imparcialidad, Justicia Accesible, Justicia Humanitaria, Modernización Judicial, Participación Ciudadana, Paz Social, Percepción de la Justicia., Perspectiva de Género, Transparencia
+
+
+## Descripción del Candidato 
+
+NICTE-HA GUADALUPE CHACON ROMERO es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal para el estado de Campeche. Cuenta con Maestría en Derecho Procesal Civil y se desempeña como Abogada y Docente. Su trayectoria incluye especializaciones en Sistema Integral de Justicia Penal para Niñas, Niños y Adolescentes, Nuevo Derecho Laboral, y Administración Pública, así como la certificación como Mediadora.
+
+La candidata motiva su postulación a contribuir con soluciones humanitarias y mejorar la impartición de justicia, enfocándose en una función jurisdiccional que garantice la dignidad humana y el respeto a los derechos. Sus propuestas incluyen la digitalización de trámites, el fortalecimiento de la capacitación en derechos humanos del personal jurisdiccional y la creación de espacios de diálogo con la sociedad civil para mejorar la percepción de la justicia en México.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/niki.chaconromero
+- https://www.instagram.com/nictechaconromero?igsh=b3d0cnRrbWZ5amRn
+- https://www.tiktok.com/@nictehachacon1
+- https://mx.linkedin.com/in/nicte-ha-guadalupe-chacon-romero-
+
+
+## Cursos
+
+- Especialidad en el Sistema Integral de Justicia Penal, para Niñas, Niños y Adolescentes
+- ,Mediadora Certificada,Especialización en el Nuevo Derecho Laboral por la Suprema Corte de Justicia de la Nación
+- ,Especialización en Administración Pública para Latinoamérica,Maestra en Derecho Procesal Civil, por la Universidad del Sur
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52803/10
+
+
+## Trayectoria Academica
+
+- Abogada y Docente; Maestra en Derecho Procesal Civil, Mediadora Certificada, y Cursando la Licenciatura en Psicología
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi preparación en derechos humanos, contribuirá a generar soluciones humanitarias y mejorar la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar fundamental del Estado de Derecho que consiste en impartir justicia de manera imparcial, eficiente y transparente, con un enfoque humanitario que reconozca la dignidad de todas las personas garantizando el respeto a los derechos humanos y la aplicación equitativa de la ley. A través de las resoluciones justas y accesibles busco fortalecer la confianza de la ciudadanía, promover su participación y contribuir a la construcción de la paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una impartición de justicia humanista y cercana al pueblo de México, que responda con asertividad a las demandas sociales, que esté comprometida con la modernización y mejora continua de los procesos jurisdiccionales y que no solo se limite a la aplicación rígida de la norma, sino que también considere el contexto de cada caso garantizando siempre resoluciones justas, accesibles y con un impacto positivo.
+
+
+## Propuestas
+
+- Incentivar el cambio cultural hacia un entorno más digitalizado, para agilizar trámites, reducir la carga administrativa y mejorar la accesibilidad a la justicia, garantizando procesos más eficientes y transparentes.
+- Fortalecer la capacitación continua del personal jurisdiccional en derechos humanos, perspectiva de género y nuevas normativas, asegurando decisiones más justas y actualizadas.
+- Crear espacios de diálogo con el pueblo mexicano, la academia y organizaciones civiles, para evaluar constantemente el desempeño judicial y mejorar la percepción de la justicia en México.
+

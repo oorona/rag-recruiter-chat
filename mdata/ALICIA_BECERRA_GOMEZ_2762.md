@@ -1,0 +1,76 @@
+Nombre Candidato: ALICIA BECERRA GOMEZ
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: abecerrag@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Control de Convencionalidad, Derecho Procesal Constitucional, Derechos Humanos, Doctorado en Derecho, Gobierno Abierto, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, OEA, Poder Judicial de la Federación, Suprema Corte de Justicia, Universidad La Salle.
+Tags Propósito: acceso a la justicia, acoso laboral, adultos mayores, calidez humana., corrupción, democracia, derechos humanos, derechos laborales, discapacidad, grupos vulnerables, igualdad, infancias, justicia, lenguaje claro, migración, optimización de recursos humanos, perspectiva de género, poder judicial, pueblos indígenas, respeto, sensibilidad social, servicio público, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Alicia Becerra Gomez es candidata a Jueza/es de Distrito en Michoacán, postulándose a través del Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con estudios concluidos de Doctorado y una trayectoria académica en Derecho, incluyendo especialización en Procesal Constitucional.
+
+Su motivación para buscar el cargo se centra en la resolución de conflictos, especialmente en favor de los sectores más vulnerables.  En su visión, la función jurisdiccional debe democratizarse para eliminar la corrupción y el nepotismo, permitiendo la elección de perfiles competentes y promoviendo una justicia cercana a la gente. Sus propuestas principales incluyen garantizar la igualdad en el acceso a la justicia con protocolos especializados para grupos vulnerables, ofrecer un servicio judicial cercano y cordial, y asegurar el respeto a los derechos de los trabajadores de la institución.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alicia.becerragomez
+- https://x.com/AliciaBecerraGm
+- https://www.instagram.com/becerragomezalicia/
+- https://www.tiktok.com/@alicia.becerra.gm
+- https://mx.linkedin.com/in/alicia-becerra-gomez-003747248?trk=people-guest_people_search-card
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, impartido por las Casas de la Cultura Jurídica de la Suprema Corte de Justicia,Curso básico para la formación y preparación de secretarios del Poder Judicial de la Federación Estudios de Especialidad,Diplomado en Humanidades por la Universidad La Salle, Campus Morelia,Curso Derechos Humanos y Control de Convencionalidad, impartido por la Suprema Corte de Justicia de la Nación,Curso ¿Estrategias para el Gobierno Abierto en las Américas¿ de la Organización de los Estados Americanos (OEA)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52437/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestra en Derecho con opción en procesal constitucional, Candidata a Doctora en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Al ser Jueza de Distrito podré resolver los conflictos de las personas, en especial los de los sectores más vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe mejorar la función jurisdiccional, al abatir la corrupción y el nepotismo que impera al democratizar el poder judicial en favor del pueblo de México, quien podrá elegir los mejores perfiles, a partir de la revisión del quehacer público, con ello se reduce el autoritarismo y se eliminan las barreras que impedían a las personas acercarse a sus juzgadores para hacerles saber el clamor y la exigencia social por la impartición de una justicia cercana a la gente sin desigualdades.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser cercana a la gente, por lo que las personas juzgadoras deben ser sensibles a las causas sociales y necesidades del pueblo de México, e impartir justicia aplicando las distintas perspectivas de derechos humanos como lo son género, infancias, adultos mayores, migrantes, derechos de pueblos y comunidades indígenas, discapacidad, entre otros, las cuales son clave para reducir las desigualdades sociales garantizando los derechos humanos de todas las personas.
+
+
+## Propuestas
+
+- Justicia para todas las personas en igualdad de condiciones. Mediante la aplicación de los distintos protocolos de actuación especializados, dirigidos a la atención de grupos vulnerables y prioritarios, ordenando la participación de asesores y representantes especiales de ser necesarios para equilibrar las desigualdades en las que puedan encontrarse las personas a fin de que accedan a la justicia sin barrera alguna logrando con ello el respeto a sus derechos humanos.
+- Servicio con calidez y cercano a la gente. Se propone mantener un Juzgado cercano a la gente, en donde se reduzcan las barreras de acceso a la justicia empezando por proporcional un trato cordial y respetuoso a las personas, en donde no habrá más puertas cerradas ni barreras que limiten el acceso de quienes aspiran a recibir justicia, se escuchará a todas las partes sin distinción y, se emplearán los ajustes necesarios para dar a conocer a los ciudadanos en lenguaje llano las resoluciones.
+- Respeto a los derechos de las personas trabajadoras de la institución. A través de la optimización de los recursos humanos, cambiando metodologías de trabajo y formas de comunicación con las y los compañeros trabajadores, respetando en todo momento sus derechos a un trato digno y respeto a sus derechos laborales, reconociendo en ellos su participación como eje central en la impartición de justicia, por lo que merecen ser tratados en forma adecuada, sin hostigamiento ni acoso laboral.
+

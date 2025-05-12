@@ -1,0 +1,76 @@
+Nombre Candidato: MARIO MOISES SILVA ISLAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5534447876
+Correo Electronico: soy.moises.silva.is@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Arbitraje Internacional, Argumentación Jurídica, Derecho Tributario, Derechos Humanos, Extinción de Dominio, Impartición de Justicia., Licenciatura en Derecho, Poder Judicial de la Federación, UNAM
+Tags Propósito: Acceso a la justicia, Autonomía judicial, Base trabajadora, Compromiso social, Conciencia moral, Defensa pública, Derechos humanos, Derechos laborales, Eficiencia judicial, Grupos marginados, Independencia judicial, Justicia laboral., Justicia social, Maximización de derechos, Profesionalismo, Protección a los vulnerables, Publicidad funcional, Trabajo a distancia, Transparencia judicial, Vocación
+
+
+## Descripción del Candidato 
+
+Mario Moises Silva Islas es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Ejecutivo Federal y el Poder Legislativo Federal. Cuenta con Maestría en derechos humanos e impartición de justicia, además de diversos cursos en derecho tributario, argumentación jurídica y extinción de dominio.
+
+Su candidatura se basa en una visión de la función jurisdiccional centrada en el enfoque social, la conciencia moral y la maximización de los derechos humanos, especialmente para grupos marginados. Sus propuestas clave incluyen la implementación de una justicia con enfoque social y conciencia moral, la publicidad de resoluciones y herramientas jurídicas a través de medios digitales, y el respeto absoluto de los derechos laborales de los trabajadores del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/soymoisessilva/
+- https://www.instagram.com/soymoisessilva/
+- https://www.tiktok.com/@soymoisessilva
+
+
+## Cursos
+
+- DIPLOMADO EN DERECHO TRIBUTARIO
+- IJF,DIPLOMADO EN ARGUMENTACIÓN JURIDICA,SEMINARIO DE DAÑOS EN ARBITRAJE INTERNACIONAL,CURSO BÁSICO DE FORMACION Y PREPARACIÓN DE SECRETARIO DEL PODER JUDICIAL DE LA FEDERACIÓN,SEMINARIO EN EXTINCIÓN DE DOMINIO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55334/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho en la Faculta de Derecho de la UNAM (CU)
+- Maestría en derechos humanos, impartición de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Siempre he tomado decisiones judiciales poniéndome en el lugar de las personas, con un enfoque social y compromiso moral
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Impartir justicia es una cosa muy seria, se necesita, en principio, vocación y compromiso social, después, preparación, conocimiento y sentido jurídico, luego, objetividad y valentía para darle la razón a quien la tiene, pero sobre todo, conciencia moral, porque de la decisión de un juzgador depende la vida de una persona, su libertad, su patrimonio, en suma, la felicidad de una familia y con ello la armonía social. Las personas juzgadoras siempre deben ponerse en el lugar de la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe tener un enfoque social, que tenga como propósito orientar el sistema jurídico hacia una protección reforzada de los derechos humanos para aquéllos menos favorecidos cultural, social y económicamente. Vocación y profesionalismo, orientados bajo un principio de compromiso social forja las bases para un sistema de impartición de justicia más eficiente, que conserva la autonomía e independencia en la toma de decisiones y maximiza los derechos de la gente.
+
+
+## Propuestas
+
+- JUSTICIA CON ENFOQUE SOCIAL Y CONCIENCIA MORAL. La toma de decisiones siempre estará orientada sobre las bases de justicia social mediante la maximización de los derechos de las personas, sobre todo, los de aquellos grupos sociales que a lo largo de la historia han sido marginados, para ello, la decisión debe emitirse con conciencia moral, respetando el sentir de las personas porque de las decisiones judiciales depende su vida, su libertad, su salud, su patrimonio, en suma su felicidad.
+- PUBLICIDAD FUNCIONAL Y MATERIAL DE JUSTICIA. Los juzgadores deben dar a conocer la existencia de resoluciones que benefician a la sociedad, así como la existencia de las herramientas jurídicas que pueden utilizar para exigir sus derechos, también dar publicidad a las defensorías públicas que pueden ayudarlos de forma gratuita en la defensa de sus derechos. Para ello, las redes sociales que se tienen como candidatos, serán las mismas en las que se dará publicidad a tus derechos.
+- RESPETO ABSOLUTO DE LOS DERECHOS LABORALES DE LA BASE TRABAJADORA. El buen juez por su casa empieza, no pueden existir personas juzgadoras que desconoce los derechos laborales de las personas que colaboran con ellos, deben eliminarse las prácticas paralegales que existen para desconocer los derechos laborales y generar las condiciones necesarias para que, sin afectar la impartición de justicia pronta, se de preferencia al trabajo a distancia y en línea.
+

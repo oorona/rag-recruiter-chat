@@ -1,0 +1,81 @@
+Nombre Candidato: JOSE ANGEL BUSTAMANTE ARVIZU
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6469475090
+Correo Electronico: joseangelbustamantearvizu@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, CJF., Derecho, Derecho Constitucional, Derechos Humanos, Diploma, Doctorado, Especialidad, Italia, Licenciatura, Maestría, Poder Judicial de la Federación, Promedio Alto, Universidad Autónoma de Baja California, Universidad Xochicalco, Universidad de Perugia
+Tags Propósito: Analítico, Celeridad, Eficiencia, Empatía, Enfoque social, Estado de derecho., Experiencia legal, Impacto positivo, Independencia judicial, Justicia accesible, Lesividad, Objetividad, Paz social, Razonamiento jurídico, Realidad social, Reforma judicial, Reparación del daño, Seguridad jurídica, Sentencias, Servicio público, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Angel Bustamante Arvizu es candidato a Juez/a de Distrito en Baja California, postulado por el Poder Ejecutivo Federal. Cuenta con un alto nivel de escolaridad, incluyendo un Doctorado en Derecho, y una extensa trayectoria académica con estudios en la Universidad Autónoma de Baja California, la Universidad Xochicalco y la Universidad de Perugia, Italia.
+
+Su motivación para buscar el cargo se basa en su experiencia como abogado, funcionario de gobierno y en la judicatura. Su visión para la función jurisdiccional se centra en un órgano de justicia abierto, transparente y accesible, mientras que para la impartición de justicia la considera una herramienta clave para la paz social. Sus propuestas principales incluyen una justicia empática, independiente y con sentencias que generen un impacto positivo en la sociedad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.google.es/.
+
+
+## Redes Sociales
+
+- https://www.facebook.com/josebustamantearvizu
+- https://www.instagram.com/josebustamantearvizu/
+- https://www.tiktok.com/@josebustamantearvizu
+
+
+## Cursos
+
+- Licenciatura en derecho, Universidad Autónoma de Baja California, promedio: 9
+- 52, con cédula profesional federal
+- ,Maestría en derecho Constitucional y Amparo, Universidad Xochicalco, promedio: 9
+- 56, con cédula profesional federal
+- ,Especialidad como secretario del Poder Judicial de la Federación, promedio: 9
+- 1, con cédula profesional federal
+- ,Doctorando en derecho, Universidad Xochicalco, promedio: 9
+- 95
+- ,Diplomado, desafíos de la protección multinivel de los Derechos Humanos, Universidad de Perugia, Italia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52587/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, Especialidad por el CJF, Maestro en derecho Constitucional y Amparo, Doctorando en derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy la persona que ideó la reforma, cuento con experiencia de abogado, funcionario de gobierno y en la judicatura.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Visualizo un órgano de justicia abierto, transparente, accesible al servicio de las personas, operado con eficiencia y objetividad a cargo de un juzgador presente, empático, analítico, actualizado y conocedor de la realidad social global, nacional y local, con personal servicial y atento, a la vez de eficiente. Ser concreto y claro en la emisión de las resoluciones y determinaciones jurisdiccionales, contar con el diálogo abierto hacia las partes, con firmes convicciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es la herramienta empleada para contar y conservar la paz social, es la mejor alternativa que tienen las personas ante el uso de la fuerza y sin razón, si una diferencia no se soluciona mediante acuerdo, las personas tienen la opción de acudir ante los órganos de administración de justicia y éstos deben estar prestos para atender las demandas y resolverlas con la mayor celeridad y menor lesividad posible. Son la garantía de la seguridad y paz del Estado Mexicano.
+
+
+## Propuestas
+
+- Que la justicia sea empática, todos los asuntos deben ser analizados buscando identificar el sentir de las partes.
+- Que la justicia sea aplicada con independencia interna y externa del juzgador. Es decir, se analicen los hechos, pruebas y argumentos a la luz de las normas y su interpretación desde un enfoque social, prescindiendo de los dogmas internos y las presiones externas. Los jueces, deben ser consientes que al resolver afectarán el interés de una o todas las partes, al hacerlo deben ser lo menos lesivos posibles, satisfaciendo y reparando el derecho violado en su justa dimensión.
+- Las sentencias deben tener impacto positivo en la sociedad, las personas y las instituciones. Al razonarse un fallo y sus efectos han de sopesarse los alcances que pueden tener, razón por la que antes de emitirse se han de analizar los alcances que tendrán en pro y contra las personas, por lo mismo tratar de visualizarlos desde los mayores enfoques posibles, para procurar ese impacto positivo.
+

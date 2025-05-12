@@ -1,0 +1,74 @@
+Nombre Candidato: CARLOS ALBERTO ESTRADA FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8441066668
+Correo Electronico: estradacarlosalberto@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Información Pública, Coahuila., Derecho, Derecho Parlamentario, Derecho Penal, Derechos Humanos, Diplomado, Doctorado, Filosofía Institucional, Gobierno, Juicios Orales, Jurisprudencia Constitucional, Legislación Penal, Licenciatura, Maestría, Política, Protección de Datos Personales
+Tags Propósito: controversias judiciales, credibilidad, derecho, derechos humanos, dignidad, equidad, género, justicia, justicia cercana, justicia restaurativa, legitimidad, mediación, modernización, moral, rapidez, reparación del daño, reputación, rezago judicial, servidores públicos, tiempos cortos., víctimas
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Estrada Flores es candidato a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Derecho Penal y una amplia formación académica que incluye licenciaturas en Derecho, especializaciones en Derecho Constitucional y Maestría en Derechos Humanos, además de diversos diplomados en áreas como Derecho Parlamentario, Acceso a la Información Pública y Juicios Orales.
+
+Su motivación para buscar el cargo se basa en la necesidad de cambios urgentes en la impartición de justicia, proponiendo una reestructuración del sistema. Su visión se centra en una justicia cercana a la gente, con credibilidad, legitimidad y modernización de procesos. Sus propuestas principales incluyen abatir el rezago en la resolución de asuntos, impulsar modelos de justicia cercana y resolver las controversias judiciales con mayor rapidez, priorizando la dignidad de los involucrados y la perspectiva de derechos humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- DIPLOMADO en Derecho Parlamentario, Gobierno y Política, impartido por el Instituto de Altos Estudios Internacionales,DIPLOMADO en Acceso a la Información Pública y Protección de Datos Personales
+- ,DIPLOMADO en Juicios Orales realizado en la Universidad Iberoamericana con sede en Coahuila
+- ,DIPLOMADO de Filosofía Institucional impartido por el H
+- Tribunal Superior de Justicia y el Consejo de la Judicatura,DIPLOMADO en ¿Nueva Legislación Penal de Coahuila¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53209/10
+
+
+## Trayectoria Academica
+
+- Lic en Derecho; Especialista en Just Const; Mtro en Der Constitucional; Mtro en Derechos Humanos; Dr en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+La impartición de justicia requiere de cambios urgentes. Es el momento de reestructurar la manera de hacer justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una justica cercana a la gente que tenga credibilidad y legitimidad, para lo cual se requiere no solo de servidores públicos capacitados, que cuenten con vastos conocimientos en diversas áreas del derecho y sean expertos en la materia que imparten, sino que cuenten con solvencia moral y buena reputación. Para poder lograr que la impartición de justicia sea más más rápida y más equitativa, hay que apostar por la modernización de los procesos, buscar la mediación y la justicia restaurativa
+
+
+## Vision sobre la Imparticion de Justicia
+
+Nuestro país necesita un sistema de impartición de justicia que responda a las necesidades de las y los mexicanos, que sea confiable, capaz de resolver de forma expedita los procedimientos , en donde se garanticen resoluciones apegadas a derecho y a los principios constitucionales; resoluciones con perspectiva de derechos humanos y de género; donde se privilegien los derechos de las víctimas y ofendidos y la reparación del daño sea una realidad.
+
+
+## Propuestas
+
+- Abatir el gran rezago que existe en la resolución de asuntos que conocen los Tribunales.
+- Impulsar modelos de justicia cercana a la gente. La ciudadanía que se ve involucrada en un proceso judicial merece ser tratada con dignidad por los funcionarios judiciales.
+- Resolver con mayor rapidez las controversias judiciales de las cuales conocen los Tribunales. La ciudadanía exige que los procedimientos se resuelvan en tiempos más cortos.
+

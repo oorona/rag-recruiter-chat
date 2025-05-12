@@ -1,0 +1,80 @@
+Nombre Candidato: LAURA TETETLA ROMAN
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5562125407
+Correo Electronico: hola.lauratetetla@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Electoral, Diplomado, Especialización Judicial, Facultad de Derecho DEP, Género, Juicio de Amparo, Licenciatura., Maestría, Políticas Públicas, TEPJF, UNAM, Universidad Tecnológica de México
+Tags Propósito: Acceso a la justicia, Análisis, Calidad, Coordinación, Derechos humanos, Digitalización, Diálogo, Eficiencia, Empatía, Experiencia, Género, Honestidad, Inclusión, Independencia, Instituciones, Justicia, Lenguaje claro, Mejora continua., Recursos, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Laura Tetetla Román es candidata a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con más de 20 años de experiencia en el ámbito jurídico y posee estudios de Maestría en Derecho. Su trayectoria académica incluye la Licenciatura en Derecho por la Universidad Tecnológica de México y la Maestría por la Facultad de Derecho de la UNAM, complementada por diversos diplomados y cursos de especialización judicial, incluyendo temas de derecho electoral, juicio de amparo y políticas públicas con perspectiva de género.
+
+Su motivación para el cargo se basa en su experiencia para analizar casos de forma integral y mejorar la justicia.  Propone fortalecer las herramientas tecnológicas del Tribunal Electoral para mejorar el acceso a la justicia digital, realizar análisis de calidad en las controversias con perspectiva de género y protección de derechos humanos, y fomentar el diálogo y la coordinación con diversos sectores para mejorar el funcionamiento del órgano jurisdiccional. Busca lograr un órgano jurisdiccional que inspire confianza en la ciudadanía y garantice la calidad, honestidad y empatía en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Laura Tetetla Román
+- https://www.x.com/lauratetetlamx
+- https://www.instagram.com/Lauratetetlamx
+- https://www.tiktok.com/lauratetetlamx
+
+
+## Cursos
+
+- Curso de Especialización Judicial impartido por el Instituto de la Judicatura Federal, correspondiente al año de 1996
+- ,Diplomado en Políticas Públicas y Género
+- Impartido por la Facultad Latinoamericana de Ciencias Sociales (FLACSO), 2018
+- ,Diplomado en Derecho Electoral, organizado por la entonces Sala Regional Distrito Federal del TEPJF, año 2011
+- ,Diplomado en Derecho Electoral, organizado por la entonces Sala Regional Distrito Federal, del TEPJF, año 1999
+- ,Diplomado en Juicio de Amparo organizado por el TEPJF, modalidad virtual, año 2013
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/18406/9
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad Tecnológica de México
+- Maestra en Derecho, Facultad de Derecho DEP, de la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Por la experiencia que tengo de más de 20 años, se analizar casos de forma integral, lo que abona a mejorar la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr un órgano jurisdiccional en que la ciudadanía (y demás justiciables) tenga la certeza en que el personal que ahí colabora tiene los conocimientos y experiencia para proponer la solución de las controversias que plantean. Que la ciudadanía confíe en que el funcionariado desarrolla sus tareas siempre con calidad, honestidad, empatía y vocación de servicio porque, finalmente, la función jurisdiccional es por y para la convivencia sana y armónica de las personas que integran la comunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El acceso a la impartición de justicia debe ser fácil, sencillo, sin demasiada formalidad; el avance en la parte digital es esencial para fortalecerla. La impartición de justicia debe regirse con enfoque de derechos humanos, transparencia, independencia, incluyente y empática; debe privilegiarse la calidad antes que la rapidez. Sentencias y resoluciones emitidas con un lenguaje sencillo y no extenso, para facilitar su comprensión a las partes involucradas en el asunto y a la ciudadanía en gral.
+
+
+## Propuestas
+
+- Fortalecer las herramientas tecnológicas con las que cuenta el Tribunal Electoral para mejorar el acceso a la justicia digital. Con ello se ahorraría tiempo en la promoción y resolución de los medios de impugnación en la materia y además ahorro en el trabajo del personal y recursos materiales. Esto abonaría también al uso racional y eficiente de los recursos materiales y financieros.
+- Análisis y estudio de calidad en las controversias que se sometan a consideración del órgano jurisdiccional, y en aquellas que por turno me corresponda ser ponente, utilizando herramientas como la perspectiva de género o algún protocolo que aplique al caso en estudio; propuestas de resolución con enfoque principal en protección de derechos humanos a la luz de la ley, la constitución y tratados internacionales aplicables, con especial cuidado en sectores vulnerables y especiales de la población.
+- Fortalecer el diálogo, comunicación y coordinación con diversos sectores de la población, ciudadanía en general y demás instituciones (públicas y privadas) para compartir y escuchar sugerencias en el desempeño del servicio público, que permita implementar buenas prácticas para mejorar el funcionamiento del órgano jurisdiccional, no solo en el campo administrativo sino también en su función esencial que es, precisamente, la impartición de justicia.
+

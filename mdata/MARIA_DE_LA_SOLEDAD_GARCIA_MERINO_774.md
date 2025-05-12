@@ -1,0 +1,73 @@
+Nombre Candidato: MARIA DE LA SOLEDAD GARCIA MERINO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5540551245
+Correo Electronico: gamesol13@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Intelectual, Educación, Maestría Fiscal, Trayectoria Académica., Universidad Panaméricana
+Tags Propósito: acceso a la justicia, criterios orientadores, derechos, gobernados, igualdad, imparcialidad, justicia, justicia ciudadana., lenguaje claro, plazos, reforma constitucional, seguridad jurídica, sistematización de sentencias, transparencia, tutela judicial
+
+
+## Descripción del Candidato 
+
+MARIA DE LA SOLEDAD GARCIA MERINO es candidata al Poder Ejecutivo Federal, postulándose desde CIUDAD DE MEXICO para Magistratura de Tribunales Colegiados de Circuito. Cuenta con licenciatura en Derecho y actualmente cursa el cuarto semestre de la Maestría en materia Fiscal en la Universidad Panamericana, complementada con una Especialidad en Derecho Intelectual. Su motivación para buscar el cargo público es contribuir a aliviar las injusticias e desigualdades en el sistema judicial.
+
+Su visión de la función jurisdiccional se centra en garantizar la seguridad jurídica, priorizando la protección de los derechos de los ciudadanos. Sus propuestas incluyen la simplificación del lenguaje en las sentencias para facilitar su comprensión, la reforma al artículo 17 Constitucional para garantizar la tutela jurisdiccional en todas las materias y la sistematización de sentencias relevantes para servir como criterio orientador. Información adicional disponible en su currículum vitae: [https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53273/10](https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53273/10) y perfiles en redes sociales (Facebook, Instagram, TikTok).
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1L9e5sFz1S/
+- https://www.instagram.com/soledadgarciamerino/#
+- https://www.tiktok.com/@soledadgarciamerino
+
+
+## Cursos
+
+- Especialidad en Derecho Intelectual
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53273/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Cuarto Semestre de la Maestría en materia Fiscal en la Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Siendo Magistrada puedo ayudar a aliviar las injusticias y desigualdades que imperan en nuestro sistema judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La Función Jurisdiccional debe tener por objetivo final ser garante de la seguridad jurídica de los gobernados, sin embargo, en mi percepción, en la práctica existen injusticias, desigualdades e inequidades, en ese sentido la función jurisdiccional se tiene que orientar a salvaguardar los derechos de las personas que la demandan, por quienes imparten justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar que a los gobernados les sea respetada la Ley en sus dos aspectos, tanto de como regula la Ley los diferentes actos o actividades que inciden con los gobernados, como la ejecución que de la misma se realiza. Una la que proviene de los actos o actividades en que se colocan las personas y por otro lado las que aplican las responsables (autoridades) de llevarla a cabo.
+
+
+## Propuestas
+
+- Ciudadanizar el lenguaje que utiliza el impartidor de justicia al momento de emitir sus sentencias. Que sean sentencias claras con un lenguaje común alejado en lo posible de tecnicismos jurídicos difíciles de comprensión para el ciudadano de a pie. Es decir, al final de cada resolución se haga una nota sencilla y en lenguaje ciudadano de los efectos de la sentencia.
+- Reforma al artículo 17 Constitucional, la justicia debe ser para cualquier caso sin ser selectiva por materia, como principio garante para la impartición de justicia, es decir, todas las materias deberían tener la tutela para el cumplimiento de los plazos en favor de los justiciables (gobernados).
+- Sistematización de Sentencias en temas relevantes, es decir, quien ya haya emitido una sentencia en un tema relevante, sistematice la misma, para que los demás juzgadores la puedan utilizar como criterio orientador.
+

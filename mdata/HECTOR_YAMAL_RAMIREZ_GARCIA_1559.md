@@ -1,0 +1,72 @@
+Nombre Candidato: HECTOR YAMAL RAMIREZ GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: 4443385108
+Correo Electronico: hyamalredesociales@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: SCJN, UASLP, Universidad Panamericana, derecho, derechos humanos, discapacidad, formación judicial, igualdad de género, justicia laboral, licenciatura, maestría, titulación., violencia, ética judicial
+Tags Propósito: Acceso a la justicia, Amparo, Calidez, Capacitación, Conflictos laborales, Diálogo interinstitucional, Eficiencia, Estado de derecho, Humanidad, Imparcialidad, Independencia judicial, Injusticia, Juez, Justicia, Justiciables, Servir, Tecnología, Transparencia.
+
+
+## Descripción del Candidato 
+
+HÉCTOR YAMAL RAMIREZ GARCIA es candidato a Magistrado de Tribunales Colegiados de Circuito en San Luis Potosí, postulándose desde el Poder Judicial de la Federación. Cuenta con Maestría en Ciencias Jurídicas (en proceso de titulación) y una trayectoria académica en la UASLP.  Su motivación para el cargo público se centra en su preparación académica y profesional para servir como juez.
+
+En su visión, la justicia debe ser accesible a todos los ciudadanos, y prioriza la resolución de conflictos laborales de manera eficiente y el uso de la tecnología sin perder el enfoque humano. Propone facilitar el acceso a las leyes y fomentar el diálogo interinstitucional, con el objetivo de contribuir a la construcción de un Estado sólido. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/hector_yamalrg
+- https://www.tiktok.com/@hector_yamal
+
+
+## Cursos
+
+- Jornadas de sensibilización sobre la reforma en materia de justicia laboral de la Escuela Federal de Formación Judicial,Diplomado en Ética Judicial por la Suprema Corte de Justicia de la Nación,Curso de actualización intensiva módulo ¿Derechos de las personas con discapacidad¿ de la SCJN,Curso para generar espacios libres de violencia de la Escuela Federal de Formación Judicial,Curso género como herramienta para la igualdad de la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54432/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho UASLP/Maestría en Ciencias Jurídicas por la Universidad Panamericana (pendiente titulación)
+
+
+## Motivo para buscar el Cargo Publico
+
+Nací para servir. Me he preparado académica y profesionalmente con mucha pasión, para reunir las cualidades de buen juez
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Aunque el Poder Judicial Federal está repleto de nobles historias que han cambiado la vida de los justiciables, no menos cierto es que esa cantidad de casos representan un número ínfimo, en una sociedad de más de ciento treinta millones de seres humanos, donde la mayoría de ellos han sufrido de injusticias, no solo por parte de autoridades, sino también de forma directa por otras personas sin imperio legal. Por tanto, la justicia debe llegar a todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+He desarrollado a lo largo de toda mi vida ese sentido humano que se necesita para juzgar, pensando en los asuntos no solo como un número, sino comprendiendo que detrás de cada expediente existe una persona esperando a que se le otorgue lo que en derecho le corresponde, por un juez independiente e imparcial, como estoy seguro yo lo sería.
+
+
+## Propuestas
+
+- Los abogados y juzgadores debemos facilitar las leyes para las personas, con claridad y sin fórmulas rígidas, por lo que es necesario implementar una apertura total de los servidores del Poder Judicial de la Federación, para atender a los justiciables de forma directa, con amabilidad y calidez.
+- El trabajo es uno de los mayores valores del ser humano, por lo que los conflictos laborales y los juicios de amparo deben ser resueltos de forma sencilla y rápida, para lo cual habré de priorizar la capacitación y eficiencia en el tribunal, aunado al uso de la tecnología, sin dejar de lado el sentido humano que requiere la tarea de juzgar.
+- Gestionaré el diálogo interinstitucional, con inteligencia, capacidad, voluntad, vocación y unidad, a fin de abonar a la construcción de un auténtico Estado, sin filias ni fobias.
+

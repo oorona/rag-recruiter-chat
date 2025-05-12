@@ -1,0 +1,73 @@
+Nombre Candidato: ALEJANDRO PEREA RAMIREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7223940249
+Correo Electronico: alexperea241177@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Elaboración de Sentencias, Función Jurisdiccional, Género y Justicia, Licenciatura, Poder Judicial de la Federación, Reforma Laboral, UNAM
+Tags Propósito: Autonomía, Capacitación continua, Carga de trabajo, Derecho, Evaluación periódica, Imparcialidad, Independencia, Instrumentos internacionales, Justicia expedita., Justicia pronta, Meritocracia, PJF, Personal calificado, Profesionalismo, Resolución de conflictos, Servicio público, Sistema jurídico mexicano, Órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Alejandro Perea Ramirez es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal. Cuenta con licenciatura de la Universidad Nacional Autónoma de México y cédula profesional. Ha participado en diversos cursos de formación en materia jurisdiccional, laboral y argumentación jurídica, incluyendo temas de género y actualización en reformas legales.
+
+Su motivación para buscar el cargo es contribuir con la excelencia del Poder Judicial de la Federación y servir a su país.  En cuanto a su visión, destaca la importancia de una función jurisdiccional ejercida por profesionales altamente capacitados en derecho nacional e internacional, y una impartición de justicia autónoma, independiente, imparcial y profesional. Sus propuestas principales incluyen la selección de personal por mérito, la capacitación continua obligatoria para jueces mediante exámenes periódicos y la creación de nuevos órganos jurisdiccionales para optimizar la carga de trabajo y agilizar la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/alejandro.perea.718
+- https://www.instagram.com/alejandroperea710?igsh=MTlpdmN3NnNlZW9xYQ==
+- https://www.tiktok.com/alejandro.perea17
+
+
+## Cursos
+
+- Introducción a la Función Jurisdiccional y Seminario el Género en la Impartición de Justicia,,Actualización Sobre la Reforma en Materia de Justicia Laboral,Argumentación Jurídica, Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Jornadas de Introducción a la Reforma Laboral,Cómo Elaborar Mejores Sentencias
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54680/10
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN LA UNIVERSIDAD NACIONAL AUTONOMA DE MÉXICO,
+
+
+## Motivo para buscar el Cargo Publico
+
+SER PARTE DE LA EXCELENCIA DE LOS SERVIDORES PÚBLICOS DEL P.J.F. Y CONTINUAR SIRVIENDO A MI PAÍS
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+LA RESOLUCIÓN DE CONFLICTOS DEBE ESTAR A CARGO DE PERSONAS ALTAMENTE CAPACITADAS EN EL CONOCIMIENTO DEL DERECHO, CON EL FIN DE QUE LOS CONFLICTOS SEAN RESUELTOS CON BASE EN LA APLICACIÓN INTEGRAL DEL SISTEMA JURÍDICO MEXICANO ASÍ COMO A TRAVÉS DE LOS INTRUMENTOS INTERNACIONALES APLICABLES, EN LOS QUE EL ESTADO MEXICANO SEA PARTE.
+
+
+## Vision sobre la Imparticion de Justicia
+
+EL IMPARTIDOR DE JUSTICIA DEBE SER UN OPERADOR JURÍDICO QUE GOCE DE AUTONOMÍA, INDEPENDENCIA, IMPARCIALIDAD Y PROFESIONALISMO, A EFECTO DE QUE SUS DETERMINACIONES SE ENCUENTREN APEGADAS A LOS ESTÁNDARES DE JUSTICIA
+
+
+## Propuestas
+
+- INGRESO DE PERSONAL POR MERITOCRACIA, LO CUAL IMPLICA QUE EL PODER JUDICIAL SE CONFORME CON PERSONAS DE PERFIL ADECUADO PARA DESEMPEÑAR LOS CARGOS EN TODOS LAS ÁREAS DE LOS ÓRGANOS DE IMPARTICIÓN DE JUSTICIA, PRINCIPALMENTE LOS JUZGADORES.
+- CAPACITACIÓN CONTINUA Y OBLIGATORIA PARA LOS JUZGADORES, A TRAVÉS DE LA APLICACIÓN DE EXÁMENES PERIÓDICOS CON LA FINALIDAD DE JUSTIFICAR SU ACTUALIZACIÓN JURÍDICA
+- CREACIÓN DE NUEVOS ÓRGANOS JURISDICCIONALES, EN LAS MATERIAS QUE LO AMERITEN, CON LA FINALIDAD DE DISTRIBUIR LAS CARGAS DE TRABAJO Y LOGRAR CON ELLO UNA JUSTICIA PRONTA Y EXPEDITA
+

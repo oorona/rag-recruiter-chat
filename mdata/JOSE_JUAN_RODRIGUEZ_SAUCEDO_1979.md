@@ -1,0 +1,77 @@
+Nombre Candidato: JOSE JUAN RODRIGUEZ SAUCEDO
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jjrodriguezsaucedo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Defraudación Fiscal, Derecho Corporativo, Formación, Ibero, Juicio de Amparo, Justicia Administrativa, Litigación Penal, Poder Judicial, Redacción, Secretarios, Suprema Corte, TFJA, Tribunal Electoral., UAdeC
+Tags Propósito: acceso a la justicia, administración judicial, burocracia, cambio, comunicación, corrupción, delincuencia, derechos, imparcialidad, involucramiento ciudadano., justicia efectiva, justicia electoral, justicia federal, lenguaje ciudadano, nepotismo, poderes fácticos, realidad social, sentencias claras, sistema judicial, sociedad informada, transparencia
+
+
+## Descripción del Candidato 
+
+Jose Juan Rodriguez Saucedo es candidato a Juez/a de Distrito en Coahuila, postulado por el Poder Legislativo Federal. Cuenta con Maestría en Derecho Corporativo y una cédula profesional, complementada por diversos cursos de especialización en áreas como juicio de amparo, litigación penal y combate a la defraudación fiscal, incluyendo formación en el Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo es contribuir a un cambio en la justicia federal, rompiendo con la burocracia y acercándola a la ciudadanía. Propone una justicia efectiva con lenguaje ciudadano, garantizando decisiones claras y comprensibles; la impartición de justicia sin sesgos, independientemente del poder económico o político; y un mejor modelo de comunicación con la ciudadanía, explicando las razones detrás de las decisiones judiciales de manera sencilla.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Curso de Formación de Secretarios del Poder Judicial de la Federación (2015)
+- Titulado con mejor promedio
+- ,Diplomado en Juicio de Amparo
+- Suprema Corte de Justicia de la Nación
+- 2021,Combate a la Defraudación Fiscal
+- Thomson Reuters, 2020,Curso básico de redacción
+- Tribunal Electoral del Poder Judicial de la Federación, 2023,Litigación Penal Avanzada, Tirant Lo Blanch, 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54412/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UAdeC), Maestro en Derecho Corporativo (Ibero), Especialidad en Justicia Administrativa (TFJA)
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero aportar al cambio en la justicia federal, romper el esquema burocrático y hacerla cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las personas juzgadoras deben atender en forma clara las necesidades de justicia. Detrás de un expediente, hay una persona con problemas reales, por lo que es importante alejarse de formalidades frías y burocráticas y entender la realidad del caso, para garantizar el acceso a la justicia a través de decisiones (sentencias o acuerdos) que estén redactadas en lenguaje entendible y claro.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia hoy más que nunca debe ser impartida por personas que entiendan la realidad de los problemas en México, que tengan vocación, experiencia pero sobre todo amor al país. Nuestro México necesita gente comprometida, pero también mecanismos que mantengan a la función judicial protegida en contra de la corrupción, el nepotismo y la delincuencia.
+
+
+## Propuestas
+
+- Justicia efectiva y con lenguaje ciudadano. En mi carrera he visto sentencias largas, con transcripciones innecesarias y palabras rimbombantes. De ser juez, las decisiones del tribunal serán concisas, con lenguaje claro y entendible pero sin perder la técnica, para que la persona pueda entenderlas sin que su abogado deba traducir. En la justicia electoral, donde litigan los partidos, ya existen sentencias así de efectivas. ¿Por qué no hacer lo mismo en la justicia de la gente?
+- Impartir justicia sin mirar a quién. Pese al fortalecimiento del sistema judicial de carrera, en la justicia no dejan de influir poderes fácticos, tanto económicos como políticos. Esta es la gran oportunidad de que profesionistas del derecho, sin ataduras a estos factores, puedan llegar a cambiar y mejorar la justicia que tanto necesita México. Por ello, mi compromiso es que la gente tenga en quienes lleguemos a los cargos, jueces y juezas imparciales.
+- Un mejor modelo de comunicación con la ciudadanía. Buscar que el Órgano de Administración Judicial permita a las personas juzgadoras implementen herramientas para explicar en forma sencilla al público, las razones que justifican sus decisiones, sobre todo aquellas que sean relevantes para el contexto social, económico o político de la comunidad y así contribuir a formar una sociedad más informada e involucrada en el ejercicio de la impartición de justicia, sin afectar los derechos de las partes.
+

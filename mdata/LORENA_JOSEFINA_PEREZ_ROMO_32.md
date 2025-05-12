@@ -1,0 +1,77 @@
+Nombre Candidato: LORENA JOSEFINA PEREZ ROMO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5580566711
+Correo Electronico: lorenajosefina@hotmail.com
+Numero de lista en boleta: 24
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Doctorado, Especialidad, Estados Unidos., Formación Internacional, Impartición de Justicia para Adolescentes, Italia, Licenciatura, Maestría, Secretaría de Estudio y Cuenta
+Tags Propósito: IA, Poder Judicial, accesibilidad, atención ciudadana, capacitación, colaboración., confianza ciudadana, defensoría nacional, eficiencia, equidad, escucha ciudadana, inclusión, incorruptibilidad, innovación, integridad, justicia, lenguaje claro, participación ciudadana, reducción de gastos, rendición de cuentas, servicio, tecnología, transformación, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Lorena Josefina Perez Romo es candidata a Ministra/o de la Suprema Corte de Justicia de la Nación, postulándose desde el Poder Ejecutivo y Legislativo Federal. Cuenta con un alto nivel de escolaridad, incluyendo un doctorado en Derecho Procesal Penal y una amplia trayectoria académica en derecho penal y derechos humanos, con estudios en Italia y Estados Unidos.
+
+Su motivación para buscar el cargo público se centra en servir a la justicia con un enfoque social, integridad y profesionalismo. Propone una transformación del Poder Judicial hacia una Corte más ciudadana, propositiva e innovadora, buscando acercamiento a la población, transparencia, eficiencia y el uso de tecnologías como la Inteligencia Artificial. Sus propuestas incluyen la creación de una Defensoría Nacional, el fortalecimiento de la capacitación, módulos de atención ciudadana y espacios virtuales de escucha a la población.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/share/1AEQdzbb1T/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/12FbuAuwQ2K/
+- https://x.com/LRomo18
+- https://www.instagram.com/lromo18?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
+- https://youtube.com/@lorenajosefinaperezromo?si=bbsVAtx2itqOoSbO
+- https://www.tiktok.com/@lromo18?is_from_webapp=1&sender_device=pc
+- https://www.linkedin.com/in/lorena-romo-17721b71/
+
+
+## Cursos
+
+- Doctorado en Derecho Procesal Penal,Doctorante en Derechos Humanos,Maestría en Derecho Procesal Penal,Especialidad en Secretaría de Estudio y Cuenta,Especialidad en Impartición de Justicia para Adolescentes
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/19/6
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, 2 especialidades, Maestra en Derecho Penal, Doctora en Derecho, cursos en Italia y Estados Unidos
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi propósito de vida es servir para hacer justicia con enfoque social, integridad, sensibilidad y profesionalismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resolver los conflictos jurídicos con un servicio que debe ser eficiente, incorruptible, accesible y sensible a las necesidades de la población. Mi visión se centra en la consolidación de un Poder Judicial transparente e incluyente, que atienda con agilidad y rigor jurídico los desafíos sociales que enfrentamos como Nación y que a su vez promueva eficazmente la equidad y la confianza ciudadana en la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es la función más noble que conozco y por ello, me he preparado toda mi vida para dicha responsabilidad y compromiso. Es una actividad de servicio que debe implicar para la persona juzgadora aportar toda la experiencia, conocimiento, sensibilidad y atención a las necesidades de las personas involucradas y que con ello se cumpla su objetivo, para lo cual debe hacerse de forma transparente e impoluta. Prioriza la protección de los grupos históricamente vulnerados.
+
+
+## Propuestas
+
+- Una Corte Ciudadana y que rinde cuentas, este rubro, obedece a la imperante necesidad de transformar la relación de la Corte con el Pueblo de México, ya no puede haber Tribunales distantes y alejados de la compleja realidad y las necesidades de los y las mexicanas, en este eje, establezco 4 puntuales propuestas: 1. La Corte en tu comunidad, 2. Una Corte evaluada por el pueblo, 3. Una Corte que combate la corrupción, 4. Uso de lenguaje claro y sencillo, así como aplicación de la IA.
+- Una Corte propositiva. Si bien es cierto hay 3 Poderes independientes y autónomos, también es verdad que existe un solo Estado Mexicano, y la suma de los 3 Poderes debe reflejarse en el reforzamiento y colaboración de las soluciones efectivas para el Pueblo de México. En este eje, propongo 3 acciones contundentes: 5. Impulso de una Defensoría Nacional que asesore al pueblo, 6. Fortalecimiento a la capacitación y 7. Una Corte de participación sustentable y efectiva.
+- Una Corte innovadora y eficiente, en este rubro presento acciones dirigidas a mejorar y renovar el trabajo de la Corte, mediante el uso eficiente de la tecnología. Así, presento 3 propuestas: 8. La creación de módulos de atención ciudadana, 9. Reducción de gastos y reglas internas de la Corte y 10. Una Corte que te conoce: Espacio virtual de escucha ciudadana. Mi compromiso es 24 horas al día contigo, porque esto se trata de servir para hacer justicia.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: MA DEL CARMEN ZUÑIGA CLETO
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: MUJER
+Telefono: 4612767378
+Correo Electronico: mczc010625@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Información, Acceso a la Justicia, Derecho Internacional, Derecho Laboral, Derechos Humanos, Derechos Migrantes, Derechos de la Infancia, Doctorado en Derecho, Formación Judicial, Libertad de Expresión, Licenciatura en Derecho, Maestría en Derechos Humanos, Niñez y Adolescencia, Protección Jurisdiccional, SCJN, Sistema Constitucional, UNESCO, UNICEF
+Tags Propósito: Armonía social, Bienestar laboral, Capacitación, Carga burocrática, Compromiso social, Conciliación, Coordinación interinstitucional, Dignidad humana, Distribución de casos, Eficiencia, Empatía, Equilibrio emocional, Función jurisdiccional, Honestidad, Humanismo, Impacto social, Imparcialidad, Justicia, Lenguaje claro, Mediación, Pausas activas., Pronitut, Revictimización, Sensibilización, Simplificación de trámites, Tecnología, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Ma del Carmen Zúñiga Cleto es candidata a Jueza/es de Distrito en Guanajuato, postulándose a través de "En Funciones". Cuenta con estudios de Maestría en Derechos Humanos y Democracia, actualmente cursando un Doctorado en Derecho. Su trayectoria académica y profesional se centra en el ámbito jurídico y los derechos humanos, evidenciado por sus cursos en temas como libertad de expresión, derechos humanos laborales, derechos de la infancia y protección a migrantes.
+
+La candidata expresa su motivación para el cargo público como una vocación de servicio y empatía hacia quienes buscan justicia. Su visión sobre la función jurisdiccional la define como un pilar fundamental para la armonía social, mientras que la impartición de justicia debe basarse en la integridad y compromiso social de los operadores jurídicos.  Entre sus propuestas destacan la eficiencia en los procesos a través de la tecnología, la simplificación de trámites, la capacitación en gestión del tiempo, la priorización de la empatía en la relación con los justiciables y el fortalecimiento de la comunicación y el bienestar laboral dentro del sistema judicial.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18XGJBw5SH/?mibextid=wwXIfr
+- https://www.x.com/JuezaZunigaC
+- https://www.instagram.com/carmenzuc08?igsh=ZDQ3MnZwYjdlMXJw
+- https://www.tiktok.com/JuezaZunigaC
+- https://mx.linkedin.com/in/ma-del-carmen-zuñiga-cleto-9b8107358?trk=people-guest_people_search-card
+
+
+## Cursos
+
+- Marco Jurídico Internacional de la libertad de expresión acceso a la información pública impartido por UNESCO y otros,Derecho Internacional de los Derechos Humanos en Materia de Trabajo, Colegio Universitario de Estrasburgo,Derechos de la infancia el acceso a la justicia impartido por el Fondo de Naciones Unidas para la Infancia UNICEF y SCJN,El Sistema Constitucional y de los Derechos de la Niñez y la Adolescencia
+- Aspectos Teóricos y Prácticos SCJN,La Protección Jurisdiccional de los Derechos Humanos de la Personas Migrantes Extranjeras, Escuela Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55233/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, concluida; Maestría en Derechos Humanos y Democracia, concluida; Doctorado en Derecho, en curso
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo vocación de servicio, soy empática a los reclamos de justicia y entiendo el abuso del que es víctima.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar fundamental de la armonía social, corresponde al juez dirimir un conflicto, dando la razón a quien la tiene, concluyendo disputas que flagelan la convivencia social, si no existen jueces se impone el fuerte al débil, el rico al pobre, el poderoso al vulnerable.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia, para ser tal, debe recaer en personas honorables, profesionales, con un alto grado de compromiso social; entendido esto como la conciencia del impacto que sus decisiones tienen en la vida del justiciable, que no es sino el prójimo, pues de su rectitud, conocimiento y sensibilidad depende la confianza en las instituciones y el equilibrio de la sociedad, sin ello el poderoso siempre estará por encima del débil y el rico del pobre.
+
+
+## Propuestas
+
+- Desde una visión humanista, me comprometo a promover procesos más eficientes mediante el uso de tecnología accesible, la simplificación de trámites y la capacitación en gestión del tiempo. Además, fomentaré la empatía entre operadores jurídicos y justiciables para evitar dilaciones innecesarias. La prontitud en la justicia no solo es un deber institucional, sino un acto de respeto a la dignidad humana. Para ello, propongo mayor coordinación interinstitucional y reducción de cargas burocráticas.
+- La justicia debe centrarse en la persona, priorizando la comprensión y el trato digno. Propongo fortalecer la sensibilización de los operadores del derecho sobre el impacto emocional de sus decisiones, garantizando un lenguaje claro y accesible. Asimismo, impulsaré espacios de mediación y conciliación, donde las partes sean escuchadas con atención y respeto. También es fundamental promover reformas que agilicen los procesos y eviten revictimizar a quienes buscan justicia.
+- El proceso judicial genera tensiones en ambas partes. Para aliviar la angustia de los justiciables, propongo mejorar la comunicación sobre el avance de sus asuntos. Para los jueces y su equipo, es esencial reducir la carga laboral con una mejor distribución de casos y acceso a pausas activas. Además, se debe fomentar una cultura de bienestar laboral que permita un mejor equilibrio emocional, garantizando así decisiones más justas y eficientes.
+

@@ -1,0 +1,71 @@
+Nombre Candidato: GLENDE YANIRA REYES MENDIVIL
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó
+Tags Propósito: No proporcionó, ausencia, inexistente, nulo, vacío
+
+
+## Descripción del Candidato 
+
+Glende Yanira Reyes Mendivil es candidata a Jueza/es de Distrito en Quintana Roo, postulándose para el Poder Legislativo Federal. Es una mujer que, hasta la fecha de esta descripción, no ha proporcionado información sobre su trayectoria académica, cursos, motivaciones para buscar el cargo público, visión sobre la función jurisdiccional o propuestas específicas. 
+
+Su estatus en el sistema figura como "Sin captura", indicando la ausencia de datos adicionales registrados.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

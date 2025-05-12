@@ -1,0 +1,77 @@
+Nombre Candidato: LUIS ALBERTO GOMEZ CABALLERO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6141579563
+Correo Electronico: contactogomezcaballero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Directo, Derecho Administrativo, Derecho Laboral, Derecho Procesal Constitucional, Derechos Humanos, Formación Judicial., Igualdad de Género, Litigio Estrutural, PYAJ, Violencia
+Tags Propósito: Amparo directo, Celeridad, Derechos humanos, Escucha activa, Estándares constitucionales, Imparcialidad, Independencia, Interpretación constitucional., Justicia civil, Justicia familiar, Justicia laboral, Justicia pronta, Legitimación ciudadana, Ley de Amparo, Perspectiva de género, Perspectiva de infancia, Perspectiva de personas mayores, Profesionalismo, Protección de grupos vulnerables, Puertas abiertas, Tribunales Colegiados, Tutela judicial efectiva, Ética
+
+
+## Descripción del Candidato 
+
+LUIS ALBERTO GOMEZ CABALLLERO es candidato a Magistratura de Tribunales Colegiados de Circuito en Chihuahua, postulado por el Poder Judicial de la Federación. Cuenta con Maestría y cédula profesional, así como con formación continua en áreas como Derecho Administrativo, Igualdad de Género, Litigio Estrutural en Derechos Humanos y herramientas para prevenir la violencia, recibida en la Escuela Federal de Formación Judicial. Su trayectoria académica incluye especialidades en Derecho del Trabajo y Derecho Procesal Constitucional.
+
+El candidato manifiesta su motivación para buscar el cargo con el objetivo de contribuir a una justicia pronta y efectiva. Su visión se centra en una función jurisdiccional sensible y enfocada en las personas, buscando reducir los tiempos de resolución de los casos y fortalecer la legitimidad del Poder Judicial.  Sus propuestas incluyen un Tribunal Colegiado accesible y de escucha activa, celeridad en la resolución de juicios de amparo y sentencias con perspectiva de género, infancia, personas mayores y grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://gomezcaballero.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574298006708
+- https://x.com/GomezLuis42998
+- https://www.instagram.com/luis_alberto_gomez_caballero?igsh=aWtiN2xxMjBhaGQ5&utm_source=qr
+- https://www.youtube.com/@LuisAlbertoGómezCaballero
+- https://www.tiktok.com/@luis.alberto.gmez263
+
+
+## Cursos
+
+- CURSO DE ACTUALIZACIÓN EN DERECHO ADMINISTRATIVO EN LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD EN LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,SEMINARIO LITIGIO ESTRUCTURAL EN DERECHOS HUMANOS EN LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA EN LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL,CURSO AMPARO DIRECTO EN REVISIÓN EN LA ESCUELA FEDERAL DE FORMACIÓN JUDICIAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53127/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Esp
+- en Derecho del Trabajo y Justicia Laboral, Mtro
+- Derecho Procesal Constitucional y en PYAJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo contribuir a una justicia pronta y efectiva para las personas que acuden a los Tribunales Colegiados de Cto
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe estar encaminada a alcanzar mayor sensibilidad en beneficio de las personas justiciables, lo que requiere del compromiso de todas y todos los que laboramos en el Poder Judicial, entendiendo a la hora de revisar constancias que detrás de cada expediente hay seres humanos buscando justicia; asimismo procurar la reducción del tiempo de espera en la resolución de los asuntos para construir confianza en la sociedad y con ello, más legitimación ciudadana.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Contribuir a una impartición de justicia para dotar a todas las personas que acuden al juicio de amparo de certeza jurídica y protección de sus derechos humanos, así como de una tutela constitucional efectiva, lo que debe realizarse con total profesionalismo, imparcialidad, objetividad, ética e independencia, aplicando para ello los más altos estándares constitucionales, tomando como base la perspectiva de género, de infancia, de personas mayores y de los grupos más vulnerables.
+
+
+## Propuestas
+
+- Un Tribunal Colegiado de Circuito de puertas abiertas y escucha activa para todas y todos los chihuahuenses en materias civil y del trabajo.
+- Justicia pronta. Celeridad en la resolución de los juicios de amparo directo y recursos previstos en la Ley de Amparo en beneficio de todas las personas.
+- Sentencias con perspectiva de personas mayores, infancia, género y grupos vulnerables, los cuales requieren de la más alta protección, así como asegurar un equilibrio en la justicia en materias civil, familiar y laboral, utilizando para ello todas las herramientas interpretativas y estándares constitucionales para alcanzar un tutela judicial efectiva para las personas que acuden a los tribunales en búsqueda de justicia.
+

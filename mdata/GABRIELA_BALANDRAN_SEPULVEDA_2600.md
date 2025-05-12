@@ -1,0 +1,79 @@
+Nombre Candidato: GABRIELA BALANDRAN SEPULVEDA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3313596057
+Correo Electronico: gabybalandran2@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Combate a la Corrupción, Derecho Administrativo, Derecho Constitucional, Derecho Público, Doctorado, Juicio de Amparo, Licenciatura, Litigación, Maestría, Presupuesto, SESNA, Servicio Público, Suprema Corte de Justicia, UNAM, Universidad Panamericana, Universidad de San Diego.
+Tags Propósito: Abusos Laborales, Calidad, Ciudadanía, Conciliación, Confianza, Congruencia, Constitución, Derechos Laborales, Eficiencia, Experiencia, Imparcialidad, Justicia, Ley, Plazos Legales, Poder Judicial, Resolución de Conflictos., Sentencias, Trabajadores, Transparencia
+
+
+## Descripción del Candidato 
+
+Gabriela Balandran Sepulveda es candidata a Jueza de Distrito en Jalisco, postulada por el Poder Legislativo Federal. Cuenta con Maestría en Derecho Público y actualmente cursa el doctorado en la misma área, además de una trayectoria de 20 años en el servicio público. Su formación incluye especializaciones en Derecho Constitucional y Administrativo, así como diplomados en Juicio de Amparo y cursos sobre combate a la corrupción y litigación.
+
+Su motivación para buscar el cargo se basa en su compromiso con el país y su capacidad profesional.  Entre sus propuestas destacan fortalecer la confianza ciudadana a través de la cercanía y un mejor desempeño judicial, garantizar la imparcialidad y congruencia en las resoluciones, especialmente en casos laborales, y lograr resultados eficientes mediante la medición, transparencia y el cumplimiento de los plazos legales. Busca impartir justicia pronta, completa y expedita, con sentencias fundadas y motivadas, y promueve la conciliación judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://accounts.google.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Ak8N9MjGt/?mibextid=wwXIfr
+- https://x.com/gabybalandran2?s=11
+- https://www.instagram.com/gabriela.balandran/
+- http://www.tiktok.com/@gabrielabalandran.s
+- https://strava.app.link/ILuqsBXa9Rb
+
+
+## Cursos
+
+- Especialización en Derecho Constitucional y Amparo, impartido por la Universidad Panamericana en el año 2022
+- ,Especialización en Derecho Administrativo, impartido por la Universidad Panamericana, en el año 2020
+- ,Diplomado en Juicio de Amparo, impartido por la Suprema Corte de Justicia de la Nación, cursado en julio 2022
+- ,Curso de Combate y Control de Corrupción en el Servicio Público con Enfoque Presupuestal, impartido por la UNAM y SESNA
+- ,Curso  en Litigación  impartido por la Universidad de San Diego, en San Diego California, en abril 2024
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52636/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, con Maestría en Derecho Publico, actualmente curso el segundo semestre del Doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Responde a una convicción y compromiso con el País, estoy capacitada y tengo 20 años de experiencia al servicio público.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es la herramienta que el Estado dota a las mexicanos para resolver los conflictos que se les presenten, para ello el Poder Judicial, integrado por jueces y magistrados, quienes a través de sus atribuciones imparten justicia a los personas, brindando certeza legal, en el dictado de sus resoluciones las cuales tendrán que cumplir con lo establecido en nuestra Constitución y en apego a lo dispuesto en las leyes secundarias.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La Justicia no debe ser improvisada, los Ministros, Magistrados, Jueces, deben ser personas con experiencia no solo en la impartición de la justicia, sino de conocimientos en todas la materias y situaciones de vida, además de resolver los conflictos entre los particulares o entre el estado, un juzgador es un ciudadano que actúa apegado a la Ley y que podrá resolver cualquier conflicto que se le presente.
+
+
+## Propuestas
+
+- FORTALECER LA CONFIANZA, a través de la cercanía con la ciudadanía, mejorando su desempeño, y dotando de justicia pronta, parcial y expedita. En mis funciones de Juez Laboral, conozco de abusos que sufren los trabajadores, de parte de sus empleadores y que por desconocimiento o temor, no defienden sus derechos. Por ello, estoy convencida que una Jueza cercana a las personas fomentara la confianza y coadyuvará al conocimiento de la materia para la defensa de sus derechos.
+- IMPARCIALIDAD Y CONGRUENCIA. Los abusos laborales en México, son para los trabajadores, mi compromiso es cuidar que en todo momento al trabajador se le otorguen las prestaciones de Ley al momento de dictar una sentencia laboral, mediante resoluciones ajustadas a derecho para ambas partes, fundadas y congruentes. La sociedad requiere de operadores que garanticen justicia de calidad.
+- TENDRE RESULTADOS EFICIENTES, William Thomson, argumentaba que lo que no se mide, no se puede mejorar; los ciudadanos tendrán la certeza que su procedimiento será apegado a derecho, donde no exista corrupción y cumpliendo con los plazos que fija la Ley. Dictando sentencias, congruentes fundando y motivación la decisión. Sujetándome a los a los controles de disciplina y fomentando la conciliación judicial para solucionar los procesos de manera amistosa.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: EDGAR UBALDO RUIZ CASTILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8717878644
+Correo Electronico: doc.edgarruiz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Asociación Nacional de Abogados, Casa de la Cultura Jurídica., Conciliación, Derecho, Derecho Civil, Derecho Laboral, Diplomado, Doctorado, Doctores en Derecho, INPOSHUAC, Investigación Jurídica, Licenciatura, Maestría, Mediación, Solución de Conflictos
+Tags Propósito: Constitución Política, Derechos Fundamentales, Derechos Humanos, Ejecutorias., Expedita, Función Jurisdiccional, Justicia, Justicia Pronta, Legalidad, Leyes Federales, Seguridad Jurídica, Transparencia, Tribunal Colegiado
+
+
+## Descripción del Candidato 
+
+EDGAR UBALDO RUIZ CASTILLO es candidato a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho Civil, además de una Maestría en Derecho Laboral y Amparo, y Licenciatura en Derecho. Su formación complementaria incluye diversos diplomados y membresía en el Colegio Mexicano de Doctores en Derecho e Investigaciones Jurídicas.
+
+Su motivación para buscar el cargo público es servir a los ciudadanos a través de una impartición de justicia con legalidad y seguridad jurídica. Su visión se centra en el respeto de los derechos fundamentales y humanos, y propone transparentar la función jurisdiccional permitiendo el acceso a las audiencias del pleno del tribunal colegiado, así como agilizar la resolución de casos discutiendo y votando un mínimo de ocho asuntos por audiencia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574598879870
+- https://x.com/docedgarruiz
+- https://www.instagram.com/doc.edgar.ruiz?igsh=dnZ0cWh3NDRpNnRy&utm_source=qr
+- https://www.tiktok.com/@dr.edgar.ruiz?_t=ZM-8v4S3lPmcAI&_r=1
+
+
+## Cursos
+
+- Miembro del Colegio Mexicano de Doctores en Derecho e Investigaciones Jurídicas
+- ,Diplomado en Derecho Laboral, impartido por La Casa de la Cultura Jurídica en Torreón
+- ,Curso de Derecho Procesal Civil, impartido por la Asociación Nacional de Abogados al Servicio del Estado
+- ,Diplomado en Mediación Comunitaria, impartido por INPOSHUAC
+- ,Diplomado en Solución de Conflictos y Técnicas de Conciliación Laboral, impartido por INPOSHUAC
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54373/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Maestro en Derecho Laboral y Amparo y Doctor en Derecho Civil
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero servir a los ciudadanos mediante una impartición de justicia con legalidad y seguridad jurídica.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los Magistrados Federales que formaremos parte de esta nueva justicia federal, debemos respetar todos y cada uno de los derechos fundamentales del ciudadano, así como sus derechos humanos, esto, mediante resoluciones que se encuentren apegadas a derecho y dentro del marco jurídico de la Constitución Política de los Estados Unidos Mexicanos y de las leyes federales que de ella emanen.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un Magistrados Federal que respete todos y cada uno de los derechos fundamentales del ciudadano, así como sus derechos humanos, esto, impartiendo justica mediante resoluciones que se encuentren apegadas a derecho, dentro del marco jurídico de nuestra Carta Magna y de las leyes federales que de ella emanen.
+
+
+## Propuestas
+
+- Proponer que en las ponencias del pleno del tribunal colegiado, al momento de la discusión y votación de las ejecutorias a resolver se permita el acceso al ciudadano con la intención de transparentar la función jurisdiccional.
+- Que en las ponencias del pleno del tribunal colegiado se discutan y voten un mínimo de 8 asuntos a resolver, para así cumplir con el principio de justicia pronta y expedita.
+- No proporcionó
+

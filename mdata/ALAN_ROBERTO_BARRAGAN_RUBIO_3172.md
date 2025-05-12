@@ -1,0 +1,76 @@
+Nombre Candidato: ALAN ROBERTO BARRAGAN RUBIO
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6621001668
+Correo Electronico: alanx12@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Certificaciones, Derecho, Diplomados., Inteligencia Artificial, Juicio de Amparo, Licenciatura, Perspectiva de Género, Poder Judicial, Sistema Penal Acusatorio, Vulnerabilidad
+Tags Propósito: Justicia, Sonora., acceso a la justicia, amparo, claridad, compromiso, comunidad, confianza ciudadana, corrupción, delincuencia, derechos humanos, empatía, equidad, esfuerzo, imparcialidad, libertad, mérito, rapidez, reparación, salud, sensibilidad, servicio público, sociedad, solidaridad, tecnología, transparencia, transparencia contratación, vulnerabilidad, víctimas
+
+
+## Descripción del Candidato 
+
+Alan Roberto Barragán Rubio es candidato a Juez/a de Distrito en Sonora, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y ha complementado su formación con diplomados en juicio de amparo, sistema penal acusatorio oral, perspectiva de género y Derecho e Inteligencia Artificial.
+
+Su motivación para buscar el cargo se centra en contribuir a la impartición de justicia en el país, buscando una conexión cercana con la sociedad y priorizando la protección de los derechos humanos, especialmente de las víctimas. Sus propuestas incluyen la defensa de los derechos de las víctimas, facilitar el acceso a la justicia en casos de atención médica denegada mediante juicios de amparo simplificados, y promover la transparencia en el Poder Judicial, incluyendo la publicación de procesos de contratación y la promoción de oportunidades basadas en el mérito.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1C3RZTH62y/?mibextid=wwXIfr
+- https://x.com/barraganrubioa?s=21
+- https://www.instagram.com/barraganrubio.a?igsh=MTRqZG1yeTYweDExZg3D3D&utm_source=qr
+- https://www.tiktok.com/@alanbarraganrubio?_t=ZM-8v6DGXR7KFx&_r=1
+
+
+## Cursos
+
+- Curso para personas secretarias del Poder Judicial de la Federación
+- ,Curso para Juzgar con perspectiva de género y enfoque de personas en estado de vulnerabilidad,Diplomado en juicio de amparo  indirecta e,Diplomado en el Sistema Penal Acusatorio Oral,Diplomado en Derecho e Inteligencia Artificial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52749/11
+
+
+## Trayectoria Academica
+
+- Licenciado
+- en Derecho, con diplomados y certificaciones en amparo, perspectiva de género y en Inteligencia Artificial
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir en la impartición de justicia en el país, de manera cercana a la sociedad, con empatía y compromiso.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es una justicia que escuche la voz de la comunidad, que entienda, que resuelva con humanidad conforme a derecho y que contribuya a la construcción de una sociedad más justa, equitativa y solidaria. Percibo la función jurisdiccional como un servicio público esencial para la protección de los derechos humanos. Por ello, el ejercicio de la función judicial debe ser cercana, imparcial, transparente y sensible a las realidades de las personas, con resoluciones, rápidas claras y justas
+
+
+## Vision sobre la Imparticion de Justicia
+
+Visualizo la impartición de justicia como una labor humana, cuyo objetivo principal sea garantizar los derechos humanos de manera efectiva, accesible e igualitaria para todas y todos. Necesitamos una impartición de justicia moderna, que aproveche la tecnología sin perder el sentido humano, una justicia que escuche a la comunidad, que entienda las realidades sociales y que actúe con sensibilidad, honestidad y compromiso ético, para fortalecer la confianza ciudadana.
+
+
+## Propuestas
+
+- Como Juez de Distrito, voy respetar los derechos humanos de las víctimas por encima de los derechos de los delincuentes conforme al peso de ley. Me comprometo a garantizar que los derechos de las personas vulnerables, colocadas en el centro de un proceso judicial, sea reparar el daño causado y asegurar que no se repita. No más libertades express a las personas que infrinjan la ley y lastimen al pueblo de Sonora. Vamos a llevar cada juicio respetando la dignidad, integridad y escuchando tu voz.
+- Si algún Hospital no te otorga un medicamento, una cirugía, quimioterapia o cualquier tratamiento necesario para tu salud, o cualquier otro acto que ponga en peligro tu libertad o tu vida, voy a escucharte y en ese mismo momento promoveremos tu juicio de amparo solamente con tu testimonio, se trata de una demanda de amparo a oídas, sin necesidad de que te preocupes por buscar abogados que cobren cantidades altas de dinero. Ya no habrá obstáculos para reclamar tus derechos.
+- ¿Quieres un poder judicial sin corrupción? Es posible, como Juez de Distrito mediante mis redes sociales oficiales, daré a conocer la contratación de personas, así como su proceso de elección. Voy otorgar oportunidades a abogados y abogadas, así como a estudiantes que tengan la capacidad y compromiso para trabajar para el pueblo de Sonora. Tendremos un proceso transparente, se acabaran los favoritismos y nos basaremos en el esfuerzo y mérito de las personas.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: PAOLA IVETTE CASTOR MOLINAR
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: MUJER
+Telefono: 6143788957
+Correo Electronico: paolacastor03@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Capacitación Policial, Comunicación, Código Nacional de Procedimientos, Derecho, Derecho Procesal Penal, Educación Continua, Estados Unidos., Homeland Security, INDEPAC, Texas, Toma de Decisiones Jurídicas, Universidad Autónoma de Ciudad Juárez
+Tags Propósito: Estado de Derecho, acceso a la justicia, derechos humanos, dilaciones, empatía, enfoque diferenciado, función jurisdiccional, grupos vulnerables, igualdad, imparcialidad, justicia humanista, justicia humanizada., legalidad, protección, resoluciones, transparencia, vigilancia
+
+
+## Descripción del Candidato 
+
+Paola Ivette Castor Molinar es candidata a Jueza/es de Distrito en Chihuahua, postulándose a través del Poder Judicial de la Federación. Cuenta con Licenciatura en Derecho por la Universidad Autónoma de Ciudad Juárez y una Maestría en Derecho Procesal Penal por el INDEPAC. Ha participado en cursos de especialización en áreas como prácticas basadas en evidencia, derecho penal y comunicación. 
+
+Su motivación para buscar el cargo es contribuir a un sistema judicial equilibrado que garantice juicios justos. Su visión se centra en una función jurisdiccional protectora de los derechos humanos y una impartición de justicia humanista, transparente, imparcial y accesible. Sus propuestas incluyen una justicia más humanizada y empática, un enfoque diferenciado para grupos vulnerables, y la resolución oportuna de los casos para evitar dilaciones innecesarias.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/pawizzita?mibextid=wwXIfr&mibextid=wwXIfr
+- https://www.instagram.com/paola_castor?igsh=MXJ1MnFncnA5eHYzbg3D3D&utm_source=qr
+- https://www.tiktok.com/@paoleson?_t=ZM-8v0rH9Y0pMc&_r=1
+
+
+## Cursos
+
+- Asistencia al  American Luision Law Enforcement  MALLET , por parte de United States Departament,Conferencia : Practicas Basadas en Evidencia y Toma de Decisiones Jurídicas, en el Paso Texas,Conferencia Magistral de : Congruencia e Incoherencia de los Dispositivo del Código Nacional de Procedimientos,Comunicación Oral y Corporal, por parte de Homeland Security Investigations
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52841/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por parte de Universidad Autónoma de Ciudad Juárez y Maestría en Derecho Procesal Penal en el INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir desde una posición de mayor equilibrio, garantizando que cada persona reciba un juicio justo y que las
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi propuesta es una función jurisdiccional que aporte de acuerdo a mi experiencia un enfoque protector e imparcial basado en la vigilancia y protección de los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Propongo un enfoque de justicia humanista, que este sea transparente, imparcial y accesible, siempre garantizando la igualdad entre las partes, con resoluciones prontas, motivadas y basadas en la legalidad, con esto evitando las dilaciones innecesarias. Además de siempre tener las consideración necesarias para que permitan el acceso a los grupos vulnerables y pueblo originarios.
+
+
+## Propuestas
+
+- Es de vital importancia que el Juez no solo aplique la ley si no también comprenda el impacto de las decisiones en la vida de las persona. Se propone fomentar una justicia mas humanizada, donde los jueces sean accesibles y empáticos con las partes, pero manteniendo la firmeza e imparcialidad necesaria para garantizar un Estado de Derecho.
+- No todas las personas acuden a la justicia en igualdad de condiciones. Mi propuesta es implementar un enfoque diferenciado para grupos vulnerables, garantizando su acceso efectivo a la justicia.
+- El acceso a la justicia no solo implica obtener una resolución justa, si no también que esta se resuelva en el plazo razonable. Por lo que mi propuesta es evitar dichas dilaciones innecesarias que vulneran los derechos de las partes y generan desconfianza en la función jurisdiccional.
+

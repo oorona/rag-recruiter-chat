@@ -1,0 +1,76 @@
+Nombre Candidato: MARIA LUISA GUERRERO LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8124380601
+Correo Electronico: jmariamercantil2025@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Capacitación Judicial, Código Nacional de Procedimientos Civiles y Familiares, Derecho Laboral, Derecho de Amparo, Escuela Judicial Federal, Licenciatura., Maestría, Tribunal Superior de Justicia de Nuevo León, Universidad Autónoma de Nuevo León
+Tags Propósito: Atención inmediata, Democracia, Derechos, Eficiencia, Empatía, Equidad, Experiencia, Humanismo, Justicia, Procedimientos judiciales, Resolución de conflictos, Sentencias justas., Tecnología, Veracidad
+
+
+## Descripción del Candidato 
+
+MARIA LUISA GUERRERO LOPEZ es candidata a Jueza/es de Distrito en Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho, específicamente en Derecho de Amparo por la Universidad Autónoma de Nuevo León, y cédula profesional. Su formación incluye especializaciones en Derecho Laboral, argumentación jurídica, y cursos en prevención de violencia y procedimientos civiles y familiares.
+
+Su motivación para buscar el cargo se centra en impulsar la justicia con un enfoque en la experiencia, empatía y humanismo.  Su visión de la función jurisdiccional busca una impartición de justicia confiable, democrática y eficiente que proteja los derechos de las personas. Sus propuestas incluyen atención inmediata y veraz, agilizar procedimientos mediante tecnología, y la elaboración de sentencias más justas y equitativas.  Información adicional sobre su trayectoria se encuentra disponible en su curriculum vitae en el enlace proporcionado.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574116694223
+- https://x.com/jmariamercantil?s=21
+- https://www.instagram.com/maria.mercantil?igsh=NnRpdGRheWd1czJj
+- https://www.tiktok.com/@maria.mercantil?_t=ZM-8v0Sswzhx1Z&_r=1
+
+
+## Cursos
+
+- MASTER DE ARGUMENTACION JURIDICA POR LA UNIVERSIDAD DE ALICANTE
+- ,ESPECIALIDAD EN DERECHO LABORAL POR LA ESCUELA JUDICIAL FEDERAL,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA POR LA ESCUELA JUDICIAL FEDERAL,CAPACITACIÓN Y ESPECIALIZACIÓN JUDICIAL POR EL TRIBUNAL SUPERIOR DE JUSTICIA DE NUEVO LEÓN,JORNADAS DE INTRODUCCIÓN AL ESTUDIO DEL CÓDIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES POR LA ESCUELA JUDICIAL F
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53533/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestra en Derecho de Amparo de la de la Universidad Autónoma de Nuevo León
+
+
+## Motivo para buscar el Cargo Publico
+
+Para seguir impulsando la justicia desde una nueva visión de experiencia, empatía y humanismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr una función confiable, democrática y eficiente que proteja los derechos de todas las personas de una manera más justa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar que todos los conflictos sean resueltos de manera justa, equitativa y eficiente.
+
+
+## Propuestas
+
+- Atención inmediata y veraz.
+- Agilizar los procedimientos judiciales mediante el uso de la tecnología.
+- Elaboración de sentencias más justas y equitativas.
+

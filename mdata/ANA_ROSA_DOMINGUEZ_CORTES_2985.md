@@ -1,0 +1,74 @@
+Nombre Candidato: ANA ROSA DOMINGUEZ CORTES
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2218199292
+Correo Electronico: dominguezcortesana28@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Congreso, Derecho, Derechos Humanos, Diplomado, Doctorado., Inteligencia Artificial, Juicio de Amparo, Justicia, Licenciatura, Maestría, Proporcionalidad, Sistema Penal Acusatorio, Trabajo de cuidados
+Tags Propósito: Acceso a la Justicia, Ajustes Razonables, Amparo, Celeridad, Comunicación Clara, Derechos Humanos, Educación Jurídica, Equidad, Formatos de Lectura Fácil, Género, Imparcialidad, Inclusión, Justicia, Lenguaje Sencillo, Paridad, Procesos Judiciales, Puebla, Rendición de Cuentas, Sentencias Comprensibles., Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+Ana Rosa Domínguez Cortes es candidata a Jueza/a de Distrito por el Poder Judicial de la Federación en Puebla. Cuenta con estudios de Doctorado en Derecho, además de una Maestría en Sistema Penal Acusatorio y Licenciatura en Derecho. Su trayectoria académica se complementa con cursos sobre temas como Derechos Humanos, juicio de amparo y perspectiva de género.
+
+Su motivación para buscar el cargo es garantizar una justicia cercana, imparcial y accesible. Sus propuestas se centran en facilitar la comprensión de las decisiones judiciales, ampliar el acceso a la justicia para grupos vulnerables y promover la transparencia y rendición de cuentas en el proceso judicial, incluyendo la celeridad en los procedimientos y la publicación de información relevante.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://dominguez-cortes-anarosa.blogspot.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/dominguezcortesanarosa/
+- https://www.instagram.com/dominguezcortesanarosa
+- https://www.tiktok.com/@dominguez.ana2?_t=ZM-8v5sV2IsR7f&_r=1
+
+
+## Cursos
+
+- Congreso Doble jornada laboral de las mujeres
+- Retos para visibilizar el trabajo de cuidados,Diplomado la Suprema Corte y los Derechos Humanos,Diplomado Juicio de Amparo,Conversatorio sobre la visión de la Inteligencia Artificial sobre la Justicia,Conversatorio internacional sobre el test de proporcionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53064/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Sistema Penal Acusatorio y Doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Jueza Federal para garantizar una justicia cercana, imparcial y accesible para todas y todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi compromiso es una justicia independiente, imparcial y cercana a la gente, resolviendo cada asunto con sensibilidad y responsabilidad. Creo en una función jurisdiccional con perspectiva de género, inclusión y paridad, siempre protegiendo a los sectores más vulnerables. La justicia debe ser clara, accesible y sin privilegios, garantizando decisiones comprensibles y efectivas. Mi labor será impartir justicia con ética, equidad y respeto, acercándola a quienes más la necesitan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es clara: debe ser accesible, imparcial y comprensible para todas y todos. La justicia no debe ser un privilegio, sino un derecho real, especialmente para quienes más la necesitan. Mi compromiso es garantizar decisiones justas, claras y basadas en la ética y la objetividad, siempre con sensibilidad y respeto a los derechos humanos. Trabajaré para acercar la justicia a las personas, asegurando que cada resolución sea entendible, breve y sencilla.
+
+
+## Propuestas
+
+- Justicia clara y cercana. Objetivo: Garantizar que las decisiones judiciales sean comprensibles y accesibles; tener un mayor acercamiento con las personas que acuden a solicitar amparo; fomentar la explicación de la sentencia de una manera sencilla. Propuesta: Promover la comunicación clara de los fallos judiciales; establecer mecanismos para explicar la sentencia, implementar el uso regular de formatos de lectura fácil; elaborar sentencias con un lengaje sencillo, sin demeritar su calidad.
+- Acceso a la Justicia para Todas y todos. Objetivo: Acercar la justicia a todas las personas, especialmente a los grupos más vulnerables. Propuesta: Ampliar la accesibilidad en procesos judiciales a través de ajustes razonables. Realizar programas educativos, foros abiertos y campañas de información para la defensa de sus derechos. Realizar jornadas en distintos municipios de Puebla, para que conozcan sus derechos e infomarles ante quien pueden acudir para su defensa.
+- Transparencia y rendición de cuentas. Objetivo: Rendir cuentas es clave en una justicia más cercana. Propuesta: Dar celeridad a los procedimientos; dictar las resoluciones en los plazos previstos en la Ley de Amparo, siempre respetando el derecho de las partes a impugnar y ofrecer pruebas. Mantener informada a la ciudadanía respecto de los procesos de visitas ordinarias, informes circunstanciados, estadística judicial, así como hacer públicas las convocatorias para la contratación de personal.
+

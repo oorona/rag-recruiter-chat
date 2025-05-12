@@ -1,0 +1,77 @@
+Nombre Candidato: VALERIA RUIZ ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: valeriaruizortega92@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Justicia, Derecho, Derecho Procesal, Derechos Humanos, Escuela Federal de Formación Judicial, Extinción de Dominio, Formación Judicial, Género, Instituto de la Judicatura Federal, Maestría, Pueblos Indígenas, Razonamiento Probatorio, Universidad Iberoamericana, Universidad Veracruzana., Universidad de Girona
+Tags Propósito: acceso a la información., acceso a la justicia, conciliación, eficiencia judicial, empatía, justicia, justicia cercana, medios electrónicos, poder económico, rendición de cuentas, transformación social, transparencia
+
+
+## Descripción del Candidato 
+
+Valeria Ruiz Ortega es candidata a Jueza/es de Distrito en Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal y cédula profesional. Su formación incluye cursos de especialización en razonamiento probatorio, derechos humanos, extinción de dominio y temas relacionados con pueblos indígenas.
+
+Su motivación para buscar el cargo es ofrecer una justicia cercana a la gente. Su visión se centra en un sistema judicial accesible, sensible a las necesidades de la población y libre de influencias económicas. Sus propuestas incluyen el uso de plataformas electrónicas para audiencias, el fomento de la conciliación y la implementación de medidas para aumentar la transparencia y la rendición de cuentas en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/valeruizo
+- https://www.instagram.com/vale_ruizo
+- https://www.tiktok.com/@vro1911
+
+
+## Cursos
+
+- Curso de Especialización en Bases del Razonamiento Probatorio impartido por la Universidad de Girona,Diplomado en Derechos Humanos, Género y Acceso a la Justicia impartido por la Universidad Iberoamericana de Puebla,Curso de Extinción de Dominio
+- Teoría y Práctica
+- Impartido por la Escuela Federal de Formación Judicial,Ciclo de conferencias: De niñas a mujeres de la ciencia
+- Impartido por el Instituto de la Judicatura Federal,Jornadas de Estudio: Derechos de los Pueblos y Comunidades Indígenas
+- Un Panorama General
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54625/11
+
+
+## Trayectoria Academica
+
+- Estudié Derecho en la Universidad Veracruzana y realicé una Maestría en Derecho Procesal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque estoy convencida de que el pueblo de México merece una justicia cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El pueblo de México merece juzgados y juzgadores que estén al alcance de todos los ciudadanos, que verdaderamente los escuchen y donde el poder económico no influya en las decisiones judiciales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia sensible ante las exigencias del pueblo y con empatía a las necesidades de las personas. Una justicia que transforme la realidad material de las personas.
+
+
+## Propuestas
+
+- Acercar los medios electrónicos a la justicia, haciendo uso de las plataformas electrónicas para que las partes puedan acudir a las audiencias a través de esos medios y evitar traslados y gastos innecesarios.
+- Fomentar la conciliación entre las partes y evitar los gastos económicos y los tiempos que implica la resolución de un juicio.
+- Un sistema judicial más transparente, donde se incluyan medidas para garantizar el acceso a la información y una mayor rendición de cuentas por parte de las personas juzgadoras.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: MARIA GABRIELA TORRES ARREOLA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5559957485
+Correo Electronico: gabriela.torres.arreola.0106@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Democracia, Derecho Internacional, Derecho de Trabajo, Derechos Humanos, Especialización, Función Jurisdiccional, Justicia Laboral, Licenciatura en Derecho, Reforma Laboral.
+Tags Propósito: Derechos Laborales, Derechos de los Patrones, Derechos de los Trabajadores, Emprendedores, Equilibrio, Función Jurisdiccional., Juicio de Amparo, Justicia Laboral, Justicia Social, Libertad Sindical, Negociación Colectiva, Poder Judicial, Principios Constitucionales, Reforma Laboral, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+MARIA GABRIELA TORRES ARREOLA es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose en la vía "En Funciones". Cuenta con cédula profesional y una trayectoria académica enfocada en el derecho, incluyendo especialidades en Derechos Humanos y Democracia, y en Derecho de Trabajo y Justicia Laboral. 
+
+Su motivación para buscar el cargo se centra en su pasión por los derechos laborales, considerándolos fundamentales para los mexicanos. Su visión para la función jurisdiccional y la impartición de justicia se enfoca en garantizar el acceso a la justicia y la materialización de principios constitucionales, como la negociación colectiva y la libertad sindical, especialmente para los trabajadores más vulnerables, buscando un equilibrio entre los derechos de patrones y trabajadores. Sus propuestas incluyen la adaptación del Poder Judicial a las reformas en materia de justicia laboral y generar un cambio de paradigma para alcanzar la justicia social.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://www.gabrielatorresarreola.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573920977054
+- https://www.instagram.com/gabytorresarreola/
+- https://www.tiktok.com/@gaby.torres.arreol?_t=ZM-8uuAriEpK2n&_r=1
+
+
+## Cursos
+
+- Especialidad en Derechos Humanos y Democracia,Especialización Sobre la Reforma en Materia de Justicia Laboral,Actualización Sobre la Reforma en Materia de Justicia Laboral,Función Jurisdiccional y Derecho Internacional de los Derechos Humanos,Especialidad en Derecho de Trabajo y Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55064/10
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho Especialidad en Derechos Humanos y Democracia Especialidad en Derecho de Trabajo y Justicia Labora
+
+
+## Motivo para buscar el Cargo Publico
+
+me apasionan los derechos laborales como una parte fundamental de la vida de todos los mexicanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es importante para el futuro del Poder Judicial de la Federación, desde la Magistratura pretendo garantizar los derechos laborales de todas las personas, generando confianza en la impartición de la justicia social
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es importante garantizar que todas las personas tengan acceso a la justicia y a un recurso judicial efectivo, como es el juicio de amparo
+
+
+## Propuestas
+
+- El Poder Judicial de la Federación se encuentra en una transformación derivado de las actuales reformas en materia de justicia laboral, por lo que desde la Magistratura implica la materialización de los principios constitucionales, tales como el de realidad, el de la negociación colectiva y la libertad sindical
+- Generar un cambio de paradigma en la solución de los asuntos, la actualización y sensibilización para alcanzar la justicia social
+- Me motiva que se respeten los derechos de todos los trabajadores, en especial de las personas más vulnerables y de los emprendedores que no pertenecen a esas grandes empresas, claro, que los patrones también deben estar protegidos, no obstante, debe existir ese balance entre ambas partes, cada uno con sus derechos y obligaciones.
+

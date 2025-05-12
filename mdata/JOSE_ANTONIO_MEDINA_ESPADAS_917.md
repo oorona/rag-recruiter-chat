@@ -1,0 +1,75 @@
+Nombre Candidato: JOSE ANTONIO MEDINA ESPADAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: DURANGO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jose.antonio.medina.espadas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Escuela Federal de Formación Judicial, Formación Judicial., Género e Igualdad, Licenciatura en Derecho, Protección de Datos, Reforma Judicial, Transparencia, Universidad Juárez del Estado de Durango, Violencia
+Tags Propósito: Accesibilidad, Comunicación Efectiva, Difusión de Sentencias, Función Jurisdiccional., Imparcialidad, Justicia Imparcial, Lenguaje Sencillo, Mérito, Nepotismo, Poder Judicial, Profesionalismo, Relevancia Social, Sensibilidad Social, Sentencias Claras, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Antonio Medina Espadas es candidato al Poder Legislativo Federal, proveniente de las Magistraturas de Tribunales Colegiados de Circuito en Durango. Cuenta con una licenciatura en Derecho por la Universidad Juárez del Estado de Durango y 10 años de experiencia dentro del Poder Judicial, lo cual motiva su candidatura.
+
+Su visión se centra en la transparencia, la accesibilidad y la imparcialidad de la función jurisdiccional. Propone la difusión de sus resoluciones como pponente, el uso de lenguaje claro y sencillo en las sentencias para acercar la justicia a la ciudadanía, y la erradicación del nepotismo en el Poder Judicial, promoviendo que el ingreso a la institución se base en el mérito. Ha recibido formación en temas como reforma judicial, igualdad de género, prevención de la violencia y transparencia, impartidos por la Escuela Federal de Formación Judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/12LUSc8wyUA/?mibextid=wwXIfr
+- https://www.instagram.com/joseam_espadas?igsh=OHI3cWNhcnVkc29s
+- https://www.tiktok.com/@justiciaredpill?_t=ZM-8v6ecMRjjwz&_r=1
+
+
+## Cursos
+
+- La reforma judicial del 2011
+- Segunda Edición¿, 2022, impartido por la Escuela Federal de Formación Judicial,Género como herramienta de igualdad¿, 2022, impartido por la Escuela Federal de Formación Judicial,Curso para generar espacios libres de violencia 2023, impartido por la Escuela Federal de Formación Judicial
+- ,Transparencia, acceso a la información pública y protección de datos personales 2024, impartido por la Escuela Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54126/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Juárez del Estado de Durango
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque conozco el Poder Judicial, he trabajado en la institución desde hace 10 años, no soy hijo de juez o de magistrado
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Eliminar el nepotismo en la institución, que las personas que ingresen al Poder Judicial lo hagan por su méritos y no por ser hijos o familiares de juzgadores. Justicia imparcial y con sensibilidad social, mediante fallos que atiendan a la realidad que impera en el ámbito social. Utilizar lenguaje sencillo en la elaboración de la sentencias y acercar a la gente a la función jurisdiccional, mediante una comunicación efectiva con la sociedad. Absoluta transparencia en las resoluciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia que sea cercana a la gente, con lenguaje claro y sencillo para que todas las personas puedan comprender las sentencias y el quehacer jurisdiccional. La justicia debe ser accesible no solo desde la ley, sino en la realidad, es decir, que las personas puedan entender por sí mismas las sentencias que se emitan por el órgano jurisdiccional. La impartición de justicia debe ser imparcial, de manera absoluta, sin ideologías que inclinen al juzgador fuera de la ley.
+
+
+## Propuestas
+
+- Total transparencia en las resoluciones jurisdiccionales, difundiré los fallos en los que participe como ponente.
+- Lenguaje sencillo y claro. Explicaré las sentencias en las que participe y aquellas que sean de relevancia para que las personas puedan comprender el alcance y el porqué de la decisión.
+- Imparcialidad y profesionalismo absoluto en la función jurisdiccional, lo que se logra mediante la difusión de las sentencias en las que fungiría como ponente.
+

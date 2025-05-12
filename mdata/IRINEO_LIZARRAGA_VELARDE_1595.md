@@ -1,0 +1,75 @@
+Nombre Candidato: IRINEO LIZARRAGA VELARDE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 5635113892
+Correo Electronico: irivel.contacto@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Conferencista, Derecho Aduanero, Derecho Constitucional, Derecho Tributario, Docencia, Especialización Judicial, Formación Judicial, Ponente., Reformas Fiscales, Suprema Corte de Justicia
+Tags Propósito: Acceso a la justicia, Administración de Justicia., Celeridad, Criterios Jurídicos, Derechos Humanos, Dilación, Eficiencia, Expedientes electrónicos, Función Jurisdiccional, Imparcialidad, Independencia, Justicia, Modernización, Normativa, Procesos Judiciales, Profesionalismo, Recursos Humanos, Simplificación, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Irineo Lizarraga Velarde es candidato a Magistratura de Tribunales Colegiados de Circuito en SINALOA, postulándose en funciones. Cuenta con doctorado y amplia formación en derecho constitucional, aduanero, tributario y judicial, avalada por su cédula profesional. Su trayectoria incluye la docencia en la Escuela Federal de Formación Judicial y participación como conferencista en la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo es impartir justicia con cercanía, transparencia, prontitud, expeditez e imparcialidad. Su visión se centra en fortalecer y agilizar la función jurisdiccional, priorizando el acceso a la justicia gratuita y el respeto a los derechos humanos. Sus propuestas clave incluyen la agilización de procedimientos, la implementación de tecnologías para eficientar recursos y la simplificación de criterios normativos para acelerar la resolución de controversias.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/irineolizarragav
+- https://www.x.com/irineolizarraga
+- https://www.instagram.com/irineolizarragav
+- https://www.tiktok.com/@irineolizarragav
+
+
+## Cursos
+
+- MAESTRIA EN DERECHO CONSTITUCIONAL,ESPECIALIDAD EN DERECHO ADUANERO,ESPECIALIDAD EN DERECHO TRIBUTARIO,ESPECIALIZACION JUDICIAL,DIPLOMADO REFORMAS FISCALES
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54230/10
+
+
+## Trayectoria Academica
+
+- DOCENTE EN LA ESCUELA FEDERAL DE FORMACION JUDICIAL
+- CONFERENCISTA Y PONENTE EN SUPREMA CORTE DE JUSTICIA DE LA NACION
+
+
+## Motivo para buscar el Cargo Publico
+
+TENGO EXPERIENCIA PARA IMPARTIR JUSTICIA AL PUEBLO CON CERCANIA, TRANSPARENCIA, DE MANERA PRONTA, EXPEDITA E IMPARCIAL
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+MI VISION SOBRE LA NOBLE Y DELICADA FUNCION JURISDICCIONAL, SE CENTRA EN LA NECESIDADES DE FORTALECERLA Y HACERLA MAS PRONTA Y EXPEDITA, PARA QUE LAS SOLUCIONES A LAS CONTROVERSIAS SEAN MÁS RÁPIDAS Y SE CUMPLA CON EL DERECHO HUMANO DE OBTENER JUSTICIA GRATUITA, PRONTA E IMPARCIAL. ES NECESARIO APLICAR TODAS LAS HERRAMIENTAS HUMANAS Y TECNOLOGICAS QUE AGILICEN LOS PROCEDIMIENTOS Y SE PUEDA GARANTIZAR EL DEBIDO RESPETO A LOS DERECHOS HUMANOS DE TODAS LAS PERSONAS QUE PROMUEVEN EN LAS INSTANCIAS.
+
+
+## Vision sobre la Imparticion de Justicia
+
+MI VISION SOBRE LA IMPORTANTE FUNCION DE LA IMPARTICION DE JUSTICIA, SE CENTRA EN IMPARTIRLA BAJO LOS PRINCIPIOS DE PROFESIONALISMO, INDEPENDENCIA, IMPARCIALIDAD Y CON MAS CERCANIA A LAS PERSONAS JUSTICIABLES, PARA GARANTIZAR SU PLENO ACCESO Y CUMPLIR CON SU IMPORTANTE FINALIDAD DE APLICAR CORRECTAMENTE EL DERECHO, PARA LO CUAL ES NECESARIO QUE EL JUZGADOR CUENTE CON LOS CONOCIMIENTOS Y EXPERIENCIA SUFICIENTES QUE PERMITAN ALCANZAR ESA META DE ADMINISTRAR JUSTICIA DE MANERA REAL Y EFECTIVA.
+
+
+## Propuestas
+
+- AGILIZAR PROCEDIMIENTOS. EXISTEN DIVERSOS PROCEDIMIENTOS DENTRO DE LOS JUICIOS, RECURSOS, INCIDENTES Y DEMÁS MEDIOS DE ACCESO A LA FUNCION JURISDICCIONAL, EN LOS CUALES SE REQUIEREN TRAMITES QUE PUEDEN REDUCIRSE O HACERSE MAS RÁPIDOS Y EXPEDITOS. LO CUAL PUEDE LOGRARSE REUNIENDO DIVERSOS TRAMITES EN UNO SOLO, Y EN LA MEDIDA EN QUE SE PUEDA DESARROLLAR CORRECTAMENTE UN PROCESO, HACER INNECESARIAS INSTANCIAS O TRAMITES DILATORIOS QUE SOLO RETARDAN Y HACEN MAS COMPLEJA LA FUNCION.
+- UTILIZAR CORRECTAMENTE LA TECNOLOGÍA Y EFICIENTAR AL RECURSO HUMANO. GRAN PARTE DE LOS RETARDOS EN LA RESOLUCION DE LOS JUICIOS, RADICA EN LOS DISEÑOS Y FORMALIDADES EN LAS ACTUACIONES EN JUICIO Y PORQUE FALTAN MEDIOS ELECTRONICOS ADECUADOS DE COMUNICACION Y PARA REVISAR EXPEDIENTES Y CON ELLO SE REDUZCAN LOS TIEMPOS EN QUE SE EMITE UN ACTO Y SE HACE DEL CONOCIMIENTO DE LAS PARTES. ADEMÁS, EL PERSONAL CORRESPONDIENTE PUEDE SER MAS EFICAZ SI LA TECNOLOGÍA PUEDE REALIZAR CIERTAS FUNCIONES RAPIDAS.
+- SIMPLIFICAR CRITERIO NORMATIVOS. EXISTEN CONDICIONES, PROCEDIMIENTOS O DILACIONES QUE SE GENERAN A PARTIR DE CIERTOS CRITERIOS QUE TIENDEN A REGULAR ASPECTOS QUE EN REALIDAD SON COMPLEMENTARIOS EN LOS JUICIOS, RECURSOS, TRAMITES, ETC., POR TANTO, ES NECESARIO HACER UNA REVISION DE MANERA QUE SE PERMITAN UNIFICAR AQUELLOS QUE SON REPETITIVOS Y QUE PUDIERAN ENTORPECER O HACER MAS TARDADA LA SOLUCIÓN DE LAS CONTROVERSIAS. LO QUE ADEMAS MEJORA DE MANERA SIGNIFICATIVA LA FUNCION JURISDICCIONAL.
+

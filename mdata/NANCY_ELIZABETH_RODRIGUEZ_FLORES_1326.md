@@ -1,0 +1,75 @@
+Nombre Candidato: NANCY ELIZABETH RODRIGUEZ FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 4432061451
+Correo Electronico: nerf1202@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Argumentación Jurídica, Cortes Constitucionales, DDHH, Derecho Electoral, Diplomado, Especialista, Estado de Derecho, Género, Justicia Administrativa, Justicia Electoral, Maestra., Máster, Representación Proporcional, Retórica
+Tags Propósito: DDHH, acceso a la justicia, agilización, burocracia, certeza jurídica, confianza institucional., derechos humanos, estabilidad, función judicial, género, impacto social, independencia judicial, interculturalidad, justicia, lenguaje claro, procesos judiciales, resolución de conflictos, transparencia
+
+
+## Descripción del Candidato 
+
+Nancy Elizabeth Rodríguez Flores es candidata a Magistratura de Tribunales Colegiados de Circuito por Nuevo León, postulándose a través del Poder Legislativo Federal. Abogada con Maestría en Derecho Electoral, Especialista en Justicia Electoral y Máster en DDHH con perspectiva de género, cuenta con 18 años de trayectoria como funcionaria judicial.
+
+Su motivación para aspirar al cargo es continuar trabajando por la justicia y los derechos humanos. Propone agilizar los procesos judiciales para reducir rezagos, emitir sentencias en un lenguaje claro y accesible, y fortalecer el razonamiento jurídico con un enfoque en derechos humanos, género e interculturalidad, buscando un impacto social más amplio en sus decisiones.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BrFqM7CVL/?mibextid=wwXIfr
+- https://x.com/lnancyelizabeth?s=21&t=LZBQnL8zEmSkXIo-SRxCBQ
+- https://www.instagram.com/nancy.rodriguez.f?igsh=MW1yOWU2dWxjeXUzYQ3D3D&utm_source=qr
+- https://www.tiktok.com/@nancy.elizabeth.rgz?_t=ZM-8ur6uyf0DeH&_r=1
+
+
+## Cursos
+
+- Diplomado en Retórica y Argumentación Jurídica,en Materia de Justicia Administrativa,Taller ¿Otras Cinco Lecciones Mexicanas¿, Dr
+- Michele Taruffo,¿Seminario Internacional: Cortes Constitucionales y Estado de Derecho¿,Taller ¿Representación Proporcional¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55270/10
+
+
+## Trayectoria Academica
+
+- Abogada, Maestra en Derecho Electoral, Especialista en Justicia Electoral y Máster en DDHH con perspectiva de género
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo 18 años como funcionaria judicial y ser magistrada es mi aspiración para seguir trabajando por la justicia y DDHH.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser juez es garantizar que la justicia sea clara, imparcial y humana. La función jurisdiccional no es solo aplicar la ley, sino equilibrarla con la realidad social para resolver conflictos con sentido de justicia. Un Poder Judicial independiente y cercano fortalece la confianza en las instituciones. Mi compromiso es asegurar decisiones bien fundamentadas, accesibles y enfocadas en proteger los derechos de todas las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un compromiso y responsabilidad con la sociedad. Significa garantizar que todas las personas puedan hacer valer sus derechos en un sistema confiable y accesible. Requiere decisiones imparciales, claras y con sentido humano. En un momento de transformación judicial, es fundamental que cada resolución aporte estabilidad, certeza y una verdadera protección a quienes buscan justicia.
+
+
+## Propuestas
+
+- Justicia sin demoras. Cuando las sentencias tardan, la justicia se pierde. Propongo agilizar los procesos y reducir rezagos para que las soluciones lleguen a tiempo. Esto significa menos burocracia, más transparencia y un acceso real a la justicia para trabajadores y empleadores.
+- Justicia clara. Las sentencias deben ser entendibles para todas las personas. Propongo utilizar un lenguaje claro y accesible, sin tecnicismos, entendible para cualquier persona sin importar sus conocimientos especializados, para que cada resolución brinde certeza y confianza en la justicia.
+- Justicia con impacto social. Cada decisión debe ir más allá del caso concreto. Fortalecer el razonamiento con enfoque en derechos humanos, género e interculturalidad garantiza que la justicia no solo resuelva conflictos, sino que ayude a construir una sociedad más justa.
+

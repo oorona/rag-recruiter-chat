@@ -1,0 +1,75 @@
+Nombre Candidato: ROSA ELENA GONZALEZ TIRADO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5637884770
+Correo Electronico: rosaelenagonzalezt@gmail.com
+Numero de lista en boleta: 14
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó información.
+Tags Propósito: No proporcionó, ausencia, nulo, silencio., vacío
+
+
+## Descripción del Candidato 
+
+Rosa Elena Gonzalez Tirado es candidata a Ministra/o de la Suprema Corte de Justicia de la Nación, postulada por el Poder Judicial de la Federación. Aparece en la boleta con el número 14.
+
+La candidata cuenta con presencia en redes sociales a través de plataformas como Facebook, X (antes Twitter), Instagram, YouTube y TikTok. No se dispone de información sobre su formación académica, trayectoria profesional, motivaciones para postularse al cargo, o propuestas específicas en materia de función jurisdiccional e impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16EzJ6DUjm/?mibextid=wwXIfr
+- https://x.com/rosaelenagt
+- https://www.instagram.com/rosaelenagonzalezt
+- https://www.youtube.com/@rosaelenagonzalezt
+- https://www.tiktok.com/@rosaelenagonzalezt
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

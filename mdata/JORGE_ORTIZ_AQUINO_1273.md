@@ -1,0 +1,75 @@
+Nombre Candidato: JORGE ORTIZ AQUINO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 5659071306
+Correo Electronico: ortizaquinojorge@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarios, Defensa Penal, Derecho Penal, Derecho Procesal Penal, Doctorado, Doctrina Constitucional, Experiencia Profesional., Formación Judicial, Juicio de Amparo, Maestría, Perspectiva de Género, Poder Judicial de la Federación, Secretarios
+Tags Propósito: Accesibilidad a la justicia, Apego a la ley, Ausencia de manipulación, Confianza ciudadana, Derechos humanos, Derechos humanos en juicios, Eficiencia judicial, Equilibrio social, Igualdad ante la ley., Inclusión, Institucionalidad, Justicia imparcial, Justicia itinerante, Orden público, Perspectiva de género, Protección de vulnerables, Respeto al Estado, Revisión de juicios, Tecnología en justicia, Transparencia, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Jorge Ortiz Aquino es candidato a Magistrado de Tribunales Colegiados de Circuito en Morelos, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal y se encuentra en proceso de Doctorado en Derecho Penal, con 15 años de experiencia profesional. Su motivación para buscar el cargo es su vocación de servicio y transparencia.
+
+En su visión, busca recuperar el respeto y la honorabilidad del Estado a través de una función jurisdiccional que proteja los derechos humanos, restaure la confianza en los tribunales y promueva un equilibrio social. Sus propuestas incluyen la armonización del personal judicial, el uso de la tecnología para facilitar el acceso a la justicia, especialmente para los más vulnerables, y el fomento de la inclusión y perspectiva de género entre los servidores públicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1CKJyVj4Qc/?mibextid=qi2Omg
+- https://x.com/JorgeOr95915989?t=-UfPWGWUjM5a6pcQHDIYNQ&s=08
+- https://www.instagram.com/ortizaquinojorge?igsh=MTVqZW9nYzliZnp5bg==
+- https://www.tiktok.com/@ortiz.aquino.jorge?_t=ZM-8uzc4AAdTQT&_r=1
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de secretarios del Poder Judicial de la Federación, Estudios de Especialidad,Curso de Formación para personas Actuarias del Poder Judicial de la Federación: Primer Concurso Escolarizado,Especialidad en Defensa Penal Tercera Edición,Curso Sobre El Juicio De Amparo, impartido por la Escuela Federal de Formación Judicial,Taller de actualización sobre doctrina constitucional ¡Juzgar con perspectiva de género!
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54471/10
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho Procesal Penal, Doctorante en Derecho Penal, con 15 años de experiencia profesional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque considero tener la vocacion de servir y hacer la diferiencia para el pueblo, siendo totalmente transparente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es poder lograr recuperar el respeto y la honorabilidad del Estado a través de las personas encargadas de decir y aplicar el derecho, para que se pueda restaurar la confianza del pueblo en sus Juzgadores y no tengan miedo de acudir a los Tribunales, siendo protector de los derechos humanos de las personas que forman parte de este país, buscando un equilibrio social, así como el orden público y participe de manera integral con las demás instituciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es que sea totalmente ajena a compromisos, transparente, accesible, donde que la excusa económica no sea un pretexto u obstáculo para que las personas tengan ese acercamiento con los tribunales, que tenga el pueblo la certeza de que contaran con una resolución protectora de derechos humanos, vigilando en todo momento a los más vulnerables y que en caso de que el pueblo no pueda ir a un Tribunal que sea el Tribunal que se acerque a ellos.
+
+
+## Propuestas
+
+- Buscar la armonización del personal en los Tribunales, para lograr una mayor eficiencia en las sentencias, con total apego al orden constitucional, en conjunto con las normas que emanen de ella, fortaleciendo en todo momento los derechos humanos en la revisión de los juicios, garantizando la ausencia de manipulación y evitando así un resultado injusto.
+- Darle mayor participación a la tecnología, de la pandemia aprendimos que la impartición de justicia dentro de la función jurisdiccional pueden ser herramientas que conjuntamente logren ese acercamiento a las personas más vulnerables, derrotando todo tipo de obstáculo que impidan un acceso a la justicia.
+- Buscar el acercamiento con las diversas instituciones gubernamentales para que los servidores públicos aprendamos el lenguaje de la inclusión y perspectiva de género, garantizando así la igual ante la ley.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: ROSA AURORA ESPEJEL PRADO
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2223253118
+Correo Electronico: rauroraespejel@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Derecho Empresarial, Derecho Fiscal, Derechos Niñez Adolescencia, Diplomado, Juicio de Amparo, Justicia Penal Adolescentes, Maestría, Mención Honorífica, Perspectiva de Género, Sistema Penal Acusatorio, Universidad Iberoamericana
+Tags Propósito: carga laboral, confianza ciudadana, derechos humanos, dilación procesal, eficiencia, estado de derecho, formación de jueces., gestión judicial, guías judiciales, imparcialidad, independencia judicial, interseccionalidad, justicia, legalidad, litigación oral, objetividad, perspectiva de género, sensibilidad social, sistema penal acusatorio, transparencia, tutela judicial efectiva, valoración de la prueba
+
+
+## Descripción del Candidato 
+
+Rosa Aurora Espejel Prado es candidata a Jueza/es de Distrito en Puebla, postulándose para el Poder Ejecutivo y Legislativo Federal. Abogada con maestría en derecho fiscal y empresarial por la Universidad Iberoamericana, Puebla, cuenta con diversos diplomados en áreas como juicio de amparo, sistema penal acusatorio, perspectiva de género y derechos de la niñez y adolescencia. 
+
+Su motivación para el cargo se centra en contribuir a una justicia imparcial, eficaz y garante de derechos humanos.  Propone fortalecer la independencia judicial mediante mecanismos de protección contra injerencias, optimizar la gestión de la carga laboral redistribuyendo los casos de manera equitativa y reducir la dilación procesal mediante la mejora de la gestión judicial y la formación continua de jueces en técnicas de litigación oral.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1HVXUVDXuQ/?mibextid=wwXIfr
+- https://x.com/rosa_auroraep?s=21
+- https://www.instagram.com/rosa_auroraesp?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
+- https://www.tiktok.com/@rosa.aurora.espejel?_t=ZM-8uwD43tBAuL&_r=1
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo,Diplomado en Actualización en el Sistema Penal Acusatorio,Diplomado en Perspectiva de Género,Diplomado en Justicia Penal para Adolescentes,Diplomado en Derechos de Niñas, Niños y Adolescentes
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52946/11
+
+
+## Trayectoria Academica
+
+- Abogada titulada con mención honorífica y maestra en derecho fiscal y empresarial por la Universidad Iberoamericana, Pue
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser jueza federal porque puedo contribuir a que la justicia sea imparcial, eficaz, garante de derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la base esencial del Estado de derecho; el órgano jurisdiccional debe ser un ente profesional que actúe con respeto irrestricto a la Constitución y las normas que protegen los derechos humanos, quien tiene la obligación de garantizar tutela judicial efectiva, juzgar con perspectiva de género e interseccionalidad y resolver con independencia, imparcialidad, objetividad y, sensibilidad social, teniendo que fundamentar y motivar sus determinaciones con rigor jurídico.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser independiente, accesible y estar orientada al respeto de los derechos humanos, con sensibilidad social. En un contexto donde la percepción de ineficacia e impunidad persiste en el procedimiento penal, la persona juzgadora debe ser garante de la legalidad y actuar con objetividad, imparcialidad y transparencia. Solo así se consolidará un sistema penal acusatorio eficaz y legítimo, capaz de generar confianza en la ciudadanía y fortalecer el Estado de derecho.
+
+
+## Propuestas
+
+- Independencia judicial. Es fundamental garantizarla mediante mecanismos que protejan a las personas juzgadoras de injerencias externas y presiones internas, a través de un sistema de supervisión de sus funciones basado en la confianza y no en la duda, lo que permitirá que, para el caso de que exista intimidación, amenaza, acoso o cualquier otra forma de intrusión contra éstas, sean escuchadas y atendidas por el órgano de disciplina con presunción de honestidad, salvo prueba en contrario.
+- Optimizar la gestión de carga laboral. Redistribuir los asuntos mediante criterios objetivos para mejorar su distribución equitativa entre las personas juzgadoras, evitando acumulaciones desproporcionadas. Si es necesario, ampliar la plantilla de personal de apoyo para hacer eficiente su asignación, a fin de optimizar el reparto de tareas administrativas, con el propósito de permitir a la persona juzgadora mayor dedicación a cada caso en su aspecto meramente jurisdiccional y evitar el rezago.
+- Reducción de la dilación procesal. Mejorar la gestión judicial a través de la aplicación de las guías judiciales de conducción de audiencias, permitirá reducir tiempos, mejorar la calidad de las resoluciones, garantizando el derecho de acceso a una justicia pronta y expedita. Fortalecer la formación de jueces en técnicas de litigación oral y valoración racional de la prueba, permitirá que los debates sean objetivos y las resoluciones judiciales sean puntuales y precisas.
+

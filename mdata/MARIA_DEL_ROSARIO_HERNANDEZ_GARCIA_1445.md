@@ -1,0 +1,75 @@
+Nombre Candidato: MARIA DEL ROSARIO HERNANDEZ GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2222996989
+Correo Electronico: chatrohg@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Empresarial, Derecho Fiscal, Formación, Ibero Puebla, Poder Judicial de la Federación, Preparación., Tribunal Federal de Justicia Administrativa, Universidad Veracruzana, Violencia de Género
+Tags Propósito: Certeza jurídica., Confianza ciudadana, Especialización jurisdiccional, Imparcialidad, Inversión extranjera, Justicia social, Lenguaje claro, Poder Judicial sólido, Realidades contemporáneas, Resolución de conflictos, Responsabilidad, Seguridad jurídica, Transformación del derecho
+
+
+## Descripción del Candidato 
+
+MARIA DEL ROSARIO HERNANDEZ GARCIA es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Fiscal y Empresarial Ibero Puebla y Licenciatura en Derecho por la Universidad Veracruzana. Su formación incluye cursos en juicio en línea, violencia de género y formación para el Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo es contribuir con sus conocimientos a la mejora del país. En cuanto a su visión, propone una función jurisdiccional con mayor sentido social y cercana a la ciudadanía, así como una impartición de justicia que se adapte a las realidades contemporáneas y genere confianza. Sus propuestas principales incluyen el empleo de lenguaje claro en las actuaciones judiciales, priorizar la resolución de conflictos sobre formalismos, y la especialización de los órganos jurisdiccionales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ma.delrosariohernandezg
+- https://www.x.com/ma_rosario_hdz
+- https://www.instagram.com/ma.delrosariohernandezgarcia?igsh=MWhoNWE2ZTZnajJlZA==
+- https://www.tiktok.com/@ma.delrosariohernandezg
+
+
+## Cursos
+
+- Juicio en línea por el actual Tribunal Federal de Justicia Administrativa
+- ,Diplomado Violencia de Género,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54011/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la Universidad Veracruzana y Maestría en Derecho Fiscal y Empresarial Ibero Puebla
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con las ganas y los conocimientos para, desde el cargo de Magistrada, contribuir a hacer de México un país mejor
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estimo que la función jurisdiccional debe tener más sentido social, ser más cercana a las ciudadanas y los ciudadanos. Una persona juzgadora debe en todo momento tener presente que sus decisiones impactan en la vida de las personas. Es una función que debe realizarse con imparcialidad, objetividad y sobre todo con responsabilidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es necesario transformar el derecho para adaptarlo a las realidades contemporáneas, sin perder de vista el respeto por las normas. La impartición de justicia es clave para generar seguridad y confianza en la ciudadanía. Un Poder Judicial sólido favorece a las inversiones extranjeras en nuestro país porque genera certeza para los inversionistas.
+
+
+## Propuestas
+
+- Empleo del lenguaje claro en las actuaciones judiciales, palabras que sean entendibles para todos los ciudadanos.
+- Privilegiar la resolución de los conflictos frente a los formalismos procedimentales.
+- Especialización de los órganos jurisdiccionales
+

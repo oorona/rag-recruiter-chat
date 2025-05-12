@@ -1,0 +1,76 @@
+Nombre Candidato: ISELA ESTEFANIA BUENO GALLEGOS
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: 4435281122
+Correo Electronico: iselaestefania@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Congreso, Derecho Constitucional, Derecho Procesal, Derechos Humanos, Desarrollo, Doctorado, Educación, Interdisciplinario., Licenciatura, Maestría, Mercosur, Políticas Públicas, Razonamiento Probatorio, Seminario
+Tags Propósito: Acceso a la justicia, Administración de justicia, Bienestar social, Constitucionalismo, Constitución, Derechos humanos, Desigualdad, Exclusión social, Formalismos, Grupos vulnerables, Igualdad sustantiva, Instituciones, Justicia, Madres solteras., Protección, Salud, Violencia, Zonas rurales
+
+
+## Descripción del Candidato 
+
+Isela Estefanía Bueno Gallegos es candidata a Jueza/es de Distrito en Michoacán, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría y se encuentra cursando el Doctorado, con formación en Derecho Constitucional y Procesal Constitucional. Su trayectoria académica se complementa con cursos en Derechos Humanos, Derecho Procesal y Razonamiento Probatorio realizados en Costa Rica, Colombia, Panamá, Argentina y España.
+
+Motivada por convertir la labor jurisdiccional en un factor de bienestar social, Isela Bueno plantea una visión de la función jurisdiccional centrada en el impacto en la vida de las personas y propone un sistema de justicia más accesible, priorizando la protección de grupos vulnerables, la flexibilización de formalismos y la promoción de un Constitucionalismo que garantice la igualdad sustantiva y la mejora de las condiciones de vida de las personas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19b8tpFnH6/?mibextid=wwXIfr
+- https://www.instagram.com/isela_estefania_bueno?igsh=MWMydGN1NGtkY2NraA==
+- https://www.tiktok.com/@user51321542?_t=ZM-8v6EfNBrFZP&_r=1
+
+
+## Cursos
+
+- Curso Interdisciplinario en Derechos Humanos de la Corte Interamericana de Derechos Humanos, San José, Costa Rica,XXXVIII Congreso Colombiano de Derecho Procesal
+- Septiembre 2017, Cartagena, Colombia,Congreso Panameño de Derecho Procesal Constitucional, constitucionalización del ordenamiento jurídico
+- Ciudad de Panamá,Congreso Mundial sobre Razonamiento Probatorio
+- Junio 2018, Girona, España,Seminario Interdisciplinario en Derechos Humanos, Políticas Públicas y Desarrollo en el Mercosur, Rosario, Argentina
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52297/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho; Maestra en Derecho Constitucional; Maestra en Derecho Procesal Constitucional; y Doctorante
+
+
+## Motivo para buscar el Cargo Publico
+
+Por el compromiso de convertir la labor jurisdiccional en un factor de bienestar para los usuarios de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La labor que realiza el juez de amparo compromete la vida, la salud, el patrimonio, el trabajo o las relaciones familiares de las personas y que detrás de cada asunto, hay una persona o familia; por lo mismo, creo que a través de esta labor se puede contribuir al bienestar social y a generar herramientas para combatir los desafíos que plantean la violencia extendida, la exclusión social, la desigualdad extrema y la debilidad de muchas instituciones nacionales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Un sistema jurisdiccional que prescinda de excesivos formalismos que impiden un análisis real de la cuestión jurídica que se plantea en cada asunto; es apremiante generar herramientas que derriben los obstáculos para el verdadero acceso a la justicia. Desde cada órgano se deben generar mecanismos de trabajo y políticas de buena administración de justicia, lo que implica aperturar el acceso y entendimiento del sistema judicial no solo para licenciados, sino para el ciudadano común.
+
+
+## Propuestas
+
+- Impartición de justicia prioritaria y con énfasis de especial protección para grupos vulnerables. Generar consciencia de las situaciones y vulnerabilidades por las que se ven atravesadas muchas personas; las batallas diarias que luchan para acceder a los servicios básicos de salud, a los tratamientos vitales como las hemodiálisis, las quimioterapias; y de salud mental. Estar consciente de las precarizaciones que sufren algunas personas, sobre todo, las de las zonas rurales y madres solteras.
+- Flexibilizar el acceso a la justicia, evitando en lo posible establecer formalismos excesivos en perjuicio de los usuarios de justicia. Esta visión nos permite apostar por un verdadero acceso a la justicia e igualdad y sensibilizar con cada causa que compromete a los asuntos, y aunque ciertamente existen factores de estadística que deben satisfacerse para hacer efectiva la impartición de justicia, ello no debe ser motivo para no resolverlos con el mayor cuidado y a través de un profundo estudio.
+- Apostar por un Constitucionalismo para todos, que garantice los ideales nacionales de igualdad sustantiva y la mejora de condiciones para todas las personas. Implementado igualitariamente, el constitucionalismo puede erigirse como el instrumento detonador del cambio social profundo que elimine la desigualdad histórica que han sufrido los más vulnerables.
+

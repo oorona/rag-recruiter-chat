@@ -1,0 +1,75 @@
+Nombre Candidato: ROCIO AREVALO LERMA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA SUR
+Sexo: MUJER
+Telefono: 6121516442
+Correo Electronico: rocio.arevalo.333@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cadena de custodia, Ciencias políticas y sociales, Derechos humanos, Doctorado, Formación judicial, Licenciatura en Derecho, Maestría en Derecho, Nuevo sistema de justicia penal, Poder Judicial de la Federación, Preparatoria abierta., Violencia
+Tags Propósito: Accesibilidad, Acceso a la justicia, Ciudadanía., Estadísticas, Función jurisdiccional, Grupos vulnerables, Poder Judicial, Protección de datos, Puertas abiertas, Rendición de cuentas, Transformación, Transparencia
+
+
+## Descripción del Candidato 
+
+Rocío Arelavo Lerma es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal para Baja California Sur. Cuenta con Maestría en Derecho, actualmente cursando el Doctorado en Ciencias Políticas y Sociales, y posee cédula profesional. Su formación incluye diversos cursos y diplomados impartidos por el Poder Judicial de la Federación en áreas como cadena de custodia, derechos humanos y el nuevo sistema de justicia penal.
+
+La candidata manifiesta como motivación para buscar el cargo la participación en la transformación del Poder Judicial de la Federación. Su visión se centra en un Poder Judicial accesible y transparente, con énfasis en el acceso a la justicia para grupos vulnerables y la rendición de cuentas a través de estadísticas. Sus propuestas clave incluyen la transparencia en la función jurisdiccional, la publicación mensual de estadísticas de trabajo y la apertura de los tribunales a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/rocioarevalo/
+- https://www.x.com/rocioareva33830/
+- https://www.instagram.com/rocioarevalo/
+- https://www.tiktok.com/rocioarevalobcs/
+
+
+## Cursos
+
+- CURSO DENOMINADO ¿CADENA DE CUSTODIA¿ IMPARTIDO POR EL PODER JUDICIAL DE LA FEDERACIÓN (2013),DIPLOMADO EN DERECHOS HUMANOS IMPARTIDO POR EL PODER JUDICIAL DE LA FEDERACIÓN (2014),DIPLOMADO EN EL NUEVO SISTEMA DE JUSTICIA PENAL IMPARTIDO POR EL PODER JUDICIAL DE LA FEDERACIÓN (2015),CURSO BÁSICO PARA PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN IMPARTIDO POR EL INSTITUTO DE LA JUDIC,CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA ¿ I
+- ESCUELA FEDERAL DE FORMACIÓN JUDICIAL (OCTUBRE DE 2022)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52305/10
+
+
+## Trayectoria Academica
+
+- Preparatoria abierta, Licenciatura en Derecho; Maestría en Derecho y Doctorante en Ciencias Políticas y Sociales
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser parte de la transformación del Poder Judicial de la Federación
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Poder Judicial de la Federación accesible y transparente; en la que las personas usuarias y no usuarias del sistema judicial conozcan la función que se desarrolla en el ámbito jurisdiccional; siempre respetando la protección de datos personales, conozcan los asuntos de mayor relevancia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Acceso a la justicia a los grupos mas vulnerables y rendición de estadísticas de trabajo.
+
+
+## Propuestas
+
+- Transparencia en la función jurisdiccional
+- Rendición de estadística mensual a la ciudadanía
+- Puertas abiertas del tribunal
+

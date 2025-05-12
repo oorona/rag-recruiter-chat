@@ -1,0 +1,87 @@
+Nombre Candidato: LENIA BATRES GUADARRAMA
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5573909265
+Correo Electronico: ministradelpueblo@gmail.com
+Numero de lista en boleta: 3
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Constitución Española, Cámara de Diputados, Derecho, Derecho Parlamentario, Doctorado, Estudios Electorales, Estudios Socio Jurídicos, Estudios de la Ciudad, Gestión Pública, Land Policy, Licenciatura., Lincoln Institute, Maestría, Suelo Urbano, UNAM, Universidad Autónoma Metropolitana, Universidad Autónoma de la Ciudad de México, Universidad Complutense, Universidad Iberoamericana
+Tags Propósito: acceso a la justicia, austeridad, constitución, contexto social, defensoría pública, derechos humanos, derechos sociales, economía, eficiencia, igualdad, justicia distributiva, justicia social, recursos públicos, remuneración justa., servicio público, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+LENIA BATRES GUADARRAMA es candidata a un puesto en la Suprema Corte de Justicia de la Nación, con número 3 en la boleta. Cuenta con estudios de doctorado y una amplia trayectoria académica en Derecho y Estudios de la Ciudad, además de formación en gestión pública. Su motivación para buscar el cargo público es el servicio a la ciudadanía, enfocándose en solucionar problemas que impiden el ejercicio de derechos.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia prioriza la protección de los derechos humanos, especialmente los derechos sociales, y busca un Poder Judicial más cercano a la ciudadanía, con énfasis en la justicia social, el acceso a la justicia a través de defensorías públicas y una administración austera y transparente de los recursos. Sus propuestas clave incluyen la formulación de criterios jurisdiccionales que coadyuven a garantizar derechos económicos, sociales y culturales, así como la priorización del fondo sobre la forma en las sentencias.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://leniabatres.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/LeniaBatres1
+- https://x.com/LeniaBatres
+- https://www.instagram.com/leniabatres/
+- https://www.youtube.com/LeniaBatresGuadarrama
+- https://www.tiktok.com/@leniabatresg
+- https://linktr.ee/ministradelpueblo
+
+
+## Cursos
+
+- Diplomado en Estudios Socio Jurídicos de Suelo Urbano
+- UNAM, IIJ, y Lincoln Institute Land Policy
+- ,Curso de verano: La Constitución Española, veinte años después
+- Universidad Complutense de Madrid
+- ,Diplomado en Estudios de la Ciudad
+- Universidad Autónoma de la Ciudad de México
+- ,Diplomado en Estudios Electorales
+- Universidad Autónoma Metropolitana Iztapalapa
+- ,Diplomado en Derecho Parlamentario
+- Universidad Iberoamericana y Cámara de Diputados
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/4103/6
+
+
+## Trayectoria Academica
+
+- Licenciada, maestra y doctorante en Derecho
+- Maestra en Gestión Pública
+- Maestra y doctorante en Estudios de la Ciudad
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir al pueblo. El servicio público debe solucionar los problemas que impiden el ejercicio de derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Esta función del Estado dirigida a garantizar la aplicación de la ley en los casos en que una persona o un colectivo considera violentados sus derechos debe proteger principalmente los derechos humanos, empezando por los derechos sociales. Las personas juzgadoras deben dejar de verse como funcionarias de élite nombradas por mérito individual. Tienen que asumirse como personas servidoras públicas capaces de cumplir su función conforme a la ley, con humildad, honradez y vocación de servicio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar el cumplimiento de la norma con apego a la Constitución; debe entender los actos y hechos que se juzgan conforme al contexto social en que ocurren; debe distinguir las condiciones de desigualdad entre las partes en conflicto; debe ajustarse a la letra de la ley y, en caso de duda o necesidad de interpretación, resolver en favor del más débil, y debe tener como horizonte el ejercicio de los derechos humanos, iniciando por los derechos sociales.
+
+
+## Propuestas
+
+- Justicia social. Nadie puede ejercer derechos y libertades individuales si no tiene resueltas sus necesidades básicas. El Poder Judicial debe contribuir a combatir la principal injusticia de la sociedad: la desigualdad. Debe formular criterios jurisdiccionales que coadyuven a garantizar los derechos económicos, sociales y culturales: educación, salud, vivienda, alimentación, agua, trabajo, seguridad social, cultura y medio ambiente sano, en armonía con las facultades de los otros poderes.
+- Acceso a la justicia. Organización de defensorías públicas, comisiones de derechos humanos y procuradurías en la defensa y representación de la ciudadanía en general para garantizar que toda persona tenga la posibilidad de denunciar o defenderse en juicio. Articular en el Poder Judicial instrumentos pedagógicos y formularios accesibles para permitir la actuación de la ciudadanía en los juicios o alguna de sus etapas en que sea posible. En las sentencias, privilegiar el fondo sobre la forma.
+- Austeridad. Apego a la obligación de administrar los recursos del Poder Judicial con eficiencia, eficacia, economía, transparencia y honradez. Priorizar el uso del presupuesto en el adecuado servicio de justicia, tanto en infraestructura para atender al público, como en el desarrollo de instrumentos que faciliten su acceso. Apego a la obligación de otorgar remuneraciones adecuadas y proporcionales conforme al límite constitucional. Erradicar abusos y privilegios para titulares y alta burocracia.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE GUADALUPE TORRES RODRIGUEZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8117789571
+Correo Electronico: jgtorresrdz@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración Pública, Amparo, Delitos Alto Impacto, Derecho Administrativo Disciplinario, Derecho Civil, Derecho Familiar, Derecho Mercantil, Derecho Penal, Derecho Procesal Penal, Derecho Sancionador, Derechos Humanos, Doctorado, Finanzas, Juicios Orales., Legalidad, Litigación Penal, Procedimiento Sancionador, Responsabilidades Administrativas, Sistema Acusatorio, Teoría del Delito
+Tags Propósito: Acceso a la justicia, Amparo, Certeza jurídica, Combate a la impunidad, Corrupción, Cultura de respeto, Derechos humanos, Dignidad, Eficiencia, Estado de derecho, Firma electrónica, Fondo sobre forma, Igualdad, Justicia humana, Legalidad, No complicidad., Profesionalismo, Puertas abiertas, Rectitud, Simplificación trámites, Suplencia de queja, Transparencia, Tratados internacionales, Vulnerables
+
+
+## Descripción del Candidato 
+
+José Guadalupe Torres Rodríguez es candidato a Juez de Distrito en Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría y cédula profesional, complementada por una amplia formación en diversas áreas del derecho, incluyendo el amparo, derechos humanos, litigación penal y administración pública, además de estar en trámite de Doctorado.
+
+Su candidatura se basa en la búsqueda de una justicia más humana y sensible, con un enfoque en la legalidad, la defensa de los derechos humanos, y la protección de los más vulnerables. Sus propuestas incluyen una política de puertas abiertas para facilitar el acceso a la justicia, priorizar el fondo sobre las formas en los juicios, y una aplicación amplia de los derechos humanos establecidos en tratados internacionales. Busca optimizar los recursos para lograr procesos judiciales más rápidos y eficientes, combatir la impunidad y fomentar una cultura de respeto a los derechos humanos y confianza en las instituciones.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19AaVmtFQE/?mibextid=wwXIfr
+- https://www.instagram.com/jose.torresrdz?igsh=MTJ6bzQ5MDN3NXBzZw3D3D&utm_source=qr
+
+
+## Cursos
+
+- Diplomado Amparo, Diplomado Derechos Humanos, Diplomado Estrategias de Litigación Penal, Diplomado Derecho Sancionador
+- ,Maestría Amparo, Diplomado Administración Pública y Finanzas, Diplomado Derecho Civil, Mercantil, Familiar, Doctorante,Diplomado en Derecho Procesal Penal, Seminario en Delitos Alto Impacto, Seminario Legalidad, Taller Teoría del Delito
+- ,Taller Derecho Administrativo Disciplinario, Taller de Introducción al Procedimiento Especial Sancionador, Taller Datos,Diplomado en Responsabilidades Administrativas de los Servidores Públicos, Diplomado Derecho Sancionador Iberoamericano
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55465/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Maestría en Derecho Penal; Maestría en Sistema Acusatorio y Juicios Orales; Doctorante (trámite)
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi aspiración se sustenta en buscar una justicia más humana y sensible a las necesidades de la población. Legalidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Comprometido con la defensa de los derechos humanos, la igualdad y la dignidad de todos los mexicanos, siendo este último valor, la puerta de entrada al acceso del resto de los derechos fundamentales. Con 44 años de experiencia en el sector jurídico, he visto de cerca las desigualdades y las injusticias que afectan a nuestros compatriotas. Como Objetivo ser centinela por el respeto a los derechos humanos y las libertades fundamentales. Protección a los más vulnerables niños, adultos mayores.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Administrar el Acceso a la Justicia más cerca de los abogados y los ciudadanos, con sensibilidad humana, y justicia social, optimizar novando recursos para trasformar los procesos en rapidez y eficiencia. Combatir la impunidad y la corrupción; formación de una cultura de respeto a los Derechos Humanos y Confianza en las Instituciones; buscando un Estado de Derecho, que genere certeza jurídica para la población en general y para los operadores de la justicia.
+
+
+## Propuestas
+
+- Política de Puertas abiertas, para todo aquél que busque acceso a la justicia; se establecerán tres días a la semana con horarios definidos para entrevista con el Juez; se asesorará a todo abogado para la obtención de firma electrónica; se suprimirán requisitos excesivos para los trámites de los procedimientos; respeto, cordialidad y calidez total en el trato diario a todo aquél que se presente en el recinto judicial. Tus problemas también serán los nuestros.
+- Se juzgará otorgando prioridad juzgando el fondo sobre las formas, se suprimirán las causales de improcedencia en el juicio de amparo, buscando siempre juzgar sobre lo peticionado, se suplirá la deficiencia de la queja, siempre que esta proceda para ampliar y que se hagan efectivos el respeto el Derecho Humano de dignidad, legalidad, el acceso a una justicia, rápida, completa y expedita. Se harán efectivos los plazos señalados en la ley para resolver en definitiva.
+- Los Derechos Humanos que se encuentra establecidos en los Tratados Internacionales de ser más amplios a los que reconoce nuestra Constitución Política, se aplicarán sin restricción, interpretando la norma en el sentido más amplio que pueda generar el respeto a los derechos del quejoso, se exigirá a toda autoridad que cumplan con su deber legal, de actuar con profesionalismo y rectitud, NO se actuará como cómplice de las arbitrariedades de ninguna autoridad, Municipal, Estatal o Federal.
+

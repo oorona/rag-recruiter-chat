@@ -1,0 +1,84 @@
+Nombre Candidato: EDUARDO SANTILLAN PEREZ
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5511561433
+Correo Electronico: eduardo.santillanp1@gmail.com
+Numero de lista en boleta: 60
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Adicciones, Compromiso Social, Distrito Federal, Doctor Honoris Causa, Facultad de Derecho, Genesis y Evolución., Locutores, Procuración de Justicia, Trayectoria, UNAM, Valor Policial
+Tags Propósito: Acceso a la Justicia, Constitución., Corrupción, Derechos Humanos, Eficiencia, Equidad, Equilibrio de Poderes, Estado de Derecho, Género, Imparcialidad, Impunidad, Justicia, Libertad, Poder Judicial, Protección a Víctimas, Pueblo, Suprema Corte, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+EDUARDO SANTILLAN PEREZ es candidato a Ministra/o de la Suprema Corte de Justicia de la Nación, postulado por el Poder Ejecutivo Federal, apareciendo en la boleta con el número 60. Cuenta con licenciatura y un Doctor Honoris Causa, además de diversos reconocimientos por su compromiso social y labor en el ámbito de la justicia. 
+
+Su candidatura se basa en su participación en el proceso de transformación actual, buscando ahora trabajar para que la justicia esté al servicio del pueblo.  Su visión para el Poder Judicial se centra en una justicia accesible, honesta, imparcial y con perspectiva de género, enfocada en eliminar la impunidad, la corrupción y garantizar la protección de los derechos humanos. Sus propuestas incluyen una Suprema Corte que garantice el equilibrio de poderes, fomente la colaboración entre ellos y garantice el acceso a la justicia para todas las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+http://www.eduardosantillan.org/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/EduardoSantillanP
+- https://x.com/santillanpe1
+- https://www.instagram.com/eduardosantillanperez/
+- https://www.youtube.com/@eduardosantillan139
+- https://www.tiktok.com/@eduardosantillan82
+
+
+## Cursos
+
+- Título Doctor Honoris Causo
+- Instituto Mexicano de Líderes de Excelencia
+- 11 de marzo de 2016
+- ,Reconocimiento por su compromiso social y apoyo constante en la lucha contra los adicciones
+- Centros de Integración,Premio al mérito en Procuración de Justicia y al Valor Policial
+- Asociación Nacional de Locutores de México A
+- C
+- ,Presea Flores por su destocada trayectoria y compromiso con los de Prenso y
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/256/6
+
+
+## Trayectoria Academica
+
+- UNAM
+- FACULTAD DE DERECHO
+- GENERACIÓN EXAMEN PROFESIONAL 1998 GÉNESIS Y EVOLUCIÓN DEL DISTRITO FEDERAL
+
+
+## Motivo para buscar el Cargo Publico
+
+He formado parte de la transformación; ahora quiero trabajar para que la Justicia esté al servicio del Pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+México requiere personas juzgadoras comprometidas con una justicia, que tengan los conocimientos jurídicos y los principios éticos y morales que les permitan actuar con apego a la ley, respetando los derechos humanos, en defensa de los derechos y libertades, que escuchen y sean empáticos, con perspectiva de género, honestos, sin lujos o privilegios; que trabajen coordinadamente con las diversas áreas del gobierno, que actúen con imparcialidad, independencia, objetividad y profesionalismo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impunidad y la corrupción son los dos principales retos a vencer en la impartición de justicia, la ciudadanía considera que la justicia es lenta, cara, inaccesible para las personas de escasos recursos, necesitamos trabajar para que la justicia no sea un artículo de lujo, sino un derecho al alcance de todas las personas; que no sea necesario dar un para recibir justicia, que las víctimas se sientas protegidas por el Estado y que quienes violan la ley sepan que serán sancionadas.
+
+
+## Propuestas
+
+- El proceso de transformación hace necesario un cambio al Poder Judicial para que sea un instrumento del pueblo en la construcción de una sociedad más justa y equitativa; una justicia que forme parte de un proyecto amplio de Nación, en donde la justicia sea un hábito cotidiano. Justicia honesta que elimine la impunidad, la corrupción y haga efectivo sus derechos.
+- Una justicia para todas y todos, que no sea una mercancía de lujo para los privilegiados sino un derecho para todas las personas en condiciones de igualdad. Una justicia eficiente. Que el acceso a la misma sea rápida, de buen modo y de calidad, se respeten los derechos humanos y las víctimas sean protegidas. Que las personas que cometieron un delito reciban una pena justa. Una justicia que defienda los derechos y las libertades, principalmente de las mujeres.
+- Una Suprema Corte de Justicia de la Nación que cumpla de manera eficaz su función de salvaguardar y defender los derechos y las libertades consagradas en la constitución; que actúe como el garante del equilibrio de poderes, pero que también fomente la colaboración entre los poderes; que sea el árbitro para resolver los conflictos entre ellos.
+

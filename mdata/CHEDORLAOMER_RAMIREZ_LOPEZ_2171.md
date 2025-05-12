@@ -1,0 +1,79 @@
+Nombre Candidato: CHEDORLAOMER RAMIREZ LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5519208772
+Correo Electronico: chedorlaomerrl@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Certificación Profesional, Derecho Constitucional, Formación Secretarial, IJF., Igualdad de Género, Interferencia Probatoria, Licenciatura en Derecho, Maestría en Derecho Constitucional, SCJN, Universidad Tecnológica de México
+Tags Propósito: Acceso Universal, Capacitación, Confianza Pública, Corrupción, Educación Continua, Equidad, Igualitaria, Involucramiento Comunitario, Justicia, Modernización, Personas, Resoluciones Públicas, Sistema Judicial., Soluciones, Trabajo en Equipo, Transparencia
+
+
+## Descripción del Candidato 
+
+CHEDORLAOMER RAMIREZ LOPEZ es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y estudios de maestría en Derecho Constitucional y Amparo. Su trayectoria incluye diversas especializaciones y certificaciones en el Poder Judicial, incluyendo cursos sobre formación de secretarios, derecho constitucional, mediación, e igualdad de género.
+
+Motivado por el deseo de impactar positivamente en la vida de las personas que buscan justicia, propone un sistema judicial centrado en la equidad, transparencia y acceso universal. Sus propuestas incluyen la promoción de la educación continua para profesionales legales, la publicación de resoluciones judiciales para aumentar la confianza pública, y la involucración de la comunidad en temas judiciales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15GXqphoBb/?mibextid=wwXIfr
+- https://x.com/chedorlaomerr?s=21
+- https://www.instagram.com/chedor?igsh=ajhvZzQwdHlvcGxs&utm_source=qr
+- https://www.tiktok.com/@chedorr?_t=ZM-8ubDVVXRTGQ&_r=1
+
+
+## Cursos
+
+- Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,CERTIFICACIÓN en   Instituto Tecnológico Superior de Xalapa
+- ,Congreso Internacional de Derecho Constitucional
+- El Uso del Conocimiento Científico en los Tribunales
+- SCJN,Curso Inmediación y Control de Interferencias Probatorias en IJF
+- ,Curso Género como Herramienta para la Igualdad
+- IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55135/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, curso la Maestría en Derecho Constitucional y Amparo en la Universidad Tecnológica de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero estar CERCA de las PERSONAS justiciables, poder impactar en sus vidas de manera positiva y reparadora.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi forma de ver con la impartición de justicia es centrándose en la EQUIDAD, la TRANSPARECNCIA y el ACCESO UNIVERSAL, porque todos los ciudadanos, independientemente de su contexto, tienen la oportunidad de acceder a un sistema judicial real, donde no sea un mundo de papeleo, más bien, de SOLUCIONES inmediatas, para ello considero indispensable la CAPACITACIÓN continua de los actores del sistema y de manera destacada el TRABAJO EN EQUIPO con todas las áreas de gobierno.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser IGUALITARIA, TRANSPARENTE y ACCESIBLE para todos. Mi visión incluye un sistema judicial modernizado, que agiliza procesos, ELIMINA la CORRUPCIÓN y fortalece la confianza pública, suprimiendo barreras económicas y sociales.
+
+
+## Propuestas
+
+- PROMOVER la educación continua de profesionales legales para decisiones más informadas y justas, fomentando así una sociedad más equitativa y justa.
+- ASEGURAR que las resoluciones judiciales sean públicas y fácilmente accesibles para fortalecer la confianza en el sistema.
+- INVOLUCRAR a la comunidad en debates sobre temas judiciales para confirmar que el sistema refleje las necesidades y expectativas del pueblo.
+

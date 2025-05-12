@@ -1,0 +1,73 @@
+Nombre Candidato: DIANA BERENICE LOPEZ GOMEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8714797978
+Correo Electronico: dianaberenicelg@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación Judicial, Derecho Administrativo, Derecho Constitucional, Derecho del Trabajo, Escuela Federal de Formación Judicial., Especialidades, Justicia Electoral, Licenciatura en Derecho, Maestrias, Perspectiva de Género, Prueba Pericial, Tribunal Electoral
+Tags Propósito: accesibilidad, calidad, conciliación, conocimientos, eficacia, eficiencia, experiencia, justicia, justicia cercana, justicia digital, rapidez, resolución de problemas., sensibilidad, sentencias claras, servicio público, vocación de servicio
+
+
+## Descripción del Candidato 
+
+Diana Berenice López Gómez es candidata a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulándose en la vía de En Funciones. Cuenta con maestría concluida y diversas especialidades en áreas como Justicia Electoral, Derecho del Trabajo y Derecho Administrativo, acumulando 16 años de experiencia en la impartición de justicia federal.
+
+Su motivación para buscar el cargo se basa en su experiencia y convicción de que una justicia con trayectoria es fundamental. Propone una justicia sin formalismos innecesarios, cercana a la sociedad con sentencias claras y accesibles, y la implementación de herramientas digitales para eficientar el servicio y fomentar la conciliación. Busca mejorar la función jurisdiccional a través de un servicio amable, rápido y sensible a las necesidades de quienes acuden a los tribunales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/DianaBereniceL
+- https://www.tiktok.com/@diana.berenicelg
+
+
+## Cursos
+
+- Especialidad en Justicia Electoral, Centro de Capacitación Judicial del Tribunal Electoral del PJF,Especialidad en Derecho del Trabajo y Justicia Laboral, Escuela Federal de Formación Judicial, (2020),Especialidad en Derecho Administrativo, Escuela Federal de Formación Judicial, (2024),Juzgar con Perspectiva de Género en Materia Administrativa
+- ,La Prueba Pericial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53944/10
+
+
+## Trayectoria Academica
+
+- Soy licenciada en Derecho, tengo 2 maestrias (constitucional) y 3 especialidades (electoral, laboral y administrativo)
+
+
+## Motivo para buscar el Cargo Publico
+
+Por 16 años me he dedicado a la impartición de justicia federal, estoy segura que una justicia con experiencia es mejor
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un trabajo que requiere vocación de servicio. La vocación de servicio se refleja en la forma en la que tratas a las personas que deben acudir a un tribunal, en este caso federal. Prestar un servicio público de calidad es fundamental para tratar de aminorar lo de por sí ya difícil que es necesitar acudir a los tribunales. Prestar atención amable, rápida y otorgar la respuesta que mejor resuelva el problema, mejora la función jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La mejora constante en la impartición justicia radica en tener la suficiente sensibilidad y los conocimientos necesarios para resolver de la mejor manera los asuntos planteados en tribunales. Atender con vocación cada expediente estando consciente que no solo es papel, se trata de la vida o algún ámbito de ella respecto de las personas involucradas en los juicios.
+
+
+## Propuestas
+
+- La justicia sin formalismos innecesarios es una mejor justicia, es más rápida y más eficaz.
+- Una justicia verdadera es la cercana a la sociedad, la justicia que se entiende, las sentencias cortas y fáciles de leer deberían ser muy comunes; la justicia debe ser accesible y entendible.
+- La justicia digital, la mejora en la calidad del servicio y la búsqueda de la conciliación son herramientas que ayudarían a eficientar la impartición de justicia en México.
+

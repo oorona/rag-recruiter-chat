@@ -1,0 +1,77 @@
+Nombre Candidato: FABIOLA JOACHIN PULIDO
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9211958583
+Correo Electronico: fabiola.joachin.1@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derechos Humanos, Diplomado, Formación, Género, Justicia, Justicia Laboral, Licenciatura., Maestría, Patriarcado, Poder Judicial, Reforma Justicia, Tesis
+Tags Propósito: accesibilidad, análisis profundo, confianza ciudadana, derechos humanos, economía procesal, eficiencia, equidad, imparcialidad, independencia judicial, justicia, justicia pronta, justicia social, legitimidad, modernización, perspectiva de género, rendición de cuentas, sistema judicial, tecnología, transparencia, trato humano., vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+Fabiola Joachim Pulido es candidata a Jueza/es de Distrito por el Poder Legislativo Federal en Tabasco. Cuenta con maestría en Derechos Humanos, Justicia y Género, con una tesis centrada en prácticas patriarcales en el Poder Judicial, y una licenciatura en Derecho. Su trayectoria académica se complementa con diversos diplomados y especializaciones en temas de justicia y reforma laboral.
+
+Su motivación para buscar el cargo público se basa en garantizar una justicia con equidad, sentido social y enfoque en derechos humanos, transparencia y compromiso.  Propone juzgar con perspectiva de género, priorizar el análisis profundo de los expedientes, y garantizar certeza, independencia y economía procesal, buscando una justicia accesible, eficaz, incluyente y cercana a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/12GkVBcQhsN/?mibextid=wwXIfr
+- https://www.instagram.com/fabiolajoachin_?igsh=ejVmcnVieWg5bm9j
+- https://www.tiktok.com/@fabiola_joachin?_t=ZM-8v2xnfmLG3K&_r=1
+
+
+## Cursos
+
+- Especialidad en Curso Básico de Formación y Preparación para Secretarios del Poder Judicial de la Federación,Maestría en Derechos Humanos, Impartición de Justicia y Género
+- ,Diplomado: Curso de Actualización Sobre la Reforma en materia de justicia,Diplomado: Jornadas de Sensibilización sobre la reforma en materia de justicia laboral
+- ,Diplomado:Curso de Especialización sobre la Reforma en Materia de Justicia Laboral Quinta Generación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53503/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho (UV); Maestra en DDHH, Justicia y Género
+- Tesis: Prácticas patriarcales en el Poder Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero garantizar una justicia con equidad y sentido social con enfoque en derechos humanos, compromiso y transparencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe recuperar la confianza ciudadana con transparencia, ética y cercanía a las personas. Es esencial unir la trayectoria profesional y principios éticos para fortalecer el sistema judicial y eliminar la brecha de desconfianza. Este nuevo modelo exige rendición de cuentas y legitimidad, permitiendo una justicia social más accesible, equitativa y eficaz, asegurando que la labor de las personas juzgadoras no solo sea jurídicamente correcta, sino legítima ante la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Renovar el Poder Judicial Federal garantiza una justicia accesible, eficaz e incluyente, cercana a la ciudadanía. Es clave transformar las instituciones para que sean más humanas, justas, imparciales y transparentes, integrando la perspectiva de género y derechos humanos. La modernización debe incluir procesos eficientes y tecnología, asegurando así una justicia ágil, confiable y equitativa, alineada con las necesidades de toda la sociedad.
+
+
+## Propuestas
+
+- Juzgar con perspectiva de género: Adoptaré un criterio que garantice la inclusión y equidad, evaluando cada asunto conforme a los estándares establecidos por la Corte, y protegiendo a los grupos vulnerables mediante una mirada sensible y justa, no solo desde la técnica legal, sino considerando las realidades y particularidades de las regiones y personas.
+- Privilegiar el fondo: Priorizaré el análisis profundo de cada expediente, reconociendo que en él se definen derechos, patrimonio y libertades. Evitaré el desecho excesivo de demandas y requerimientos innecesarios que retarden la impartición de justicia. Siendo exhaustiva, en tiempo y congruente con el principio de justicia pronta y expedita, entendiendo el impacto real de cada resolución.
+- Garantizar certeza, independencia y economía procesal: Implementaré medidas que optimicen los recursos y agilicen los procesos, asegurando que cada resolución se emita en los plazos previstos, fortaleciendo así la confianza en el sistema judicial. Acercaré la justicia a la ciudadanía, garantizando un trato transparente, humano e imparcial. Agilizaré los procesos judiciales y reforzaré la confianza de la personas en el sistema de impartición de justicia.
+

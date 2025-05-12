@@ -1,0 +1,74 @@
+Nombre Candidato: HERACLEO ESCOBAR BERNAL
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5514066482
+Correo Electronico: heracleob@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: CDMX., Defensa Penal, Defensor Público Federal, Derecho Constitucional, Derechos Humanos, Doctorado Honoris Causa, Juicio Oral, Justicia para Adolescentes, Juzgado Penal, Liderazgo, Menores Infractores, Prevención del Delito, Proceso Penal Acusatorio, Reforma Judicial, Sistema Penal Acusatorio, Sistemas Penitenciaros, Violencia
+Tags Propósito: Acceso a la Justicia, Administración de Justicia, Derechos Humanos, Diferenciadores Sociales, Equidad, Escrutinio Ágil, Honestidad, Imparcialidad, Intereses Económicos, Justicia, Justicia Abierta, Justicia Social, Menores, Moralidad, Mujeres, Oligarquía., Prontitud, Transparencia
+
+
+## Descripción del Candidato 
+
+HERACLEO ESCOBAR BERNAL es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con doctorado y una trayectoria profesional como Defensor Público Federal, previamente Coordinador de Defensores en la Ciudad de México y proyectista en Juzgado Penal.
+
+Su motivación para el cargo se centra en resolver con prontitud, honestidad y justicia legal, basándose en su experiencia en la defensa de los derechos de las personas. Propone un escrutinio preliminar ágil para agilizar la administración de justicia, la transparencia en la toma de decisiones y una justicia equitativa que considere las particularidades sociales, económicas y culturales de los usuarios, con especial atención a menores, mujeres y personas con dificultades de acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/?locale=es_LA
+
+
+## Cursos
+
+- Mtrias en Prevención del Delito y Sistemas Penitenciarios/Derecho Constitucional y Amparo Especiali
+- en Defensa Penal,Especialidades: Justicia para Adolescentes/Juicio Oral y Proceso Penal Acusatorio/Prevención del Delito y Der
+- Humanos,Especialidad en Sistemas Penitenciarios y Menores Infractores/Doctorado Honoris Causa, por parte de la Cámara de Diputad,Cursos:formación para personas defensoras públicas del IFDP/Juicio de Amparo/Reforma Judicial 2021/Justicia Penal Adol,Cursos:Generar Espacios Libres de Violencia/Liderazgo Exponencial/EL NUEVO SISTEMA PENAL ACUSATORIO EN MÉXICO CONSTITUC
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53145/11
+
+
+## Trayectoria Academica
+
+- DEFENSOR PÚBLICO FEDERAL, ANTES COORDINADOR DE DEFENSORES EN LA CDMX Y PREVIO A ELLO PROYECTISTA EN JUZGADO PENAL
+
+
+## Motivo para buscar el Cargo Publico
+
+COMO DEFENSOR HE LUCHADO CONTRA INJUSTICIAS, SIENDO JUEZ RESOLVERÉ CON PRONTITUD, HONESTIDAD Y JUSTICIA LEGAL
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+BRINDAR UNA JUSTICIA APROPIADA A LA SOCIEDAD, CON LA PRONTITUD QUE SE REQUIERE Y PREVINIENDO ANTE TODO LA EQUIDAD, LA MORALIDAD, LA HONESTIDAD Y LA IMPARCIALIDAD, SIN ATENDER A CUESTIONES DE INTERESES ECONÓMICOS O DIRECCIONADO POR INTERESES PERSONALES, LA PERSPECTIVA ES HACER DE LA ADMINISTRACIÓN DE JUSTICIA UNA REALIDAD PALPABLE Y CERCANA A LAS PERSONAS, SOBRE TODO DE AQUELLAS PERSONAS C
+
+
+## Vision sobre la Imparticion de Justicia
+
+GARANTIZARA TODOS LOS USUARIOS DE LA ADMINISTRACIÓN DE JUSTICIA, LA APLICACIÓN DEL DERECHO, SOBREPONIENDO LA JUSTICIA SOCIAL, ATENDIENDO LAS ESPECIFICIDADES DE LAS PERSONAS CON DIFERENCIADORES SOCIALES; TENDIENDO ESPECIAL INTERÉS EN LOS DERECHOS HUMANOS DE LAS PERSONAS, SOBRE TODO DE LOS MENORES, LAS MUJERES Y LAS PERSONAS QUE ENFRENTEN PROBLEMAS EN EL ACCESO A LA JUSTICIA
+
+
+## Propuestas
+
+- REALIZAR UN ESCRUTINIO PRELIMINAR ÁGIL, PARA EMPLEAR LA NORMA EN LA AGILIZACIÓN DE LA ADMINISTRACIÓN DE JUSTICIA
+- JUSTICIA ABIERTA, PROPONGO TRANSPARENTAR EN PLENITID TODO AQUELLO QUE PERMITA TOMAR DECISIONES EN LA ADMINISTRACIÓN DE JUSTICIA
+- JUSTICIA EQUITATIVA, CONOCIENDO LOS DIFERENCIADORES SOCIALES Y LAS DIFICULTADES QUE ALGUNAS PEROSNAS TIENEN DE ACCEDER A LA JUSTICIA, YA SEA POR SU EDAD, CONDICIÓN SOCIAL, ECONOMICA O CULTURAL O, PORQUE SE ENFRENTAN A INTERESES OLIGÁRQUICOS QUE, DE INICIO, SE LE SIMPOSIBILUTA VISUALIZAR EN SU VIDA LA JUSTICIA, PROPONGO QUE LA JUSTICIA CONTENGA LA EQUIDAD PARA PODER SOCIALIZARLA
+

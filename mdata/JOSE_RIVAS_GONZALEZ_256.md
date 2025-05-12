@@ -1,0 +1,71 @@
+Nombre Candidato: JOSE RIVAS GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó texto.
+Tags Propósito: ausencia, declaración nula, falta de propuestas, inconcluso, inexistencia, no definido, nulo, silencia, sin visión, vacío
+
+
+## Descripción del Candidato 
+
+José Rivas González es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación en Baja California. Su información de contacto y detalles sobre su formación académica, trayectoria profesional, motivaciones y propuestas para el cargo no están disponibles en los datos proporcionados.
+
+El estatus de su información en el sistema es "Sin captura", lo que indica la ausencia de datos registrados.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

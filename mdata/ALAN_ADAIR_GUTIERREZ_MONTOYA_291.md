@@ -1,0 +1,75 @@
+Nombre Candidato: ALAN ADAIR GUTIERREZ MONTOYA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: alanadairgutierrezmontoya@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho Procesal Acusatorio, Diploma, IJF, INJUS, Juicio de Amparo, Licenciatura, Maestría, SCJN, UABC
+Tags Propósito: Acceso a la Justicia, Autonomía Judicial, Beneficio Social, Certeza Jurídica, Corrupción, Derechos Humanos, Eficiencia, Empatía, Equidad, Estado de Derecho, Función Jurisdiccional., Impacto Social, Justicia Restaurativa, Perspectiva de Género, Rezagos, Tecnología, Tejido Social, Transparencia
+
+
+## Descripción del Candidato 
+
+Alan Adair Gutierrez Montoya es candidato a Magistratura de Tribunales Colegiados de Circuito por Baja California, postulándose a través del Poder Legislativo Federal. Cuenta con maestría en derecho procesal acusatorio por el INJUS y es licenciado en derecho por la UABC, además de haber completado diplomados en derecho y juicio de amparo.
+
+Su motivación para buscar el cargo se centra en la importancia de considerar el impacto humano en las resoluciones judiciales. Su visión de la función jurisdiccional se enfoca en el beneficio social y el aseguramiento de derechos fundamentales, buscando un sistema eficiente, transparente y accesible. Su principal propuesta es garantizar la empatía, los derechos humanos y la perspectiva de género en el sistema judicial, promoviendo la justicia restaurativa y la reconstrucción del tejido social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573508526319
+- https://x.com/alanadairgm
+- https://www.instagram.com/alanadairgm/
+
+
+## Cursos
+
+- Diplomado nociones generales de derecho IJF
+- ,Diplomado en juicio de amparo Casa de la Cultura Juridica SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53381/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho por la UABC
+- Maestria en derecho procesal acusatorio por el INJUS
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero importante el lado humano de las resoluciones en los procedimientos, que en muchas de las ocasiones se omiten.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi vision de la funcion jurisdiccional esta enfocada en el beneficio social y el aseguramiento de los derechos fundamentales, promoviendo la certeza juridica y el Estado de derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La imparticion de justicia en Mexico debe evolucionar hacia un sistema más eficiente, transparente y accesible. Se deben reducir los rezagos y combatir la corrupcion. Tambien, se debe implementar la tecnologia, asi como la fortaleza de la autonomia del poder judicial y la capacitacion constante, apoyara a la toma de decisiones imparciales y celeridad. Un sistema centrado en derechos humanos y equidad consolidara confianza y se reiterara el Estado de derecho.
+
+
+## Propuestas
+
+- Garantizar en el sistema judicial empatia, derechos humanos y se juzgue con perspectiva de género, para que las resoluciones consideren el impacto social y humano, promoviendo justicia restaurativa y reconstruccion del tejido social, en razon de que las propias resoluciones deben tener una intencion de beneficio social
+- No proporcionó
+- No proporcionó
+

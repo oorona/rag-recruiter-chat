@@ -1,0 +1,77 @@
+Nombre Candidato: MARCELA RUVALCABA GUTIERREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: marce.ruvalcaba5@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Derecho Civil, Derecho Mercantil, Formación Continua., Igualdad de Género, Juzgado de Distrito, Obligaciones y Contratos, Posgrado, Violencia
+Tags Propósito: acceso a la justicia, capacitación, eficacia, escuela judicial., género, honestidad, imparcialidad, justicia, lectura fácil, legalidad, nepotismo, profesionalismo, responsabilidad, sentencias claras, sentido humano, transparencia, vulnerabilidad, ética judicial
+
+
+## Descripción del Candidato 
+
+Marcela Ruvalcaba Gutierrez es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal, representando a Jalisco. Cuenta con maestría y cédula profesional, complementada por especializaciones en áreas civil y mercantil, así como formación en igualdad de género y prevención de la violencia. Su motivación para aspirar al cargo es servir a la impartición de justicia de manera eficiente e igualitaria.
+
+Su visión se centra en ejercer la función jurisdiccional con profesionalismo, honestidad e imparcialidad, buscando devolver la confianza en los órganos de justicia. Propone la obligatoriedad de cursos de actualización para el personal judicial y la emisión de sentencias más claras y accesibles a la ciudadanía, evitando tecnicismos innecesarios. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/marce.ruvalcaba5
+- https://www.instagram.com/marce.ruvalcaba5
+- https://www.tiktok.com/marcelaruvalcaba89
+
+
+## Cursos
+
+- Especialidad
+- Civil y Mercantil,Especialidad
+- Obligaciones y Contratos,Curso de formación para personas secretarias de Juzgado de Distrito,Curso
+- Género como herramienta para Igualdad
+- ,Curso para Generar Espacios libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55164/10
+
+
+## Trayectoria Academica
+
+- Cursé diversas actualizaciones, aplicables tanto a la impartición de justicia como al área administrativa (posgrado)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir en la impartición de justicia (sin deficiencias), y que ésta sea proporcionada a todas y todos por igual.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función jurisdiccional con profesionalismo, contribuyendo en detener las violaciones de la Ley, devolviendo la confianza en la sociedad en los órganos jurisdiccionales, combatiendo el nepotismo, actuando con honestidad, eficacia, imparcialidad, laboriosidad y responsabilidad con la ética judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Brindar la certeza de que, en cada resolución que emita se vea respaldada con base en la legalidad, armonía, profesionalismo, perspectiva de género y en especial con sentido humano, facilitando el acceso a la justicia a los grupos vulnerables. Concentrar especial atención para que ningún ciudadano vea obstaculizada su necesidad de acceso a la justicia por lenguaje, idioma, limitación física o económica.
+
+
+## Propuestas
+
+- Obligatoriedad en los cursos. Solicitar al órgano de diciplina la aplicación de cursos obligatorios al personal, para mantenerlos actualizados, ya que, si bien es cierto que se cuenta con una escuela judicial que proporciona éstos, no son obligatorios, y al hacer mínimo un porcentaje de ellos de obligatoriedad al año, se contaría con personal más capacitado y profesional.
+- Sentencias más claras y precisas. Si bien ya existen versiones de sentencia en formato de lectura fácil, con un lenguaje para entendimiento de los niños, encontramos también las sentencias convencionales, es decir, en las que se utilizan demasiados tecnicismos que no son comprensibles para la mayor parte de la población, por lo que lo ideal sería emitir sentencias más claras, sin un léxico especializado en derecho y de esta forma la ciudadanía tendría una mayor comprensión de las resoluciones.
+- No proporcionó
+

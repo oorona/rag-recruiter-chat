@@ -1,0 +1,75 @@
+Nombre Candidato: DANTE ORLANDO DELGADO CARRIZALES
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: 6863052158
+Correo Electronico: dante.odc@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Congreso Internacional, Constitucionalismo Transformador, Derecho Constitucional, Derechos Humanos, Discapacidad, Igualdad, Interpretación Jurídica, No Discriminación, Razonamiento Probatorio, SCJN, Sistema Penal Acusatorio, Universitat de Girona
+Tags Propósito: acceso a la justicia, atención al usuario, capacitación, confianza pública, credibilidad institucional, derechos humanos, diagnóstico, eficacia, gestión, imparcialidad, jueces accesibles, justicia, procedimientos ágiles, protección de derechos., servicio público, transparencia, ética
+
+
+## Descripción del Candidato 
+
+DANTE ORLANDO DELGADO CARRIZALES es candidato a Jueces/as de Distrito en San Luis Potosí, postulando desde "En Funciones". Cuenta con Maestría y se describe como Licenciado en Derecho especialista en Constitucional, Amparo y derechos humanos. Su motivación para buscar el cargo se centra en lograr una justicia real, cercana, ética y transparente.
+
+Su visión para la función jurisdiccional y la impartición de justicia es un servicio público confiable, sensible a la sociedad, que garantice el acceso a la justicia, la protección de los derechos humanos y la resolución imparcial de conflictos. Sus propuestas incluyen la capacitación del personal en temas de servicio público y actualización jurídica, un diagnóstico para agilizar los procedimientos, y la eliminación de barreras de comunicación entre jueces y ciudadanos, buscando mayor transparencia y confianza en las instituciones.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/DanteDelgadoC
+- https://www.instagram.com/dantedelgado2025
+
+
+## Cursos
+
+- Especialización Bases del Razonamiento Probatorio, en la Universitat de Girona
+- ,Especializado en Derecho Constitucional: El Constitucionalismo Transformador,Bases Constitucionales y Convencionales del Sistema Penal Acusatorio
+- ,VII Congreso Internacional de Derecho Constitucional
+- Igualdad y no Discriminación, SCJN,Taller de Sensibilización y toma de Conciencia sobre los Derechos de las Personas con Discapacidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52682/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho especialista en Constitucional, Amparo y experiencia en derechos humanos e interpretación jurídica
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque anhelo que la justicia sea real y cercana a las personas; ejerciéndose con ética y transparencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un servicio público de impartición de justicia que sea confiable y sensible a las realidades de la sociedad, que facilite el acceso a las personas a una justicia cercana, garantice que los conflictos se resolverán con estricto apego a la Constitución y la Ley, con independencia, objetividad y profesionalismo, buscando siempre la protección efectiva de los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia imparcial, accesible y eficaz, que garantice el respeto y protección máxima de los derechos de las personas, sin distinción. Resuelva asuntos con transparencia y fortalezca la confianza en las instituciones.
+
+
+## Propuestas
+
+- Servicio público efectivo y humano: El correcto funcionamiento de un juzgado no depende solo del conocimiento técnico jurídico de las y los servidores públicos, si no también, de la atención a los usuarios. Por tanto, propongo la capacitación del personal que integra el juzgado en temas de sensibilización y buenas prácticas en el servicio público, así como actualización jurídica con la finalidad de brindar atención profesional y empática con aquellos que acudan a la justicia federal.
+- Justicia rápida y efectiva: La tardanza en la impartición de justicia se debe a muchos factores tanto administrativos como operativos. Propongo un diagnostico inmediato en el juzgado para detectar los factores que impiden la pronta solución de los conflictos e implementar las soluciones para gestionar y agilizar los procedimientos.
+- Justicia a puerta abierta: El hecho de que las personas no conozcan o no puedan comunicarse con sus jueces provoca una percepción de indiferencia. Propongo eliminar o suprimir aquellas barreras entre el juez y las personas que acuden al juzgado  todo las menos protegidas o  con la finalidad de transparentar la función y abonar a la credibilidad y confianza de las personas hacia las y los juzgadores.
+

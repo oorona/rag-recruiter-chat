@@ -1,0 +1,74 @@
+Nombre Candidato: JORGE DANIEL OCHOA RUIZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5540336719
+Correo Electronico: jordaniel8a@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Defensoría Pública Federal, Derechos humanos, Equidad de Género, Justicia., Licenciatura en Derecho, Maestría en Derechos Humanos, Protección de Datos Personales, Protocolo de Estambul, Prueba, Razonamiento Probatorio, Transparencia, UNAM
+Tags Propósito: Abuso de Poder, Acceso a la Justicia, Burocracia, Constitución, Contrapeso, Derechos Humanos, Empatía, Expedientes, Honestidad, Imparcialidad, Independencia, Justicia, Lenguaje Claro, Modernización, Publicidad, Sentencias, Servidores Públicos., Sistemas Digitales, Transparencia, Trato Cortés
+
+
+## Descripción del Candidato 
+
+Jorge Daniel Ochoa Ruiz es candidato a Juez/a de Distrito dentro del Poder Judicial de la Federación. Cuenta con Maestría en Derechos Humanos y cédula profesional, complementada con cursos en áreas como Derechos Humanos, Protocolo de Estambul, Equidad de Género y Pruebas. Su motivación para aspirar al cargo se centra en impulsar una justicia cercana, transparente e independiente para México.
+
+Su visión se orienta a un sistema judicial accesible e imparcial, comprometido con la protección de los derechos humanos y la aplicación de la Constitución. Sus propuestas incluyen mayor publicidad de los criterios de las sentencias, la modernización de la impartición de justicia a través de sistemas digitales y la eliminación de trámites burocráticos innecesarios en los juzgados.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1QneXXbDi1/?mibextid=wwXIfr
+- https://x.com/danielmaster8a?s=21
+- https://www.instagram.com/danielmaster8a?igsh=MTFmYjNrcHp6cmsyYQ==
+
+
+## Cursos
+
+- Derechos humanos,Protocolo de Estambul y la Defensoría Pública Federal,Equidad y Perspectiva de Genero,Prueba y Razonamiento Probatorio,Transparencia, Acceso a la Información y Protección de Datos Personales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54655/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la UNAM y Maestro en Derechos Humanos
+- Mi formación refuerza mi compromiso con la justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a ser Juez de Distrito para impulsar una justicia cercana, transparente e independiente, comprometida con México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tengo la visión de un sistema judicial cercano, transparente, accesible e independiente. Quiero ser un juez que escuche con empatía, que resuelva con rigor jurídico y que actúe siempre con la convicción de que una sentencia justa puede transformar vidas. Estoy convencido de que México necesita jueces comprometidos con la imparcialidad, la honestidad y la protección de los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no debe tener colores ni responder a intereses. Mi compromiso es claro: ser un garante de la Constitución y un contrapeso frente a los abusos del poder. Porque la justicia no es solo una aspiración, es una responsabilidad que he asumido. La justicia no solo se imparte en los tribunales, sino también en la manera en que servimos a nuestra comunidad y defendemos los principios que nos guían.
+
+
+## Propuestas
+
+- Mayor publicidad de los criterios contenidos en las sentencias que se emitan, la sociedad tiene derecho a conocer los criterios que rigen la justicia en nuestro país, por lo que su difusión en un lenguaje claro y entendible para cualquier lector resulta indispensable para acercar la impartición de justicia a quien se dirige, porque al final es a quien nos debemos los servidores públicos del Poder Judicial Federal.
+- Modernizar la impartición de justicia en nuestro país. Ello a través de la correcta utilización de los sistemas digitales que tenemos a nuestro alcance, sin olvidar que la justicia es para todos, pero procurando la actualización de la forma en que se imparte, y facilitando el acceso del justiciable a los sistemas electrónicos con que cuenta el Poder Judicial Federal, haciéndolos mas cercanos, entendibles y de fácil manejo.
+- Evitar burocracia innecesaria. Es indispensable entender que todo el personal del órgano jurisdiccional es un impartidor de justicia, y como juzgadores debemos tener claro que cada expediente es el mayor problema de alguna persona y con ese cuidado y empatía debe tratarse, evitando cualquier tramite burocrático innecesario y cualquier trato descortés; procurando siempre que la experiencia en el juzgado sea la mejor posible.
+

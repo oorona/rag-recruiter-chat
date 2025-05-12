@@ -1,0 +1,86 @@
+Nombre Candidato: RAUL MENDIETA VEGA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización CCJ., Catedrático, Corte IDH, Código Nacional de Procedimientos Civiles y Familiares, Derecho Agrario, Doctorado, España, Inconstitucionalidad, Justicia Familiar, Licenciado en Derecho, Prisión Preventiva, SCJN, Salamanca, Sistema Penal Acusatorio, UASLP
+Tags Propósito: Abogado, Carencias, Conocimiento, Crimen organizado, Cultura de ayuda, Derecho, Dignidad humana., Explotación, Función jurisdiccional, Jurisdicción, Justicia, Leyes, Realidad, Respeto, Servidor público, Verdad, Virtudes
+
+
+## Descripción del Candidato 
+
+Raúl Mendieta Vega es candidato a Magistrado de los Tribunales Colegiados de Circuito en San Luis Potosí, postulándose por el Poder Judicial de la Federación. Licenciado en Derecho por la UASLP y con estudios de Doctorado en Salamanca, España, cuenta con experiencia académica como catedrático suplente en la UASLP y actualización continua a través de cursos en la Casa de la Cultura Jurídica. 
+
+Mendieta Vega motiva su candidatura en la madurez jurídica adquirida a lo largo de más de 20 años en el ámbito legal. Su visión de la función jurisdiccional se centra en la búsqueda de la verdad para lograr la justicia, mientras que su propuesta se orienta a fomentar una cultura de respeto y ayuda como base para la aplicación de la justicia, destacando la importancia de escuchar y comprender las circunstancias específicas de la sociedad potosina.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/raulmendietavega
+- https://www.x.com/raulmendietavega
+- https://www.instagram.com/raulmendietavega
+- https://www.youtube.com/raulmendietavega
+- https://www.tiktok.com/raulmendietavegaslp
+
+
+## Cursos
+
+- ¿Ciclo de conferencias de Derecho Agrario¿, 2023, Casa de la Cultura Jurídica en S
+- L
+- P
+- S
+- C
+- J
+- N
+- ,Programa de actualización en Sistema Penal Acusatorio¿ realizado del 25 de octubre al 13 de diciembre de 2022,Curso ¿El dialogo jurisprudencial de la Corte IDH Y SCJN
+- Prisión Preventiva oficiosa¿ CASA DE LA CULTURA JURIDICA SCJN,Curso ¿Una Nueva Acción de Inconstitucionalidad en México¿, 2023, en la Casa de la Cultura Jurídica SLP SCJN,ConferenciaRetosyperspectivas dela Justicia Familiar a la luz del Código Nacional de Procedimientos Civiles y Familiares
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54098/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho UASLP
+- Estudios de Doctorado Salamanca, España
+- Catedrático suplente UASLP
+- Actualizacion CCJ SLP
+
+
+## Motivo para buscar el Cargo Publico
+
+Para hacer efectiva la madurez jurídica que a lo largo de mas de 20 años solicitando y exigiendo el derecho he adquirido
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+JURISDICCIÓN significa decir el derecho, jus, juris en latín significa derecho y diccio, decir; los jueces y magistrados para poder definir a quien le asiste el DERECHO, tienen que acercarse lo más posible al conocimiento de la verdad, para llegar a la justicia que significa dar a cada quien lo que le corresponde. De manera que lo complicado no esta en definir los conceptos, sino en conocer lo mas fielmente la verdad para poder saber que es lo que le corresponde a cada quien.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El respeto es la base de la Justicia, JUSTICIA es dar a cada quien lo que le corresponde, todos podemos hacer justicia desde el respeto; porque al respetar estamos dando lo que le corresponde a cada quien, RESPETAR es no hacer a los demás, aquello que no queremos que nos hagan. Si bien esa no es la única solución si es la primera línea de batalla en el reconocimiento del derecho ajeno y la segunda línea son los jueces que imparten y administran justicia mediante el conocimiento de la verdad.
+
+
+## Propuestas
+
+- Debemos tomar conciencia que la justicia no solo se puede aplicar por los jueces y magistrados, toda vez que estos solo estan para los casos en que no se ponen de acuerdo las partes o existe una violación a los derechos humanos de las personas; sin embargo si tenemos la suficiente información que la base de la justicia es el respeto, encontremos en nuestra forma de conducirnos con las demás personas, tratándolas como queremos ser tratados, una primera línea de defensa de la justicia.
+- UNA CULTURA DE AYUDA Y RESPETO. Las leyes son constantemente infringidas, sin embargo es fundamental darnos cuenta que al no respetarlas, a quien realmente nos estamos faltando al respeto es a nosotros mismo, porque todos estamos en el mismo barco y no podemos dejar que se hunda. Las personas que tienen posibilidades económicas al explotar a otras personas, estan orillándo a dicha gente explotada, a refugiarse en el crimen organizado y ser quienes en un futuro cometan delitos.
+- La palabra tiene mucho poder y en ese sentido, considero de gran importancia escuchar a la gente y resolver con pleno conocimiento de la realidad en que vive nuestro Estado, de acuerdo a sus muy peculiares circunstancias, al haber sido Abogado litigante, catedrático, y servidor público además de conocer las carencias y virtudes de la sociedad potosina es como podré llegar a la verdad y quitar los vicios y las malas prácticas dentro de la función jurísdiccional.
+

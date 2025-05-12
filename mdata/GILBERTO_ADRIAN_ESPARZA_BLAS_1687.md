@@ -1,0 +1,81 @@
+Nombre Candidato: GILBERTO ADRIAN ESPARZA BLAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: candidato.gilbertoesparzab@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Academia Mexicana de Derecho Fiscal., Barra Mexicana, Colegio de Abogados, Contencioso Administrativo, Derecho Fiscal, Derecho Procesal Tributario, Desarrollo Técnico, Doctorado en Derecho, Fiscalización, Haciendas Públicas, INEF, Impuestos, Juicio Contencioso Administrativo, Maestría en Derecho, UVM
+Tags Propósito: Acceso a la justicia, Celeridad, Cercanía con la gente, Compromiso social, Derechos, Funciones jurisdiccionales., Impacto social, Implementación, Justicia, Paradigma de justicia, Protección de derechos, Reforma constitucional, Responsabilidad social, Servicio social, Sistema de justicia, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gilberto Adrian Esparza Blas es candidato a Magistrado de Tribunales Colegiados de Circuito en Tabasco, postulando a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho Fiscal y una trayectoria académica en la UVM y el INEF. Su formación incluye especialidades y diplomados en materia fiscal y procesal tributario.
+
+El candidato expresa una vocación de servicio y compromiso social como motivación para buscar el cargo. Su visión de la función jurisdiccional y la impartición de justicia se centra en un sistema más cercano a la ciudadanía, con énfasis en el impacto social de las resoluciones y la transparencia. Sus propuestas incluyen un sistema de justicia accesible, una nueva relación entre órganos jurisdiccionales y justiciables, y celeridad en la resolución de casos relacionados con sectores vulnerables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574806464062
+- https://x.com/GAEsparza_Blas?t=-gXEAFcOShZu6H_oU9i6sw&s=08
+- https://www.instagram.com/gaesparza_blas/
+- https://www.tiktok.com/@gilberto.adrin.es?_t=ZM-8v1dn7GuYVD&_r=1
+
+
+## Cursos
+
+- Especialidad en Fiscalización de Impuestos en México
+- Instituto para el Desarrollo Técnico de las Haciendas Públicas
+- ,Seminario de especialización en materia contenciosa administrativa y fiscal, Barra Mexicana, Colegio de Abogados, A
+- C
+- ,Diplomado de Derecho Procesal Tributario, Ilustre y Nacional Colegio de Abogados de México, edición 2022
+- ,Diplomado Juicio Contencioso Administrativo, Academia Mexicana de Derecho Fiscal, A
+- C
+- , edición 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52869/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho con estudios en Maestría y Doctorado en Derecho Fiscal, en UVM (Campus Villahermosa) y en el INEF
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo una fuerte vocación de servicio y compromiso social, por lo que busco ser útil a mi país y su gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene que desarrollarse, en adición al conocimiento técnico del derecho, desde una óptica y componente social, es decir, ser capaz de mostrar cercanía con la gente, valorando como las resoluciones que se toman pueden tener impacto en el bien común y los derechos de la colectividad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema de impartición de justicia es uno de los aspectos fundamentales de nuestra democracia, el cual requería de una transformación substancial, la reforma constitucional que da origen al proceso electoral en que nos encontramos es una parte de ese cambio, lo restante, su implementación, corresponde a quienes lleguemos a los cargos por los que nos postulamos, ya que tendremos la alta responsabilidad de acercar a las mexicanas y los mexicanos el acceso a esta.
+
+
+## Propuestas
+
+- Un sistema de justicia y funcionarios cercanos a la gente, que a la vez que atiendan el aspecto técnico de lo jurídico, también sean conscientes del impacto social de su comportamiento y resoluciones.
+- Servicio a la ciudadanía bajo un nuevo paradigma de impartición de justicia y una nueva relación entre órganos jurisdiccionales y justiciables, en la que se privilegie la transparencia, la cercanía con la gente, la responsabilidad social y la protección de derechos.
+- Celeridad en la resolución de los asuntos en los que se encuentren en peligro los derechos de los sectores, grupos o personas más vulnerables, respetando las disposiciones legales que rigen las etapas del procedimiento.
+

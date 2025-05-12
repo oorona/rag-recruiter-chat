@@ -1,0 +1,73 @@
+Nombre Candidato: GRAHAM ALBERTO ZUBIA FELIX
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3346749007
+Correo Electronico: grahamzubia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Centro de Estudios Jurídicos Carbonell., Derecho Administrativo, Derecho Constitucional, Derecho Corporativo, Derecho Económico, Derecho Mercantil, Derecho Procesal Civil, Derecho Turístico, Derecho Urbano, ITEESO, Licenciatura en Derecho, Maestría en Derecho Público, Universidad Panamericana
+Tags Propósito: Accesibilidad, Acceso a Internet, Actualización Profesional, Administración de Justicia, Agilidad, Asesoría Legal, Capacitación, Comunidades Indígenas, Defensoría Pública, Derechos Humanos, Digitalización, Estado de Derecho, Fácil Lectura, Imparcialidad, Independencia Judicial, Justicia Indígena, Justicia Social., Pactos Internacionales, Perspectiva de Género, Profesionalismo, Seguridad Jurídica, Tecnología, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+GRAHAM ALBERTO ZUBIA FELIX es candidato a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Público y cédula profesional. Su trayectoria académica incluye estudios en el ITESO y la Universidad Panamericana, complementada con especialidades en Derecho Constitucional, Urbano y Turístico, Corporativo, Económico y Administrativo, así como un diplomado en Derecho Procesal Civil y Mercantil.
+
+Su motivación para buscar el cargo es aportar su experiencia y conocimientos para mejorar el sistema de administración de justicia. Su visión se centra en una función jurisdiccional ética, profesional y transparente, preservando el estado de derecho y la seguridad jurídica. Sus propuestas incluyen la implementación de módulos foráneos de la Defensoría Pública para comunidades alejadas, módulos de cómputo con acceso a internet en sedes del Poder Judicial, y capacitación continua del personal en derechos humanos y perspectiva de género.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ASV4vCsvg/?mibextid=qi2Omg
+- https://x.com/GrahamZubia?t=8ypX-GZZqaUkP2AixFJiHg&s=08
+- https://www.instagram.com/grahamzubia?igsh=MWU2YTl5YjhtY2Fqeg==
+
+
+## Cursos
+
+- Especialidad en Derecho Constitucional y Amparo en la Universidad Panamericana,Especialidad en Derecho Urbano y Turístico en la Universidad Panamericana,Especialidad en Derecho Corporativo, y Económico en la Universidad Panamericana,Especialidad en Derecho Administrativo en la Universidad Panamericana,Diplomado en Derecho Procesal Civil y Mercantil, impartido por el Centro de Estudios Jurídicos Carbonell
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55058/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por el ITESO y Maestría en Derecho Público por la Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Con mi experiencia y conocimientos realizar aportaciones para lograr un mejor sistema de Administración de Justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr que los órganos encargados de impartir justicia lo realicen de manera ética y profesional privilegiando siempre la preservación del estado de derecho y seguridad jurídica, fortaleciendo la transparencia y la independencia judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar la administración de justicia con ética, transparencia, agilidad, profesionalismo, imparcialidad, accesibilidad y que responda de manera efectiva a las necesidades de la sociedad.
+
+
+## Propuestas
+
+- Módulos Foráneos del Instituto Federal de Defensoría Pública, con personal capacitado para la asesoría y defensoría de los habitantes de comunidades alejadas de las sedes del Poder Judicial Federal, con el objetivo de garantizar un sistema de justicia más accesible, contando con por lo menos un profesionista con conocimientos de la etnia y dialecto de la región que pueda fungir como enlace y traductor de las personas integrantes de una etnia indígena.
+- Módulos de cómputo con acceso a internet, en cada una de las sedes del Poder Judicial Federal para uso del público en general y sin costo, donde los justiciables podrán dar seguimiento a sus procedimientos, presentar promociones de manera electrónica, hacer consulta de datos y efectuar notificaciones personales.
+- Capacitación constante y obligatoria del personal integrante del Poder Judicial Federal en materia de derechos humanos, pactos internacionales de los que México sea parte, técnicas de impartición de justicia con perspectiva de género y fácil lectura al público en general, para garantizar que el personal actualice sus conocimientos y criterios conforme a las necesidades de los justiciables y la realidad social en México
+

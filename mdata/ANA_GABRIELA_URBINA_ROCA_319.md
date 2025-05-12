@@ -1,0 +1,76 @@
+Nombre Candidato: ANA GABRIELA URBINA ROCA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CAMPECHE
+Sexo: MUJER
+Telefono: 3312461687
+Correo Electronico: anagabrielaurbina@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Postdoctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Adolescentes., Amparo, Argumentación Jurídica, Audiencias en Extradición, Código Nacional de Procedimientos Civiles y Familiares, Derecho Anglosajón, Derechos Humanos, Justicia Adversarial, Licenciatura en Derecho, Maestría en Derecho, Posgrado en Derecho
+Tags Propósito: Escuela Judicial Federal, acceso a la justicia, agilidad, capacitación, comunicación, corrupción, dilaciones, eficiencia, enfoque social, equidad, interculturalidad, justicia, justicia digital, justicia itinerante, nepotismo., oralidad, perspectiva social, reforma procesal, servidores públicos, simplificación, tecnología, transformación digital, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ana Gabriela Urbina Roca es candidata a Magistradura de Tribunales Colegiados de Circuito en Campeche, postulándose por el Poder Legislativo Federal. Cuenta con estudios de posdoctorado, licenciatura y posgrado en Derecho, además de diversas especialidades en áreas como amparo y adolescentes. Su trayectoria académica se complementa con cursos en Derecho Anglosajón, argumentación jurídica, y estándares internacionales en derechos humanos, entre otros.
+
+La candidata motiva su búsqueda del cargo con el objetivo de brindar una justicia ágil, equitativa y cercana a la sociedad. Sus propuestas centrales incluyen simplificar los procedimientos judiciales, implementar la justicia itinerante y digital, así como fortalecer la capacitación de los servidores públicos del Poder Judicial Federal con un enfoque social y en la protección de grupos vulnerables. Busca un sistema judicial más transparente, accesible y eficiente para los ciudadanos.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Ana Urbina
+- https://www.x.com/@anaurbi58114780
+- https://www.instagram.com/anaurbina.56
+- https://www.tiktok.com/anaurbina_0
+- https://www.threads.com/anaurbina.56
+
+
+## Cursos
+
+- Diplomado en Derecho Anglosajón,Seminario en Argumentación Jurídica,Curso de Abc en Código Nacional de Procedimientos Civiles y Familiares,Elaboración de las Guías Judiciales de Conducción de Audiencias en Extradición,Curso de estándares internacionales en sistema americano derechos humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54802/10
+
+
+## Trayectoria Academica
+
+- Licenciatura y posgrado en Derecho; maestrías en Derecho y Justicia Adversarial; especialidades:amparo y adolescentes
+
+
+## Motivo para buscar el Cargo Publico
+
+A fin de brindar justicia a la sociedad, como una herramienta ágil y equitativa para el desarrollo y la paz nacional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un medio para cumplir la demanda social ante la solución de sus problemas; no debe ser tan formalista sino cercana a las personas; los procesos deben ser ágiles y sencillos; las resoluciones deben ser comunicadas en forma sencilla a los justiciables. Las reformas a los procedimientos tienden a unificarlos, para lograr que sea una herramienta accesible. La persona juzgadora debe ser conocida por la ciudadanía y a través de su selección lograr una justicia eficiente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser equitativa, bajo un enfoque social; debe atender las necesidades de la sociedad, al aplicar la ley; debe ser atenta para buscar resolver el problema planteado, bajo una resolución sencilla que le permita a las personas conocer los argumentos que sirvieron al juzgador para emitir su resolución. Debe haber comunicación y atención hacia la ciudadanía, transparencia y la posibilidad de que la comunidad verifique la erradicación de la corrupción y el nepotismo.
+
+
+## Propuestas
+
+- Brindar un procedimiento ágil, sin formalismos, cercano a las necesidades de las personas que acuden a solicitar justicia. El reto es que los justiciables conozcan como se resuelven sus asuntos; a través de sesiones y audiencias públicas; procedimientos preferentemente orales y sencillos; la unificación de los procedimientos para evitar dilaciones en la impartición de justicia. Implementar la justicia itinerante dirigida a las comunidades más vulnerables, reconociendo la interculturalidad.
+- Implementar la transformación digital y tecnológica. La infraestructura tecnológica es una herramienta útil que permite al justiciable acercarse a la justicia. La justicia digital es un reto que demanda la sociedad, ya que se debe facilitar que a través de estos canales se logre llegar a todas las comunidades, facilitando la presentación de promociones, evitar el uso excesivo del papel y el cuidado de los recursos. La sociedad requiere una justicia moderna y expedita para atender su reclamo
+- La sociedad requiere servidores públicos del Poder Judicial Federal preparados no sólo jurídicamente, sino bajo compromiso social, por lo que se debe proponer la implementacón de cursos a través de la Escuela Judicial Federal, para perfeccionar el quehacer jurisdiccional, con perspectiva social y con énfasis hacia la protección de los grupos más vulnerables. Debe acercarse a la impartición de justicia a la sociedad y capacitar a los jóvenes para la aspiración hacia la función jurisdiccional
+

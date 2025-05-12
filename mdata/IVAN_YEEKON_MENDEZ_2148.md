@@ -1,0 +1,79 @@
+Nombre Candidato: IVAN YEEKON MENDEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Comisión Nacional de Derechos Humanos, Derechos Humanos, Excelencia Académica, Justicia Laboral, Licenciatura en Derecho, Reforma Laboral, Sensibilización., Suprema Corte, UIRMJL, Violencia
+Tags Propósito: accesibilidad, clases desprotegidas, derechos laborales., equidad, justicia laboral, lenguaje ciudadano, perspectiva humana, realidad social, sentencias claras, transparencia
+
+
+## Descripción del Candidato 
+
+IVAN YEEKON MENDEZ es candidato a Jueces/as de Distrito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Licenciado en Derecho con trayectoria académica destacada, ha completado cursos en materia de justicia laboral y derechos humanos, incluyendo formación impartida por la Suprema Corte de Justicia de la Nación y la Comisión Nacional de Derechos Humanos.
+
+Su motivación para buscar el cargo público se centra en su conocimiento de las necesidades laborales de las clases desprotegidas, a las que afirma pertenecer. Su visión sobre la función jurisdiccional y la impartición de justicia se enfoca en la claridad, transparencia y accesibilidad para los ciudadanos. Propone capacitar al personal judicial en lenguaje ciudadano, emitir sentencias más sencillas y atender los asuntos desde una perspectiva humana y cercana a la realidad social.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1CANkhs3Pp/?mibextid=wwXIfr
+- https://www.instagram.com/ivanyeekon?igsh=ZjlnMGF1cHdxeThi&utm_source=qr
+- https://www.tiktok.com/@ivanyeekon?_t=ZM-8v2yTWbK8sJ&_r=1
+
+
+## Cursos
+
+- ¿El nuevo sistema de justicia laboral¿
+- Impartido por la Suprema Corte de Justicia de la Nación,Seminario ¿El nuevo sistema de justicia laboral¿
+- Impartido por la UIRMJL,Jornadas de Sensibilización sobre la Reforma en Materia de Justicia Laboral   Abierto
+- ,Prevenir, atender y erradicar las violencias
+- Una tarea urgente y colectiva
+- ,¿Introducción a los Derechos Humanos¿
+- Impartido por la Comisión Nacional de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55393/11
+
+
+## Trayectoria Academica
+
+- Titulado por excelencia académica de la carrera de Licenciatura en Derecho en la Universidad Autóno
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque conozco las necesidades laborales de las clases desprotegidas, ya que pertenezco a ellas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que la labor jurisdiccional sea clara y transparente, accesible y entendible para todas las personas, que los acuerdos y sentencias se explican de la manera más clara y sencilla posible, para que los ciudadanos puedan entenderlas sin necesidad de ser abogados, que entiendan no solo lo que se esta determinando, sino también el porque.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Llevar justicia laboral a las clases más desprotegidas, analizando conscientemente la situación social del país, así como las grandes diferencias que existen entre los trabajadores y quienes los emplean a efectos de impartir sentencia justas y apegadas a nuestra realiad.
+
+
+## Propuestas
+
+- Capacitar al personal a efectos de que puedan usar lenguaje ciudadano con las personas que acuden a los Tribunales y no son abogados.
+- Emitir sentencias más sencillas a efectos de que sean entendibles para todos los ciudadanos.
+- Atender todos los asuntos desde una perspectiva humana y cercana a la realidad social de las personas.
+

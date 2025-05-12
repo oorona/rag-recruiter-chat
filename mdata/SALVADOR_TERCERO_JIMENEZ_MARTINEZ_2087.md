@@ -1,0 +1,73 @@
+Nombre Candidato: SALVADOR TERCERO JIMENEZ MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6147079123
+Correo Electronico: saltjima@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Amparo, Derecho, Derecho Constitucional, Habilidades en Juicios Orales, Instituto de la Judicatura Federal, Justicia para Adolescentes, Litigación Oral, Morelos, Nuevo Sistema de Justicia Penal Acusatorio, Perspectiva de Género, Procuración, Secretaría de Estudio y Cuenta, UDLA, Universidad de Arizona.
+Tags Propósito: Acceso a la Justicia, Ciudadanía, Confianza Institucional, Derechos Humanos, Diálogo Ciudadano, Eficiencia Judicial, Equidad, Estado de Derecho, Formación Judicial, Imparcialidad, Integridad Judicial, Justicia, Resolución de Conflictos, Responsabilidad Social., Sensibilidad Social, Tecnología Judicial, Transparencia, Ética Judicial
+
+
+## Descripción del Candidato 
+
+Salvador Tercero Jiménez Martinez es candidato a Juez/esa de Distrito en Chihuahua, postulándose en la categoría "En Funciones". Cuenta con maestría y cédula profesional, complementada con una amplia formación en áreas como justicia para adolescentes, el Nuevo Sistema de Justicia Penal Acusatorio, perspectiva de género y litigación oral.
+
+Su motivación para el cargo público se centra en contribuir a un sistema judicial accesible, imparcial y eficiente, que garantice los derechos de la ciudadanía. Su visión se basa en un Poder Judicial que refleje los valores democráticos y proponga una justicia que sea eficiente, oportuna y sensible a las necesidades de la sociedad, enfocándose en la formación continua en ética y derechos humanos, así como en garantizar el acceso a la justicia para todos los ciudadanos sin excepción.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/SalvadorTerceroJimenez?locale=es_LA
+
+
+## Cursos
+
+- Especialidad de Secretaría de Estudio y Cuenta, Instituto de la Judicatura Federal, Ciudad de México, (Título y cédula),Certificación en Justicia para Adolescentes, en el Instituto de la Judicatura Federal, extensión Morelos 2014,Diplomado Nuevo Sistema de Justicia Penal Acusatorio de frente a la Sociedad, Instituto de la Judicatura Federal, 2015,Diplomado Juzgar con perspectiva de género, Dirección UDLAP y el Instituto de la Judicatura Federal, 2016, 200 horas
+- ,Constancia Taller de Habilidades en Juicios Orales:  de las  Universidad de Arizona y  2018
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53329/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Maestrías en Derecho Constitucional y Amparo y Procuración, Administración de Justicia y Litigación Oral
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir a un sistema judicial accesible, imparcial, eficiente y comprometido con los derechos de la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es un poder judicial que sea un verdadero reflejo de los valores democráticos, donde la justicia se administre con integridad, humanidad y respeto por la ley. Mi propuesta es garantizar que el sistema judicial sea un instrumento de justicia real y efectiva, que proteja los derechos de toda la gente y que fortalezca la confianza en las instituciones del Estado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser eficiente, oportuna y resolver los conflictos sin dilaciones innecesarias. Promoveré la mejora continua del sistema judicial, impulsando la adopción de nuevas tecnologías que ayuden a reducir los tiempos de espera y a mejorar la calidad de los procesos judiciales, sin sacrificar la profundidad y el análisis que cada caso requiere.
+
+
+## Propuestas
+
+- Justicia para Todos, Sin Excepciones. En un país democrático, la justicia debe ser accesible a todos los ciudadanos por igual. Mi propuesta y compromiso será garantizar que cada persona, sin importar su origen, estatus económico o poder político, tenga acceso a una justicia imparcial, rápida y eficaz. No hay ciudadanos de segunda clase en mi visión del sistema judicial.
+- Escuchar a la Sociedad, Servir a la Sociedad. Un buen juez debe ser un reflejo de las necesidades y preocupaciones de la sociedad. Mi propuesta es sensibilizar a la gente del poder judicial, para que sea un poder cercano y abierto al diálogo, que escuche las voces de los ciudadanos y que tome decisiones que realmente resuelvan los problemas de la sociedad en su conjunto. La justicia debe ir más allá de la interpretación estricta de la ley; debe ser sensible a los cambios sociales y económicos.
+- Compromiso con la Formación y la Ética Judicial. La justicia no es solo una cuestión de conocimiento técnico, sino también de ética y valores. Exhortare al personal a mi cargo para que tengamos una formación continua, asegurando que nuestro personal se mantenga actualizados en materia de derechos humanos, equidad social y nuevas tendencias legislativas. La integridad y la ética serán las guías en cada decisión judicial.
+

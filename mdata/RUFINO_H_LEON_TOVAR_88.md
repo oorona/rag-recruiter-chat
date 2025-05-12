@@ -1,0 +1,81 @@
+Nombre Candidato: RUFINO H LEON TOVAR
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: rufinohleontovar@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cultura Jurídica, Derecho, Derecho Constitucional, Doctorado., Elección Judicial, INAI, Ley de Archivos, Licenciatura, Maestría, Protección de Datos Personales, Ética Pública
+Tags Propósito: Acceso a la justicia, Armonía social., Corrupción judicial, Derechos humanos, Dignidad humana, Estado de derecho, Formalismos procesales, Igualdad, Justicia para todos, Justicia social, Política pública, Respeto a la ley, Sanciones, Tribunal de Disciplina Judicial
+
+
+## Descripción del Candidato 
+
+RUFINO H LEON TOVAR es candidato a la Magistratura del Tribunal de Disciplina Judicial, postulado por el Poder Ejecutivo Federal. Cuenta con formación académica en Derecho, incluyendo una Maestría y actualmente es doctorante. Su trayectoria incluye cursos en áreas como Ética Pública, Protección de Datos Personales y Cultura Jurídica.
+
+El candidato motiva su búsqueda del cargo en su deseo de contribuir a un sistema jurídico mexicano con un carácter social, buscando una justicia más sencilla y accesible. Su visión se centra en garantizar el acceso a la justicia, el respeto a los derechos humanos y la aplicación de la ley por encima de privilegios. Sus propuestas incluyen facilitar el acceso a la justicia para los más vulnerables, fortalecer el respeto a los derechos humanos y aplicar sanciones severas a la corrupción en el ámbito judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/rufinohleontovar/
+- https://x.com/HLeonRufino
+- https://www.instagram.com/rufinohleon/
+- https://www.youtube.com/@rufinohleontovar7319
+- https://www.tiktok.com/@rufinohleontovar
+
+
+## Cursos
+
+- ÉTICA PÚBLICA, 20 de septiembre de 2024, INAI
+- ,PROGRAMA DE CULTURA Y ACTUALIZACIÓN JURÍDICA, 07 de noviembre de 2019, Universidad Panamericana
+- ,ABC DE LA ELECCIÓN JUDICIAL, 19 de febrero de 2025, Magistrado en retiro Armando I
+- Maitret Hernández
+- ,INTRODUCCIÓN A LA LEY GENERAL DE ARCHIVOS, 25 de septiembre de 2024, INAI
+- ,INTRODUCCIÓN A LA LEY GENERAL DE PROTECCIÓN DE DATOS PERSONALES , 18 de septiembre de 2024, INAI
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16160/7
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO CON MENCIÓN HONORÍFICA, MAESTRO EN DERECHO CONSTITUCIONAL CON MENCIÓN H
+- Y DOCTORANTE EN DERECHO
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir al Sistema Jurídico Mexicano dándole un carácter social, haciendo la justicia más sencilla y accesible.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Gobierno tiene un compromiso con los mexicanos de garantizar condiciones idóneas para su desarrollo pleno y armónico en un ambiente de paz, acceso eficiente a la justicia y respeto a los derechos humanos. Si logramos estos objetivos se disminuye la brecha de desigualdad y mediante la implementación de políticas públicas adecuadas, también se conseguirá una convivencia social armónica y el respeto a la autoridad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+México tiene una deuda histórica con la sociedad en la impartición de justicia, sobre todo con las personas que menos tienen. El Tribunal de Disciplina Judicial será el garante del respeto a los derechos humanos establecidos en la Constitución y en los tratados internacionales, a fin de hacer realidad el estado de derecho poniendo al centro de la función jurisdiccional la dignidad de las personas, para lograr que en nuestro país impere la ley por encima de privilegios.
+
+
+## Propuestas
+
+- Justicia para todos, pero principalmente para quienes menos tienen. Acceso a una Justicia sin formalismos o requisitos procesales innecesarios.
+- Respeto a los derechos humanos y aplicación de la ley por encima de privilegios.
+- Cárcel para jueces corruptos y sanciones severas a quienes retarden o resuelvan injustamente los casos.
+

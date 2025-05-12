@@ -1,0 +1,72 @@
+Nombre Candidato: LORENA CASILLAS BACA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 4928920467
+Correo Electronico: casillaslb@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización Profesional, Formación, Igualdad de Género, Justicia, Legislación, PJF., Secretarios de Juzgados, Tribunales Colegiados, Violencia
+Tags Propósito: Acceso a la Justicia, Actualización Profesional, Bienestar Social, Capacitación, Derechos, Eficiencia, Estado de Derecho, Imparcialidad, Independencia Judicial, Justicia, Seguridad Jurídica, Servicio, Transparencia, Vulneración de Derechos.
+
+
+## Descripción del Candidato 
+
+Lorena Casillas Baca es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Ejecutivo Federal en Zacatecas. Cuenta con estudios de Doctorado concluidos y ha realizado diversos cursos de formación en el Poder Judicial Federal, incluyendo temas de igualdad de género y actualizaciones legislativas desde 2007. 
+
+Su motivación para buscar el cargo se centra en su formación profesional orientada a la impartición de justicia y su deseo de seguir contribuyendo a la atención de las necesidades de las personas. Sus propuestas incluyen garantizar la independencia judicial, la capacitación continua de los operadores del sistema de justicia, y asegurar el acceso material y formal a la justicia, con especial énfasis en la información y conocimiento de los derechos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Lorena Casillas Baca.
+- https://www.x.com/@casillaslore01
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación para Secretarios de Juzgados de Distrito y Tribunales Colegiados del PJF (2005),Especialidad en Secretarías de Juzgados de Distrito y Tribunales Colegiados de Circuito (2006),Curso Género como Herramienta para la Igualdad (2022),Curso Espacios Libres de Violencia (2022),Cursos y Seminarios de actualizaciones legislativas desde 2007 a la fecha
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52880/10
+
+
+## Trayectoria Academica
+
+- Durante mi trayectoria me he desempeñado con dedicación, responsabilidad y esfuerzo, siempre al servicio de la JUSTICIA
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi formación profesional se ha enfocado en impartir justicia y deseo seguir beneficiando a las personas que lo necesitan
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se centra en la impartición de justicia de una manera justa, eficiente, transparente e imparcial y sobre todo conscientes de que estamos para SERVIR a las personas que lo necesitan, de manera que el acceso a la justicia sea confiable, eficaz y profesional para quienes lo solicitan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Más que una visión es un anhelo en que la impartición de JUSTICIA sea sensible a las necesidades de las personas que acuden al tribunal, que se les garantice el estado de derecho, se les otorgue seguridad jurídica y se logre el bienestar de la sociedad, precisamente a través de una administración de justicia pronta, confiable, eficaz e imparcial
+
+
+## Propuestas
+
+- Garantizar la independencia judicial, lo que en mi opinión es lo más importante para tener seguridad jurídica y que todas las personas sean tratadas con igualdad ante la ley.
+- Capacitación y actualización constante de los operadores del sistema de justicia, a través de cursos, talleres, especializaciones, seminarios.
+- Asegurar el acceso a la justicia, material y formalmente, mediante el acceso a las instalaciones y los servicios, así como a través de la información y herramientas necesarias para que las personas conozcan sus derechos y los mecanismos a su disposición para defenderlos cuando son vulnerados.
+

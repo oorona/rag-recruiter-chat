@@ -1,0 +1,72 @@
+Nombre Candidato: LAURA SERRANO ALDERETE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 9931186056
+Correo Electronico: lauraserranoalderete@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 31 años de experiencia., Carrera Judicial, Licenciatura en Derecho, PJF, UNAM
+Tags Propósito: Acceso a la Justicia, Constitución, Derechos Humanos, Educación Jurídica, Estado de Derecho, Imparcialidad, Independencia, Justicia, Ley., Modernización, Participación Ciudadana, Rendición de Cuentas, Resolución Alternativa de Conflictos, Simplificación Procesal, Tecnología, Transparencia, Tribunales Especializados
+
+
+## Descripción del Candidato 
+
+LAURA SERRANO ALDERETE es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose en funciones. Licenciada en Derecho por la UNAM, cuenta con 31 años de carrera judicial en el Poder Judicial de la Federación. Su motivación para buscar el cargo es continuar impartiendo justicia y proteger los derechos humanos de los ciudadanos.
+
+En cuanto a sus propuestas, se enfoca en simplificar los procedimientos judiciales, implementar mecanismos alternativos de resolución de conflictos y fortalecer la transparencia. A nivel estructural, propone modernizar la infraestructura de los tribunales, implementar tecnologías de la información y crear tribunales especializados. Además, busca fomentar la participación ciudadana en la justicia, garantizar el acceso a la justicia para todos y promover la educación jurídica para la ciudadanía.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574212033790
+- https://www.instagram.com/lauraserranoalderete/
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54903/10
+
+
+## Trayectoria Academica
+
+- LICENCIADA EN DERECHO POR LA UNAM, CON 31 AÑOS DE CARRERA JUDICIAL EN EL PJF
+
+
+## Motivo para buscar el Cargo Publico
+
+PARA CONTINUAR IMPARTIENDO JUSTICIA Y CON ELLO LA PROTECCION DE LOS DERECHOS HUMANOS DE LOS CIUDADANOS.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es el papel que desempeña el Poder Judicial de la Federación en la aplicación de la ley y la resolución de conflictos en una sociedad, con las características de independencia, imparcialidad y publicidad, es decir los procesos judiciales deben ser públicos para garantizar la transparencia y la rendición de cuentas. Con las funciones específicas de interpretación de la ley, resolución de disputas y control de constitucionalidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un proceso fundamental en cualquier sociedad, ya que busca garantizar que se haga justicia y se protejan los derechos de los ciudadanos, ya sean individuales o colectivos. Con los principios de imparcialidad, independencia, publicidad y respeto a la ley. El proceso de investigación, juicio y sentencia, que puede ser condenatoria o absolutoria. La importancia a la garantía de justicia, estabilidad social y el desarrollo del derecho.
+
+
+## Propuestas
+
+- Procesales 1. Simplificación de los procedimientos: Reducir la complejidad y el tiempo de los procesos judiciales para mejorar la eficiencia y la accesibilidad. 2. Implementación de mecanismos alternativos de resolución de conflictos: Fomentar el uso de mecanismos como la mediación, la conciliación y el arbitraje para resolver disputas de manera pacífica y eficiente. 3. Fortalecimiento de la transparencia y la rendición de cuentas: Implementar medidas para garantizar la transparencia
+- Estructurales 1. Modernización de la infraestructura: Actualizar las instalaciones y equipos de los tribunales para mejorar la eficiencia y la accesibilidad. 2. Implementación de tecnologías de la información: Utilizar herramientas digitales para agilizar los procesos judiciales. 3. Creación de tribunales especializados: Establecer tribunales especializados en áreas como la justicia laboral, la protección de derechos humanos.
+- Participación Ciudadana 1. Fomento de la participación ciudadana en la justicia con la creación de consejos ciudadanos o la realización de consultas públicas. 2. Acceso a la justicia para todos con independencia de su condición económica o social. 3. Educación jurídica para la ciudadanía, implementando programas para mejorar su comprensión del sistema judicial y sus derechos.
+

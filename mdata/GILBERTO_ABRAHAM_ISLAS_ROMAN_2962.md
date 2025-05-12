@@ -1,0 +1,75 @@
+Nombre Candidato: GILBERTO ABRAHAM ISLAS ROMAN
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: gilberto.islasr@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: BUAP, CDH Puebla., Derecho Laboral, Derechos Humanos, Escuela Federal de Formación Judicial, Instituto de la Judicatura Federal, Justicia Laboral, Licenciatura en Derecho, Maestría, Mecanismos Alternativos de Solución de Controversias, Perspectiva de Género, Reforma Judicial, Seguridad Social
+Tags Propósito: Acceso a la justicia, Capacitación, Compromisos, Derechos humanos, Digitalización, Eficiencia, Equidad, Imparcialidad, Imparcialidad real., Influencias, Justicia, Justicia laboral, Litigio, Mediación, Procesos judiciales, Reforma judicial, Resolución de conflictos, Responsabilidad, Transparencia
+
+
+## Descripción del Candidato 
+
+Gilberto Abraham Islas Roman es candidato a Jueces/es de Distrito en Puebla, postulándose al Poder Legislativo Federal. Cuenta con Maestría en Derecho del Trabajo y de la Seguridad Social por la BUAP y una Licenciatura en Derecho por la misma institución. Su trayectoria académica se complementa con diversos cursos de especialización en áreas como justicia laboral, derechos humanos, y mecanismos alternativos de solución de controversias, incluyendo formación en perspectiva de género.
+
+Islas Roman motiva su candidatura en la importancia de la función jurisdiccional para garantizar derechos básicos. Su visión se centra en una función jurisdiccional imparcial, eficiente y con acceso efectivo a la justicia, destacando la necesidad de real imparcialidad libre de influencias externas. Sus propuestas incluyen fortalecer la capacitación en resolución alternativa de conflictos, mejorar los tiempos procesales mediante digitalización, e impulsar la aplicación efectiva de la reforma en justicia laboral.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/IslasromanG
+- https://www.linkedin.com/in/gilberto-abraham-islas-romC3A1n/
+
+
+## Cursos
+
+- ¿Curso de Especialización sobre la Reforma en Materia de Justicia Laboral¿ Instituto de la Judicatura Federal,Certificación en Derechos Humanos
+- Terminal en el curso ¿Los Derechos Humanos en las Empresas¿ CDH PUEBLA,JORNADAS DE INTRODUCCIÓN AL ESTUDIO DE LA LEY GENERAL DE MECANISMOS ALTERNATIVOS DE SOLUCIÓN DE CONTROVERSIAS,CURSO LA REFORMA JUDICIAL 2021
+- SEGUNDA EDICIÓN Escuela Federal de Formación Judicial,CURSO JUZGAR CON PERSPECTIVA DE GÉNERO EN MATERIA LABORAL
+- TERCERA EDICIÓN Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54697/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO BUAP Y MAESTRÍA EN DERECHO DEL TRABAJO Y DE LA SEGURIDAD SOCIAL BUAP
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque considero que la función jurisdiccional es clave para garantizar derechos básicos de cualquier persona.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser imparcial, eficiente y enfocada en garantizar el acceso efectivo a la justicia. Debe centrarse en resolver conflictos de manera justa y con apego a la ley, asegurando un equilibrio entre las partes. Es un servicio público fundamental que debe ejercerse con responsabilidad, transparencia y compromiso con los derechos humanos. Además es necesario contar con REAL IMPARCIALIDAD LIBRE DE COMPROMISOS E INFLUENCIAS DE REPRESENTANTES DE LITIGIO PATRONALES U OBREROS.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible, ágil y enfocada en resolver los conflictos de manera efectiva y con equidad. Se deben buscar soluciones justas, considerando el contexto de cada caso. Debe basarse en el respeto a los derechos fundamentales y en la correcta valoración de la prueba para garantizar decisiones justas y SIN COMPROMISOS ADQUIRIDOS EN CAMPAÑA CON NINGÚN SECTOR, SEA EMPRESARIAL U OBRERO para garantizar efectiva y real imparcialidad en el ejercicio de la función.
+
+
+## Propuestas
+
+- Fortalecer la capacitación en mediación y resolución alternativa de conflictos para agilizar los procesos judiciales.
+- Mejorar los tiempos procesales mediante el uso de herramientas tecnológicas y digitalización de los expedientes.
+- Impulsar la aplicación efectiva de la reforma en materia de justicia laboral para hacerla más accesible y eficiente.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: ANA LUISA ZAVALA CARRASCO
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4444188739
+Correo Electronico: lic_zavala_c@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Procesal Penal, INDEPAC, Licenciatura., Litigación, Maestría, Oficial Judicial, Sistema Penal Acusatorio, Sistema de Justicia, U.A.S.L.P.
+Tags Propósito: acceso a la justicia, administración judicial, bien común, capacitación, control de confianza, derechos humanos, estado de derecho, función pública, justicia, paz social, profesionalización, reparación del daño, seguridad, supervisión judicial, órganos fiscalizadores., órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Ana Luisa Zavala Carrasco es candidata a Jueza/es de Distrito en San Luis Potosí, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Penal y cédula profesional. Su trayectoria académica incluye estudios en la Facultad de Derecho de la U.A.S.L.P. y formación en el INDEPAC.
+
+Zavala Carrasco expresa su motivación para el cargo público como una oportunidad para servir a su país a través de las instituciones. Su visión de la función jurisdiccional se centra en la justicia como un medio imparcial para aplicar la ley, mientras que su visión de la impartición de justicia busca garantizar el estado de derecho, la paz social y el acceso a la justicia. Sus propuestas incluyen la capacitación continua de los juzgadores en derechos humanos, la implementación de exámenes de control de confianza y revisión administrativa, y la supervisión constante de los órganos fiscalizadores del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574667097446
+
+
+## Cursos
+
+- Acreditación del 4° concurso abierto de oposición escolarizado para acceder al cargo de Oficial Judicial
+- ,Jornadas de Discusión  en materia de hechos en el Nuevo Sistema de Justicia,XII módulos del  del Sistema Penal Acusatorio,Curso   y destrezas de litigación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54931/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho en la Facultad de Derecho, por la U
+- A
+- S
+- L
+- P
+- , Maestría en derecho procesal penal en el INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a mi país a través de las instituciones en donde he podido colaborar, me permite enaltecer la función pública.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia es uno de los fines del derecho, junto con la seguridad y el bien común; siendo la función jurisdiccional un medio imparcial para aplicarla.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia busca garantizar el estado de derecho, la paz social y el acceso a la justicia para todos, dando certeza en la legalidad de las resoluciones, protegiendo a las victimas y se les garantice la reparación del daño.
+
+
+## Propuestas
+
+- Capacitación continua y Profesionalización de los juzgadores en materias de derechos humanos
+- Exámenes de control de confianza y revisión de la administración de los órganos jurisdiccionales.
+- Supervisión constante de los órganos fiscalizadores del poder judicial.
+

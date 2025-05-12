@@ -1,0 +1,72 @@
+Nombre Candidato: LUIS DIDIER MOLINA ROSALES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5551547310
+Correo Electronico: luisdidier.molina.r@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Convenio de la Haya, Derecho Ambiental, Derecho Familiar, Derecho Penal, Diplomado, Especialidad, Juicio de Amparo, Licenciatura en Derecho, Maestría en curso, Reformas Constitucionales, Secretaría de Relaciones Exteriores, Seminario, Suprema Corte de Justicia, Tribunal Superior de Justicia, Universidad de Ecatepec.
+Tags Propósito: accesibilidad, ciudadano, corazón, decisiones justas., eficacia, escritorio, escuchar, función pública, imparcialidad, justicia, justicia para todos, juzgador, privilegios, pueblo, razón, servicio, verdad, vital importancia
+
+
+## Descripción del Candidato 
+
+LUIS DIDIER MOLINA ROSALES es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Cuenta con estudios de Licenciatura en Derecho, Especialidad en Derecho Penal y una Maestría en Derecho Familiar en curso. Su formación complementaria incluye cursos y diplomados en temas como notificaciones en el extranjero, reformas constitucionales, derecho ambiental y juicio de amparo impartidos por diversas instituciones, incluyendo la Secretaria de Relaciones Exteriores y la Suprema Corte de Justicia de la Nación.
+
+Motivado por su pasión por el servicio público y la construcción de un futuro social mejor, MOLINA ROSALES busca este cargo con el objetivo de transformar la función jurisdiccional y la impartición de justicia. Su visión se centra en acercar la justicia a la ciudadanía, priorizando la escucha a las personas y una conexión más humana con los casos. Sus propuestas principales incluyen un compromiso con la accesibilidad, la imparcialidad, la búsqueda de la verdad a través del contacto directo con los ciudadanos y el fin de las prácticas privilegiadas en la administración de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574871233928
+- https://www.tiktok.com/@luis.didier.molin
+
+
+## Cursos
+
+- Curso impartido por la Secretaria de Relaciones Exteriores ¿Notificaciones en el extranjero, Convención de la Haya del,Curso impartido por el Tribunal Superior de Justicia del Distrito Federal ¿Reformas al artículo 1 y 133 Constitucional,Especialidad en Derecho Penal,Seminario Derecho Ambiental impartido por la Suprema Corte de Justicia de la Nación,Diplomado en juicio de amparo, impartido por la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53877/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho Universidad de Ecatepec, Especialidad en Derecho Penal, Maestria en Derecho Familiar en curso
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque el ser funcionario público es una pasión con el sueño de intentar construir un futuro social mejor.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actualmente, tenemos una justicia apartada de la ciudadanía, Jueces que únicamente ven a las personas como un expediente más, un caso más que resolver, problemas jurídicos minimizados por no tener un rostro y eso ocasiona que los JUECES SEAN FRÍVOLOS E INSENSIBLES, CUESTIÓN QUE DEBE CAMBIAR.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la justicia actualmente es lenta e imprecisa y como no serlo, sí solo se ve de tras de un escritorio, sin escuchar al pueblo, un pueblo sin voz, pues la justicia se encontraba alejado de aquellos que la necesitaban, BASTA DE ESO, AHORA EL PUEBLO DEBE SER ESCUCHADO y tener una justicia eficaz y accesible.
+
+
+## Propuestas
+
+- Propongo, siempre como juzgador estar en todo momento para servir a cualquier persona y que ésta se SIENTA LIBRE DE SER ESCUCHADO a cada instante, pues, sus juicios son de vital importancia para mí, ya que una decisión indebida no solo puede destruir la vida de una persona, sino la de toda su familia, ADIÓS A LOS JUECES DE ESCRITORIO, PUES MI DEBER SER SERVIR AL PUEBLO.
+- Propongo, ser un juzgador que se aparte de ver los juicios como un asunto más, sino que, en cada uno de ellos, ESCUCHARE AL CIUDADANO, puesto que basta de juzgadores que estén encerrados en su oficina y solo atiendan al privilegiado, ya que la justicia debe ser impartida, BUSCANDO LA VERDAD, CON EL CORAZÓN EN LA MANO Y CON IMPARCIALIDAD.
+- Propongo, en todo momento cumplir con mi labor jurisdiccional con amor y respetar, basta de justicia para pobres y justicia para ricos, ADIÓS A LOS PRIVILEGIOS, la justicia, solo se debe impartir con base en la razón y con escuchar la verdad de cada ciudadano, no la verdad escrita en un papel por un abogado, HAY QUE ESCUCHAR EL PUEBLO, SOLO ASÍ LLEGAREMOS A LA VERDAD.
+

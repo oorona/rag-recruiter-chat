@@ -1,0 +1,79 @@
+Nombre Candidato: AQUINO BAUTISTA CRUZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: HOMBRE
+Telefono: 7444373024
+Correo Electronico: abautistacruz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Calidad Ortográfica, Comunicación, Derecho, Derecho Constitucional, Derecho Penal., Derecho Procesal Penal, Derechos Humanos, Doctorado, Formación, Licenciatura, Maestría, Poder Judicial, Redacción Institucional, Reforma Constitucional, Reforma Laboral
+Tags Propósito: acceso a la justicia, confianza, constitucionalismo, derechos humanos, disciminación., eficiencia, equidad, expedita, igualdad, imparcialidad, inclusión, independencia, jurisprudencia, justicia, liderazgo, motivación, normas procesales, objetividad, pruebas, resolución de fondo, sensibilidad social, tratados internacionales, verdad
+
+
+## Descripción del Candidato 
+
+AQUINO BAUTISTA CRUZ es candidato a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en derechos humanos, derecho constitucional y penal, así como formación en diversas áreas del Poder Judicial de la Federación. 
+
+Su motivación para buscar el cargo público es contribuir a una justicia más equitativa, incluyente y cercana a la ciudadanía. Sus propuestas se centran en privilegiar la resolución de fondo de los asuntos, fomentar un liderazgo eficiente para la resolución expedita de casos y asegurar resoluciones imparciales, objetivas y fundadas en la búsqueda de la verdad. Busca eliminar prácticas burocráticas dentro de los órganos jurisdiccionales y promover la aplicación de las normas procesales cuando no afecten la resolución de fondo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BhipiPngD/?mibextid=wwXIfr
+- https://x.com/aqui_bautista?s=11
+- https://www.instagram.com/aquinobautista2?igsh=MWNkbzNwMGJIc-WdpdQ3D3D&utm_soure=qr
+- https://youtube.com/@aquinobautistacruz9953?si=zAIA58eF1IyoLkZ1
+- https://www.tiktok.com/@aquinobautista532?_t=ZM-8uxt6anFFi9&_r=1
+- https://www.facebook.com/share/12JBY2cirjf/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Curso Básico de Formación de Secretarios del Poder Judicial de la Federación, ciclo escolar 2013
+- ,Diplomado en calidad ortográfica y redacción institucional,Curso Jornada se Sensibilización sobre la reforma en Materia Laboral
+- ,Curso el proceso de comunicar para dirigir
+- ,Diplomado en nociones generales sobre la reforma constitucional en materia de amparo y su ley reglamentaria
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52430/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho, maestro en derecho procesal penal, doctorado en derechos humanos, derecho constitucional y penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Con mis conocimientos y experiencia contribuiré a que la justicia sea más equitativa, incluyente y cercana al pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Existen prácticas burocráticas dentro de los propios órganos jurisdiccionales, los cuales deben ser eliminados para alcanzar el fin perseguido por el artículo 17 constitucional, en lo que respecta a que la justicia debe ser expedita. Para ser titular de un órgano judicial se requiere ser una persona con convicción y vocación de juzgador, profundamente comprometido con los valores y principios de la labor jurisdiccional y un amor profundo por el derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con la experiencia adquirida podré contribuir directamente a que la justicia sea más equitativa, incluyente y cercana a la ciudadanía. Los derechos de todas y todos deben ser respetados, desde luego en estricta observancia a lo que establece la Constitución Política de los Estados Unidos Mexicanos y las leyes que de ella emanen, pero siempre que el derecho sea un instrumento par una sociedad más igualitaria y con mayor sensibilidad social y humana.
+
+
+## Propuestas
+
+- Privilegiar la resolución de fondo de los asuntos por encima de las cuestiones procesales, para evitar darle a las personas justiciables falsas esperanzas; lo que no implica inobservar las normas procesales, sino, privilegiar su aplicación cuando se desarrollo anormal trascienda en el sentido de la resolución de fondo. De esa forma, es posible reducir significativamente el número de procesos y juicios, y por ende fomentar una justicia eficaz en beneficio de la ciudadanía en general.
+- Fomentar un liderazgo claro y eficiente que lleve a la resolución de los casos de manera expedita, con un rostro humano que genere confianza en la sociedad aplicando todo el esfuerzo humano y profesional para evitar cualquier tipo de discriminación dentro del órgano jurisdiccional para con el personal del mismo y para con las personas que acuden a pedir justicia. De manera que tengan la confianza de que tienen un juzgado o tribunal que los escuche y los defienda cuando se les presente un caso.
+- Al resolver los asuntos el único objeto debe ser encontrar la verdad, con resoluciones imparciales, objetivas e independientes; fundadas, motivadas y simplificadas. Lo cual implica la valoración de manera congruente y exhaustiva de pruebas y demás pretensiones deducidas en cada proceso judicial, conforme a las normas y jurisprudencias nacionales, así como los tratados internacionales, aplicables en cada caso.
+

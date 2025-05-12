@@ -1,0 +1,72 @@
+Nombre Candidato: LUIS ARTURO FIGUEROA SOLIS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2283129753
+Correo Electronico: drarturofigueroa.sol@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Criminología, Derecho, Diplomado., Doctorado, Investigación Criminal, Juicios Orales, Justicia Penal, Licenciatura, Maestría, Oratoria Política
+Tags Propósito: Constitución, acceso a la justicia, ciudadanos, claridad, compromiso, derechos, eficacia, equidad, formulismos, función jurisdiccional, honradez, humanismo, imparcialidad, intereses, justicia, justicia social, juzgadores, protección, sensibilidad, sentencias, sociedad, transparencia, visión de justicia.
+
+
+## Descripción del Candidato 
+
+LUIS ARTURO FIGUEROA SOLIS es candidato a Magistratura de Tribunales Colegiados de Circuito en Veracruz, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho, Maestría en Criminología y Especialidad en Juicios Orales, además de diversos diplomados en áreas del derecho penal y oratoria política.
+
+Su motivación para buscar el cargo se centra en establecer una conexión con la ciudadanía, y su visión de la función jurisdiccional enfatiza la importancia de un trato sensible y humanista hacia quienes buscan justicia. Sus propuestas incluyen un enfoque en la protección de la sociedad en general, la búsqueda de justicia social a través de las sentencias, y el acceso a la justicia sin barreras ni tecnicismos para los ciudadanos. Su currículae vitae completo se encuentra disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15zvTa8WqZ/
+- https://www.instagram.com/lic.arturosolis/
+
+
+## Cursos
+
+- Diplomado en e Nuevo Sistema de Justicia Penal,Diplomado en Amparo,Diplomado en Investigación Criminal,Diplomado en Oratoria Politica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52887/10
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho Maestría en Criminología Especialidad en Juicios Orales Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero que las personas se sientan identificadas conmigo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia no debe ser indolente frente a la ciudadania que se acerca a los tribunales buscando que las personas que imparten justicia, (no importar si son titulares de los juzgados o tribunales), los orienten y los vea con sensibilidad y humanismo. Es por lo que busco que cualquier persona que pise los tribunales y expongan sus problemas, salgan convencidos que se revisará su asunto con compromiso y honradez. Pero sobre todo, con imparcialidad, equidad y justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras tienen la obligación y el compromiso con nuestro país. Asimismo hay que exaltar que el papel que los juzgadores juegan no es nada sencillo y menos cuando tienen la obligacion de atender los intereses de la ciudadania, pues sus sentencias son muy importantes para nuestro país. Es ese entendido, el juzgador tiene como una de sus obligaciones, el esmerarse todos días con el solo propósito de ser mejor persona, mejor servidor y construir una sociedad más justa.
+
+
+## Propuestas
+
+- En la sociedad actual donde el quehacer de los juzgadores se torna más complicado, y se deben atender con mayor prontitud y eficacia dicha función. En ese sentido, considero que es importante que las personas juzgadoras tengan a la mano el sentir de los justiciables, esto es, el juzgador debe velar en todo momento por la protección de la sociedad y no solo de un determinado grupo de la sociedad y menos atendiendo intereses personales. Esa es una nueva forma de aplicar el derecho.
+- La administración de justicia, es un tema que transciende no solo fronteras. Más que eso, debe a travesar la consciencia en las personas juzgadoras para poder tener la visión de justicia social. Esto es, el juzgador mexicano, debe atender si, un deber constitucional, pero no solo puede ni debe limitarte a una función puramente jurisdiccional, sino su función debe servir a mejorar las vidas de todas las personas mediante sus sentencias. Acercar la justicia a los individuos.
+- La visión del juez mexicano siempre será la de velar por la aplicación del derecho justo en todo momento; cuidando y respetando lo que establece la Constitución. No se omite manifestar, que el ciudadano debe tener la claridad de poder acudir a un juzgado o tribunal a que le impartan justicia, sin que medien formulismos que para él sean incomprendidos o complejos de atender. Y bajo esa vision, poder obtener respuestas sencillas y entendibles para cualquier ciudadano o ciudadana.
+

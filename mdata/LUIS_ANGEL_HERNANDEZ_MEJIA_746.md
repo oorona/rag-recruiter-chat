@@ -1,0 +1,78 @@
+Nombre Candidato: LUIS ANGEL HERNANDEZ MEJIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5522122646
+Correo Electronico: lahm_19@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Asistentes Judiciales, Concurso Escolarizado, Derecho, Diplomados, Dogmática Jurídica, Especialidades., Formación Judicial, Justicia Penal, Licenciatura en Derecho, Poder Judicial de la Federación, Procedimientos Penales, Secretarios Judiciales, Tribunal de Circuito
+Tags Propósito: Acceso a la justicia, Administración de justicia, Carga de trabajo, Ciudadanía, Comunicación, Debido proceso, Derechos humanos, Eficiencia procesal, Formación continua., Imparcialidad, Impartición de justicia, Interpretación legal, Justicia, Legalidad, Resolución de conflictos, Sensibilidad jurídica, Transformación jurídica, Tribunales Federales
+
+
+## Descripción del Candidato 
+
+LUIS ANGEL HERNANDEZ MEJIA es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con licenciatura en Derecho y formación continua a través de cursos y diplomados impartidos por la Escuela Federal de Formación Judicial, enfocados en justicia penal, administración de justicia y procedimientos.
+
+Su motivación para el cargo radica en la oportunidad de brindar una verdadera impartición de justicia. Sus propuestas centrales incluyen facilitar el acceso a la justicia, interpretar las leyes de manera adaptable a las necesidades actuales de la sociedad, y eficientar los procesos administrativos para permitir una mejor comunicación entre juzgadores y justiciables. Se compromete a una administración de justicia accesible, rápida y sensible a las circunstancias individuales, siempre respetando el principio de legalidad e imparcialidad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1KhKvwCF9b/?mibextid=wwXIfr
+- https://www.instagram.com/luis_hdzme?igsh=MWdiZDFpcmp5Zml3Zw3D3D&utm_source=qr
+- https://www.tiktok.com/@luis.angel205?_t=ZM-8v6K9tIpqdD&_r=1
+
+
+## Cursos
+
+- Curso de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Diplomado de Formación en torno del Nuevo Sistema de Justicia Penal
+- ,Curso de Inducción para Asistente de Constancias y Registros y Despacho Judicial
+- ,Curso sobre Dogmática Jurídica Penal desde la Perspectiva del Código Nacional de Procedimientos Penales
+- ,Curso de Formación para Personas secretarias de Tribunal de Circuito: Concurso Escolarizado edición 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53475/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, diversos diplomados y especialidades impartidos por la Escuela Federal de Formación Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Como Magistrado de Circuito Civil tendré la oportunidad de brindar a las personas una verdadera impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Cada una de las personas servidoras públicas que conforman el sistema de administración de justicia, incluidos las juzgadoras y juzgadores federales, tienen una encomienda de altísima responsabilidad, pues su labor diaria constituye uno de los principales componentes para poder proporcionar una auténtica justicia a la ciudadanía, de ahí que su constante formación y preparación es crucial para llevar a cabo esa labor de manera satisfactoria en beneficio de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser para todos y todas las personas, sin exclusión alguna. Por ello es que el Estado Mexicano debe concentrar sus esfuerzos para lograr ese propósito, pues solamente a través de una verdadera administración de justicia es posible solucionar de manera pacífica los conflictos que se presentan entre las personas.
+
+
+## Propuestas
+
+- Desde mi experiencia puedo afirmar que la ciudadanía exige de los Tribunales Federales una verdadera impartición de justicia. Por ello, mi primera propuesta consiste en brindar una justicia mucho más accesible y rápida, así como examinar los asuntos desde una perspectiva más cercana a las personas, pero siempre en respeto a la ley, o sea, al principio de legalidad y al de imparcialidad, a fin de garantizar el debido respeto a los derechos de las partes contendientes.
+- El Derecho evoluciona en la medida en que lo hace la sociedad, es decir, en función de los constantes cambios en la interacción de ciudadanía, el Derecho también se debe transformar. Por tanto, mi segunda propuesta es realizar interpretaciones de las leyes que permitan adecuar las normas jurídicas a las circunstancias actuales de la sociedad con el fin de garantizar el respeto a los derechos de todas las personas sin distinción de ningún tipo.
+- La excesiva carga de trabajo es un factor que impide un acercamiento directo y personal entre las personas juzgadoras y justiciables, por lo que mi tercer propuesta consistente en hacer lo necesario a fin de lograr esa clase comunicación, como eficientizar los procesos administrativos del Tribunal a fin de contar con suficiente tiempo para ello, ya que así es posible advertir con mayor sensibilidad la verdadera problemática jurídica y con ello, proporcionar la solución más justa.
+

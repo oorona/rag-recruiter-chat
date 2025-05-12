@@ -1,0 +1,82 @@
+Nombre Candidato: MARTHA FABIOLA KING TAMAYO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5541854817
+Correo Electronico: marthakingmx@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación, Centro Carbonell, Derecho Electoral, Derecho Fiscal, ITAM, ITESM, Juicio de Amparo, Juicio en Línea, Lenguaje jurisdiccional, Licenciatura en Derecho, Maestría., Perspectiva de género, Redacción judicial, Resoluciones electorales, TEPJF, TFJA, Universidad Autónoma de Nuevo León
+Tags Propósito: Acceso a la Justicia, Ciudadanía, Derechos Humanos, Equidad, Formalismos, Imparcialidad, Inclusión, Independencia, Justicia, Justicia Cercana., Lenguaje Claro, Modernización, Perspectiva de Género, Poder Judicial, Resolución de Problemas, Sentencias Comprensibles, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Martha Fabiola King Tamayo es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose para el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con una Maestría en Derecho Fiscal y más de 23 años de experiencia en la impartición de justicia, enfocándose en que ésta no sea un privilegio.
+
+Su visión para la función jurisdiccional se centra en un sistema que ponga al justiciable en el centro, priorizando la resolución de problemas reales y la aplicación de un lenguaje comprensible para la ciudadanía. Sus propuestas incluyen la implementación de audiencias públicas semanales para promover la transparencia, la modernización del lenguaje de las sentencias y la emisión de resoluciones con perspectiva de derechos humanos, especialmente en favor de los grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://marthaking.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/MarthaKingMx/
+- https://x.com/MarthaKingMx/
+- https://www.instagram.com/MarthaKingMx/
+- https://www.youtube.com/@marthakingmx
+- https://www.tiktok.com/@marthakingmx
+- https://www.linkedin.com/in/marthakingmx/
+
+
+## Cursos
+
+- Curso: Perfeccionamiento en la argumentación de las resoluciones en materia electoral y redacción judicial
+- ITAM,Diplomado en Juicio de Amparo
+- TEPJF,Diplomado en Derecho Electoral
+- TEPJF,Lenguaje jurisdiccional y la perspectiva de género
+- Centro Carbonell,Juicio en Línea
+- TFJA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53416/10
+
+
+## Trayectoria Academica
+
+- Maestra en Derecho Fiscal por la Universidad Autónoma de Nuevo León y Licenciada en Derecho por el ITESM
+
+
+## Motivo para buscar el Cargo Publico
+
+Durante más de 23 años he dedicado mi vida a la impartición de justicia con una convicción clara: No es un privilegio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no puede limitarse a la aplicación rígida de normas, sino que debe ser una herramienta efectiva para garantiza. Una justicia que reine es aquella que pone al justiciable en el centro de su actuar, que no se pierde en formalismos innecesarios y que busca soluciones reales a los problemas que enfrenta la sociedad. Mi compromiso es consolidar un sistema jurisdiccional que refleje estos valores.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es construir una justicia libre de privilegios, con resoluciones que protejan a los sectores más vulnerables y que realmente transformen la vida de las personas. La imparcialidad, la independencia y la cercanía con la ciudadanía deben ser los pilares del sistema judicial. La justicia no puede ser distante ni inalcanzable; debe hablar el idioma de la gente, ser comprensible y responder a las problemáticas actuales con un enfoque de derechos humanos, equidad y sensibilidad social.
+
+
+## Propuestas
+
+- Justicia Transparente: Audiencias Públicas Semanales. Compromiso: Establecer un día a la semana para recibir y escuchar a las partes involucradas en los juicios de manera transparente y con registro público. ¿Por qué importa? Para eliminar la percepción de que la justicia es un privilegio y acabar con las citas privadas que beneficiaban solo a quienes tenían más conexiones.
+- Un Poder Judicial Más Cercano a la Gente. Compromiso: Modernizar el lenguaje de las sentencias para que sean claras, comprensibles y útiles para los ciudadanos. ¿Por qué importa? La ley debe aplicarse para todos, pero si la gente no la entiende, no puede exigir su cumplimiento.
+- Sentencias con Perspectiva de Derechos Humanos. Compromiso: Emitir resoluciones con perspectiva de género, inclusión y derechos humanos, priorizando la protección de los grupos más vulnerables. ¿Por qué importa? Porque la justicia solo tiene sentido cuando protege a quienes más la necesitan.
+

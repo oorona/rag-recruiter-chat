@@ -1,0 +1,75 @@
+Nombre Candidato: GUSTAVO SERRANO GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5540832676
+Correo Electronico: lexserrano71@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Penal, Cursos, Derechos Humanos, Derechos Humanos., Diplomados, Escuela Judicial, Litigación Penal, Maestría, Materia Penal, Nuevo Sistema de Justicia Penal, Poder Judicial de la Federación, Procesal, Procesal Penal, SCJN, Seminarios, Talleres, Universidad Iberoamericana
+Tags Propósito: Acceso a la Justicia, Corrupción, Derechos Humanos, Discapacidad, Discriminación, Función Jurisdiccional, Igualdad, Imparcialidad, Impunidad, Independencia, Interseccionalidad, Proceso Penal, Protección al Inocente, Reparación del Daño., Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Gustavo Serrano Garcia es candidato a Jueces/es de Distrito, postulando a través del Poder Ejecutivo y Legislativo Federal. Cuenta con maestría y una amplia formación académica en materia penal, procesal y derechos humanos, avalada por 12 diplomados, 22 cursos y 4 seminarios. Su motivación para buscar el cargo se basa en sus 22 años de experiencia en la defensa de los derechos humanos.
+
+Su visión sobre la función jurisdiccional enfatiza el rol del Juez como rector del proceso penal y garante de los derechos humanos, extendiendo su labor a la promoción, respeto y protección de estos derechos. Propone como pilares de su gestión el esclarecimiento de los hechos, la protección de los inocentes, la persecución de los culpables y la reparación del daño, todo ello con respeto a los derechos humanos. Adicionalmente, propone implementar medidas para facilitar el acceso a la justicia a personas con discapacidad y aplicar una perspectiva interseccional en la resolución de casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574807967327&sk=about
+- https://x.com/LexSerrano71
+- https://www.instagram.com/lex_serrano71/
+- https://www.tiktok.com/@lex_serrano5?lang=es
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos en el Poder Judicial de la Federación, Universidad Iberoamericana (110 horas),Diplomado en Derechos Humanos a la luz de artículo Primero Constitucional, Escuela Judicial (120 horas),Diplomando de Formación en torno del Nuevo Sistema de Justicia Penal Federal, Escuela Judicial (130 horas),Diplomado en Litigación en el Proceso Penal, Universidad Hurtado de  del  CJF (112 horas),Diplomado en Materia Penal, Procesal Penal y Amparo en Materia Penal, SCJN (105 horas)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54906/11
+
+
+## Trayectoria Academica
+
+- Cuento con maestría, 12 diplomados, 22 cursos, 4 seminarios, 2 talleres, en materia pena, procesal y derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Por una formacion en la practica y doctrina por más de 22 años, permiteme continuar defendiendo tus derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional tiene una dicotomía, el Juez es rector del proceso penal y es vigilante de los derechos humanos. La función es de suma importancia, no debe limitarse a vigilar que se cumplan las regals procesales hasta dictar sentencia, se requiere el rol de vigilar la promoción, respecto, protección y garantía de los derechos humanos de las personas relacionadas con un drama penal, llamese imputado o víctima. Además, se requiere la sensibilidad de servir, somos servidores públicos..
+
+
+## Vision sobre la Imparticion de Justicia
+
+La imparticion de justicia se debe ajustar a los principios que rigen la función jurisdiccional, como la excelencia, objetividad, imparcialidad, profesionalismo, independencia y paridad de género. Se debe evitar a toda costa los facotres como la impunidad y la corrupción.
+
+
+## Propuestas
+
+- Procurar que se cumpla con el objeto del proceso penal, esto es, el esclarecimiento de los hechos, proteger al inocente, procurar que el culpable no quede impune y que los daños causados por el delito se reparen. Con estrictó respeto a los derechos humanos
+- La implementación de medidas encaminadas a eliminar barreras en favor de las personas con discapacidad (ajustes razonables y ajustes al procedimiento) que permita el acceso a la justicia en igualdad de condiciones.
+- Implementar la perspectiva interseccional para ilustrar las diferentes manifestaciones y dimensiones de múltiples factores de vulnerabilidad y riesgos de discriminación como herramienta para resolver los asuntos puestos a consideración.
+

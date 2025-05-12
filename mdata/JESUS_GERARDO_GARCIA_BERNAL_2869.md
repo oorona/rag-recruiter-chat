@@ -1,0 +1,75 @@
+Nombre Candidato: JESUS GERARDO GARCIA BERNAL
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8183668835
+Correo Electronico: garciabernaljesus58@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Asesor Notarial, Casa de la Cultura Jurídica., Catedrático, Derechos Humanos, Expresión Oral, Formación Continua, Juicio de Amparo, Justicia Laboral, Oficial Judicial Federal, PJENL, Sistema Jurídico Mexicano, UANL
+Tags Propósito: acceso a la justicia, calidez humana, capacitación, confort, derechos., desarrollo humano, eficacia, equidad, función jurisdiccional, imparcialidad, justicia, paz social, perfiles sociales, recursos, seguridad jurídica, servicio público, tecnología, tribunales
+
+
+## Descripción del Candidato 
+
+JESUS GERARDO GARCIA BERNAL es candidato a Jueces/as de Distrito en Nuevo León, postulándose para el Poder Judicial de la Federación. Cuenta con licenciatura en Derecho, egresado de la UANL, y posee 20 años de experiencia en el Poder Judicial del Estado de Nuevo León. También ha laborado como catedrático, asesor notarial y Oficial Judicial Federal. 
+
+Su motivación para el cargo se basa en un compromiso con la justicia imparcial y el servicio público. Propone fortalecer la capacitación del personal judicial en áreas de desarrollo humano y sociología para lograr una impartición de justicia más equitativa. Adicionalmente, busca mejorar las instalaciones de los tribunales y aprovechar la tecnología para ampliar el acceso a la justicia, manteniendo un enfoque en la atención personalizada para quienes no dominen las nuevas tecnologías.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/LicGarciaBernal/
+- https://x.com/licgarciabernal
+- https://www.instagram.com/licgarciabernal/
+- https://www.youtube.com/@LicGarciaBernal
+- https://www.tiktok.com/@licgarciabernal
+
+
+## Cursos
+
+- Diplomado El Nuevo Juicio de Amparo en el Sistema Jurídico Mexicano, por la Casa de la Cultura Jurídica; en 2014,Diplomado Acceso a la Justicia en materia de Derechos Humanos, por la Casa de la Cultura Jurídica; edición 2017,Taller de desarrollo de habilidades básicas de expresión oral, por la Casa de la Cultura Jurídica; edición 2018,Diplomado Juicio de Amparo, organizado por la Casa de la Cultura Jurídica; edición 2021,Seminario Especializado El Nuevo Sistema de Justicia Laboral, por la Casa de la Cultura Jurídica, edición 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53577/11
+
+
+## Trayectoria Academica
+
+- Soy abogado por la UANL, laboré 20 años en PJENL, he sido catedrático, asesor en Notaria y Oficial Judicial Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi vocación al servicio la he forjado sin tener compromisos con nadie, busco la justicia imparcial para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es el servicio público por excelencia, pues busca regular las relaciones humanas, para lograr conseguir la paz social. Es importante tomar en cuenta la importancia de esta labor, y dignificar su ejercicio, pues solo respetando la ley y a quienes la imparten, se logra establecer la atmósfera de seguridad en la sociedad. Todos, como gobernados, buscamos confiar en quienes nos representan, y esperamos lograr vivir con paz y seguridad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una labor que debe ser tomada con seriedad por quienes la ejercen. Las decisiones que se toman, impactan siempre en la vida de una persona, en su libertad, su familia, su patrimonio, y en cada lazo social. Todos buscamos justicia en nuestra vida, sabiendo que es el camino que nos lleva la paz. Por ello, quien imparte justicia debe tener en mente, los principios y valores que logran ese fin. Dignificar esa labor, es una forma de dar confianza a la ciudadanía.
+
+
+## Propuestas
+
+- Capacitación constante al personal que ejerce la función jurisdiccional, en temas de: desarrollo humano, perfiles sociales, sociología, etc., esto para lograr concientizar al personal judicial, sobre las distintas formas de ser, pensar, y desarrollos sociales, así como las necesidades, limitaciones y formas de cada grupo social. De esta forma, la impartición de justicia será equitativa y eficaz.
+- Organizar los espacios de los Tribunales para lograr comodidad tanto del personal, como de la gente que acude a los centros de justicia. De esta forma, quien ahí labora lo hará con eficacia; y quien acude a solicitar apoyo, tendrá tranquilidad, seguridad y confort en su estadía. Laborar en un lugar con calidad, hará que se refleje la calidad en la función jurisdiccional.
+- Aprovechar la tecnología para acercar la justicia a la mayor parte de la población, pero conservar la calidez humana para quienes no cuentan o no dominan los avances tecnológicos. Para ese sector de la población, se deberá contar con personal que, de forma neutral, le apoye para entender y aprovechar los avances de la ciencia. Procurar que la falta de recursos no sea un impedimento para obtener justicia pronta y expedita.
+

@@ -1,0 +1,81 @@
+Nombre Candidato: EVA VERONICA DE GYVES ZARATE
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5568839547
+Correo Electronico: eva.veronica.gz28@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Corte Interamericana, Derecho Procesal Constitucional., Derecho Procesal Penal, Estado democrático, Suprema Corte, UNAM, amparo, derechos humanos, formación judicial, precedente judicial, razonamiento probatorio
+Tags Propósito: Corrección, Democracia, Eficiencia, Imparcialidad, Jurisdicción, Justicia, Medidas Preventivas, Normatividad, Poder Judicial, Responsabilidad, Rezagos Procesales, Sanciones, Servidores Públicos, Transparencia, Tribunal Disciplinario, Vigilancia, Ética Judicial.
+
+
+## Descripción del Candidato 
+
+Eva Verónica de Gyves Zárate es candidata a la Magistratura del Tribunal de Disciplina Judicial, postulando en funciones a nivel nacional. Cuenta con una Maestría en Derecho Procesal Penal y Procesal Constitucional, y cédula profesional. Su trayectoria académica incluye estudios en la UNAM, la Suprema Corte de Justicia de la Nación, la Escuela Federal de Formación Judicial y la Universidad Iberoamericana, con cursos sobre precedente judicial, derechos humanos y razonamiento probatorio. 
+
+De Gyves Zárate motiva su candidatura a través de su carrera jurisdiccional y su deseo de contribuir al país. Su visión de la función jurisdiccional la define como esencial en una sociedad democrática, requiriendo sensibilidad social y compromiso. Sus propuestas incluyen implementar métodos de trabajo para una mejor vigilancia disciplinaria, fortalecer el papel del Tribunal como órgano de vigilancia sancionador, y establecer un sistema de medidas preventivas de mejora judicial para priorizar la corrección sobre la sanción.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://linktr.ee/VERONICADEGYVES?utm_source=linktree_admin_share
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574130989103&mibextid=wwXlfr&mibextid=wwXlfr
+- https://x.com/veronicagyves?s=21
+- https://www.instagram.com/veronicagyves?igsh=MW1tMDYyM3Rtb3FjNQ==
+- https://youtube.com/@veronicagyves?si=r065F6ERAa1WvPfa
+- https://www.tiktok.com/@veronica.gyves?_t=ZM-8v5qxpP0buZ&_r=1
+
+
+## Cursos
+
+- Seminario permanente sobre precedente judicial
+- Suprema Corte de Justicia de la Nación
+- ,El papel de juezas y jueces en el Estado democrático
+- Escuela Federal de Formación Judicial,Ciclo de Conferencias sobre las Metodologías de la Adjudicación de la Corte Interamericana de Derechos Humanos
+- EFFJ,La implementación de las reformas Constitucionales en materia de derechos humanos y amparo
+- Universidad Iberoamericana,Bases del Razonamiento Probatorio
+- Universidad de Girona
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15353/7
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho por la UNAM; Maestra en Derecho Procesal Penal y Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque he desarrollado una carrera jurisdiccional y considero tener las aptitudes necesarias para contribuir a mi país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es imprescindible en una sociedad democrática para solucionar los conflictos que surgen cotidianamente; se requiere sensibilidad social, responsabilidad profesional, entrega y compromiso para conseguir que sea confiable.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una función pública, profesional, gratuita, accesible, continua, completa, satisfactoria a las partes, congruente entre lo pedido y lo resuelto, apegada a la normatividad; debe ser clara, concisa y acorde con el conflicto planteado.
+
+
+## Propuestas
+
+- Implementar métodos de trabajo que faciliten cumplir las obligaciones de vigilancia encomendadas al Tribunal de Disciplina Judicial; así como cumplir con las atribuciones sancionadoras, cumpliendo los requisitos normativos exigidos en los procedimientos sancionadores, con la finalidad de integrar debidamente los los expedientes.
+- Impulsar que el Tribunal de Disciplina Judicial sea un verdadero órgano de vigilancia y sancionador de los servidores públicos del Poder Judicial de la Federación. Velar por la exacta aplicación de la ley al imponer sanciones a personas juzgadoras (jueces, magistrados y ministros) por actos contrarios a la normatividad, con al finalidad de que este Tribunal Disciplinario no se convierta en una especie de órgano persecutor de personas que han laborado en administraciones anteriores.
+- Sistema de Medidas Preventivas de Mejora Judicial: etapa previa al procedimiento disciplinario que consiste en emitir una advertencia formal a juzgadores con rezago procesal, otorgándoles un plazo para corregir la situación mediante un plan de trabajo; si se cumple no se aplica sanción; si no, se procede conforme al régimen disciplinario. Su objetivo es priorizar la la corrección eficiente sobre la sanción inmediata.
+

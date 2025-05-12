@@ -1,0 +1,75 @@
+Nombre Candidato: GUILLERMO USCANGA SALGADO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2221844559
+Correo Electronico: pirrotman@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Curso básico., Derecho, Derecho Civil, Derecho Familiar, Formación, Licenciatura, Litigación Oral, Maestría, Poder Judicial, Secretarios
+Tags Propósito: Estado de derecho, acceso a la justicia, bienestar ciudadano., capacitación, derechos humanos, eficiencia, igualdad ante la ley, imparcialidad, independencia judicial, innovación, justicia, participación ciudadana, resolucion de conflictos, tecnología
+
+
+## Descripción del Candidato 
+
+GUILLERMO USCANGA SALGADO es candidato a Jueces/as de Distrito en Veracruz, postulándose desde el Poder Ejecutivo Federal. Cuenta con Licenciatura y Maestría en Derecho, con especialización en Derecho Civil y Familiar con Litigación Oral, y actualmente cursa una especialidad en formación para Secretarios del Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo público es servir a la ciudadanía y contribuir a la justicia. Su visión de la función jurisdiccional y la impartición de justicia se centra en el Estado de derecho, la eficiencia, la accesibilidad, la independencia, la imparcialidad, la formación continua y la innovación tecnológica. Sus principales propuestas incluyen garantizar el acceso universal a la justicia, utilizar la tecnología para mejorar la eficiencia y la accesibilidad del sistema judicial, y emitir sentencias claras, justas y fomentar la participación ciudadana.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574147900957
+- https://x.com/pirrot
+- https://www.instagram.com/guil1e_u5canga/
+- https://www.youtube.com/@Lic.GuillermoUscangaSalgado
+- https://www.tiktok.com/@guillermo.uscanga7?lang=es
+
+
+## Cursos
+
+- Especialidad en curso básico de formación y preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54959/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Maestría en Derecho con Orientación en Derecho Civil y Familiar con Litigación Oral
+
+
+## Motivo para buscar el Cargo Publico
+
+El ocupar un cargo público me va permitir servir al pueblo y contribuir al bienestar y a la justicia de los ciudadanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar fundamental del Estado de derecho, ya que se encarga de aplicar la ley y resolver conflictos entre individuos, organizaciones y el Estado, utilizando las herramientas de eficiencia, accesibilidad y justicia en la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un proceso fundamental para cualquier sociedad, ya que busca resolver conflictos entre las partes a través de la aplicación de la ley de manera justa e imparcial que garantice la igualdad ante la ley y la protección de los derechos humanos, a través de un acceso universal a la justicia, manteniendo la independencia e imparcialidad, fomentando la formación y capacitación y la utilización de la tecnología e innovación.
+
+
+## Propuestas
+
+- Accesos de justicia para todos. Garantizar que todos tengan acceso a la justicia, independientemente de su situación económica o social. Independencia judicial con la finalidad de garantizar la independencia del poder judicial para que la toma de decisiones sean justas e imparciales.
+- Tecnología y justicia. Utilizar la tecnología para mejorar la eficiencia y la accesibilidad en la impartición de justicia con la finalidad de que las resoluciones de los problemas sociales sean mas rápidas y eficaces en beneficio de la sociedad.
+- Sentencias mas sencillas, concretas y justas en la resolución de conflictos, así como fomentar la participación ciudadana en la justicia, para que los ciudadanos puedan contribuir a la mejora del sistema de justicia.
+

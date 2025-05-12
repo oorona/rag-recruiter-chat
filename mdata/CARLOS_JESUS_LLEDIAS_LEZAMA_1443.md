@@ -1,0 +1,74 @@
+Nombre Candidato: CARLOS JESUS LLEDIAS LEZAMA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Penal, Doctorado, Especialidades., Juicios Orales, Licenciatura en Derecho, Litigación Oral, Maestría, Perito en Sistema Penal, Prueba en Sistema Acusatorio, Responsabilidades Administrativas, Sistema Nacional Anticorrupción, Teoría del Caso, Teoría del Delito
+Tags Propósito: Accesibilidad, Autonomía judicial, Compromiso ético, Confianza, Contexto, Debido proceso, Democracia, Derechos de las víctimas, Derechos de los imputados, Dimensión humana, Escucha activa, Evaluación permanente, Formación continua, Garantismo, Igualdad, Imparcialidad, Independencia judicial, Judicatura penal, Justicia, Modelo acusatorio, Rendición de cuentas, Sensibilidad institucional, Valores constitucionales.
+
+
+## Descripción del Candidato 
+
+Carlos Jesús Lledías Lezama es candidato a Magistrado de Tribunales Colegiados de Circuito en Puebla, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho Penal, así como especializaciones y diplomados en áreas como Responsabilidades Administrativas, Sistema Nacional Anticorrupción y Juicios Orales.
+
+Su motivación para buscar el cargo público se centra en actuar con justicia y sensibilidad, respetando los derechos de las partes involucradas. Su visión de la función jurisdiccional se basa en el modelo acusatorio, reconociendo la necesidad de fortalecerlo en áreas como la sensibilidad institucional y la actualización constante de los juzgadores. Sus propuestas principales incluyen una magistratura de puertas abiertas, el fortalecimiento del perfil del juzgador penal a través de la formación continua, y la garantía de una independencia judicial real y visible.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/llediascarlos
+- https://x.com/llediaslezama
+- https://www.instagram.com/llediaslezama/
+- https://www.tiktok.com/@llediaslezama
+
+
+## Cursos
+
+- Especialidad en Responsabilidades Administrativas y Sistema Nacional Anticorrupción,Diplomado en Juicios Orales,Taller de estrategias en litigación oral,Curso de Teoría del caso y teoría del delito,Curso de la prueba en el Sistema Acusatorio y el Perito en el Sistema Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54231/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Derecho Penal, Doctorado en Derecho Penal y demás especialidades
+
+
+## Motivo para buscar el Cargo Publico
+
+Para actuar con justicia, respetando el proceso y derechos de las víctimas e imputados, así como actuar con sensibilidad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Confío en el modelo acusatorio por su vocación democrática, su estructura oral y su base garantista. Sin embargo, reconozco que su operación aún enfrenta resistencias, desigualdades estructurales y falta de sensibilidad institucional. Por ello, es urgente consolidar una judicatura penal que sepa escuchar, que se actualice constantemente y que comprenda la dimensión humana de cada caso.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una justicia que respete el debido proceso, que garantice la igualdad entre las partes, así como la importancia de conducirse en igualdad y comprender la dimensión humana en cada caso.
+
+
+## Propuestas
+
+- Magistratura de puertas abiertas y escucha activa. Promover un modelo de magistratura accesible, que escuche de forma directa a las partes, que rinda cuentas a la sociedad mediante criterios claros y fundamentados, y que genere confianza a través de la cercanía. La legitimidad de las resoluciones se fortalece cuando quien juzga entiende el contexto y escucha con atención, sin ceder a presiones, pero con sensibilidad.
+- Fortalecimiento del perfil del juzgador penal. Consolidar una carrera judicial con formación continua, evaluación permanente y compromiso ético. El juzgador debe ser técnico, imparcial y estar profundamente vinculado con los valores constitucionales
+- Independencia judicial real y visible. Asegurar condiciones estructurales para que la función jurisdiccional se ejerza sin injerencias políticas, económicas o mediáticas, protegiendo la autonomía personal del juzgador.
+

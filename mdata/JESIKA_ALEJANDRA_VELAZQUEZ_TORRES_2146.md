@@ -1,0 +1,76 @@
+Nombre Candidato: JESIKA ALEJANDRA VELAZQUEZ TORRES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adolescentes en cautiverio, Amnistía Internacional, Derecho de acceso a la justicia, Feminicidio, IEEM, IFDP, IMER, INE, INMUJERES, Impartición de justicia, Interculturalidad., Maestría en Derecho, Perspectiva de género, SCJN, Sistema de Carrera Judicial, Sistema penitenciario, TEPJF, UNAM, Violencia feminicida
+Tags Propósito: Acceso a la Justicia, Agilización de Procesos, Burocracia, Carrera Judicial, Corrupción, Derechos Humanos, Desempeño Institucional, Eficiencia, Equidad, Estabilidad Social, Evaluación., Gestión Judicial, Humanismo, Impunidad, Independencia, Justicia, Monitoreo, Poder Judicial, Políticas Públicas, Profesionalización, Transparencia
+
+
+## Descripción del Candidato 
+
+JESIKA ALEJANDRA VELAZQUEZ TORRES es candidata a Jueza/es de Distrito por la Ciudad de México, postulándose al Poder Legislativo Federal. Abogada con Maestría por la UNAM y cédula profesional, cuenta con más de 10 años de trayectoria en instituciones como el IFDP, TEPJF e INE, además de experiencia docente y como conductora en Imer Radio Ciudadana.
+
+Su motivación para buscar el cargo es transformar el acceso a la justicia en condiciones de equidad, con un enfoque humanista.  Propone fortalecer el Poder Judicial a través de políticas públicas coordinadas, la profesionalización humanista del personal jurisdiccional y la agilización de los procesos judiciales para mejorar la eficiencia, la gestión y el desempeño institucional.  Su visión enfatiza la necesidad de un Poder Judicial independiente, eficiente, que combata la corrupción y garantice los derechos humanos y libertades fundamentales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://form.typeform.com/to/x9AxQcE9
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1PU7oS7fx4/?mibextid=wwXIfr
+- https://x.com/jesika_torres?s=11&t=g6XOhqfZD8A3IH8WwwjX1Q
+- https://www.instagram.com/jesika_torres_inc?igsh=ZzF2djdoMTJncW9l&utm_source=qr
+- https://youtube.com/@imer-radiociudadana-jesikavqz?si=p0umq7nNjM62VQZr
+- https://www.tiktok.com/@jesikaalejandrave?_t=ZM-8v33dumtJg5&_r=1
+- https://www.linkedin.com/in/jesika-alejandra-velazquez-torres-30890864?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Habilitada en el Sistema de Carrera Judicial del TEPJF,Fortalecimiento de la impartición de justicia con perspectiva de género e interculturalidad de la SCJN e INMUJERES,Derecho de acceso a la justicia en México del MMYT y Amnistía Internacional,Feminicidio: violencia feminicida y riesgo social del MMYT,Adolescentes en cautiverio: los olvidados del sistema penitenciario del MMYT
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55399/11
+
+
+## Trayectoria Academica
+
+- Abogada y maestra en derecho por la UNAM, más de 10 años en el IFDP, TEPJF e INE; docente en IEEM y conductora del IMER
+
+
+## Motivo para buscar el Cargo Publico
+
+Transformar el acceso e impartición de justicia a las y los mexicanos en condiciones de equidad, con sentido humanista.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La sociedad mexicana demanda la prevalencia de un Poder Judicial eficiente, integral e independiente, libre de influyentismos y de presiones externas; un Poder Judicial que combate a la corrupción, al nepotismo, a la burocracia y la impunidad. Asimismo, de un Poder Judicial cercano y profesional que protege y garantiza los derechos humanos y las libertades fundamentales de la población mexicana frente a los abusos y violaciones de sus derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se requiere compromiso y convicción para reconstruir y fortalecer al Poder Judicial, a fin de contribuir al acceso e impartición de justicia y estabilidad social; transitar a un Poder Judicial más equitativo y eficiente, legitimado por la confianza del pueblo de México, condición que requiere de los más altos estándares humanistas, sociales, profesionales y técnicos. Asimismo, de la vocación de servicio, valores y principios para hacer frente a los desafíos sociales y del Poder Judicial.
+
+
+## Propuestas
+
+- Resulta necesaria la implementación de políticas públicas coordinadas con la Suprema Corte de Justicia de la Nación y otras autoridades del Poder Judicial, de igual forma con la Administración Pública Federal, defensorías públicas, autoridades de investigación, entre otras; a fin de tener una visión integral y actualizada, y con ello implementar buenas prácticas, garantizar un acceso más oportuno, amplio y equitativo a la justicia. Ello no es pérdida de independencia del Poder Judicial.
+- Si bien hay importantes avances y bondades en el sistema profesional actual, como lo es la capacitación y el desarrollo especializado del personal jurisdiccional; lo cierto es que aún quedan desafíos importantes como la profesionalización humanista, ciudadana y cercana a la población, lo cual abonaría al servicio público y a la confianza de la sociedad mexicana en el Poder Judicial, sus instituciones y al personal que lo integra, robusteciendo al desarrollo de la carrera judicial.
+- Agilización de los procesos judiciales para mejorar significativamente los índices de gestión, desempeño institucional, monitoreo y evaluación de las acciones en el ámbito jurisdiccional; pues el sistema judicial mexicano padece de lentitud y burocracia, con retrasos significativos en la resolución de casos, situación que vulnera y revictimiza a las víctimas y a los probables responsables, al llevar procesos largos para acceder a la justicia.
+

@@ -1,0 +1,81 @@
+Nombre Candidato: MARIO MENDOZA CHALICO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5620234935
+Correo Electronico: mario.me.ch@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogacía, Archivos, Competencias Laborales, Cursos., Derechos Humanos, Estudios Jurídicos, Formación, Gobierno, Gobierno de Instituciones, Oratoria, Politología, Políticas Públicas, Protección de Datos Personales, Reinserción Social, Relaciones Internacionales
+Tags Propósito: acceso a la justicia, audiencia pública, burocracia, conflictos de interés, corrupción, derechos fundamentales, eficiencia, escucha activa., imparcialidad, justicia, liderazgo, objetividad, procedimientos, rendición de cuentas, resolución de conflictos, servidores públicos, transparencia, verdad
+
+
+## Descripción del Candidato 
+
+Mario Mendoza Chalico es candidato a Juez/a de Distrito en la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con una Maestría en Gobierno y Políticas Públicas, siendo también Politólogo y Abogado, y ha completado diversos cursos en áreas como oratoria, gobierno de instituciones, derechos humanos, y protección de datos personales, tanto en México como en España.
+
+Mendoza Chalico expresa su motivación para el cargo como un servicio a la patria y una pasión por impartir justicia. Su visión de la función jurisdiccional se centra en la eficiencia, prontitud y simplificación de los procedimientos, así como en la transparencia, rendición de cuentas y la escucha activa de las partes involucradas. Sus propuestas principales incluyen políticas para mejorar el funcionamiento interno del juzgado, la promoción de la transparencia proactiva y un mayor acceso a los juzgadores.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100027234741242
+- https://x.com/MarioMendozaCh
+- https://www.instagram.com/mariomendoza8403/
+
+
+## Cursos
+
+- El arte de hablar en público, oratoria, institución: La palabra
+- Ciudad de México
+- ,Formación específica en Gobierno de Instituciones y Relaciones internacionales, Institución: Villanueva
+- Madrid, España
+- ,Los retos de la reinserción social, institución: Comisión de Derechos Humanos de la Ciudad de México
+- Ciudad de México,Realización de procesos en archivos de trámite, Institución: Consejo de Certificación de Competencias Laborales
+- CDMX,Diplomado en Protección de Datos Personales, Institución: Centro Universitario Estudios Jurídicos
+- Ciudad de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54102/11
+
+
+## Trayectoria Academica
+
+- Maestría en Gobierno y Políticas Públicas, Politólogo y Abogado
+- Cursos nacionales y extranjeros, jurídicos y políticos
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la patria es el honor mas grande que existe, quiero impartir justicia en mi país, quiero hacerlo con pasión.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe llevarse a cabo con total voluntad de servicio, implementar políticas tendientes a que los procedimientos que se llevan a cabo se realicen de forma pronta, para ello es necesario que los actos de los servidores que conforman un juzgado vayan encaminados a resolver con eficacia y eficiencia los temas de los que acuden a ellos para buscar solución a sus conflictos, no debemos hacer mas difícil la situación que pasan. Con buen liderazgo y vocación puede lograrse.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia se alcanza actuando con imparcialidad y sin intereses propios. Se debe actuar analizando todos y cada uno de los elementos que tenemos a nuestro alcance para poder llegar a la verdad de los hechos que se nos presentan, con total objetividad y respeto a los derechos fundamentales de las partes que acuden buscando ayuda. Se debe eliminar totalmente la corrupción y conflictos de interés que no han permitido que la impartición de justicia se alcance en muchos de los tribunales.
+
+
+## Propuestas
+
+- Políticas para mejorar el funcionamiento del juzgado: En primer lugar se deben implementar una serie de políticas tendientes a que la actividad burocrática del juzgado sea mas práctica, debemos hacer mas simples y amigables las actuaciones que se llevan a cabo en nuestras áreas con la finalidad de que los que acuden a nosotros puedan llevar a cabo sus acciones sin tantos obstáculos, muchas de las ocasiones, absurdos.
+- Transparencia y rendición de cuentas: Debemos actuar en todo momento con total transparencia y rendición de cuentas con la ciudadanía, las audiencias deben ser completamente públicas y sin restricción alguna, se deben llevar a cabo la transparencia proactiva del juzgado, publicando en números las actividades que llevamos a cabo en una periodicidad corta entre cada informe.
+- Escuchar a las partes: Es, en una gran mayoría de las ocasiones, muy difícil poder hablar con un juzgador directamente, debemos darnos el tiempo necesario para escuchar las inquietudes de las partes que acuden a nosotros con total disposición, a ellos nos debemos como servidores públicos y si no escuchamos sus posturas difícilmente podemos tener elementos que nos permitan resolver con total objetividad y elementos para analizar. Las puertas del juzgador deben abrirse siempre.
+

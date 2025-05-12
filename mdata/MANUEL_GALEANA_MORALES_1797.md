@@ -1,0 +1,75 @@
+Nombre Candidato: MANUEL GALEANA MORALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2285026839
+Correo Electronico: mgaleanamorales@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CONATRIB., Ejecución Penal, Escuela Judicial PJEV, Especialidad, Juicio de Amparo, Justicia Terapéutica, Licenciatura, Maestría, SCJN, Sistema Penal Acusatorio, Sistema Penal Adversarial, Solución de Controversias, Universidad Veracruzana, Universidad de Xalapa
+Tags Propósito: Acceso a la justicia, Amparo, Ceranía al pueblo, Combate corrupción, Derechos Humanos, Eficiencia burocrática, Empatía, Grupos vulnerables, Humanismo, Imparcialidad judicial, Impunidad, Justicia gratuita, Justicia penal, Reclamación social., Simplificación trámites, Transformación Poder Judicial, Transparencia judicial
+
+
+## Descripción del Candidato 
+
+Manuel Galeana Morales es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para el estado de Veracruz. Cuenta con Maestría y estudios de Especialización en temas de sistema penal acusatorio y juicio de amparo, además de cursos en ejecución penal y justicia terapéutica. Su trayectoria académica incluye la Licenciatura en la Universidad Veracruzana y estudios de posgrado en la Universidad de Xalapa y la Escuela Judicial PJEV.
+
+Galeana Morales motiva su candidatura con el objetivo de contribuir a la transformación del Poder Judicial Federal, buscando acercar la función jurisdiccional a la población, simplificar trámites y erradicar la corrupción. Sus propuestas centrales incluyen el combate a la impunidad, el impulso de un sistema de justicia con humanismo y empatía, y el fomento de la cercanía y transparencia de los Magistrados con el pueblo, incluyendo horarios específicos de atención y registro de orientación a la población.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/GaleanaManuel
+- https://www.instagram.com/galeana316
+- https://www.youtube.com/@galeana2025
+- https://www.tiktok.com/@galeanamm
+
+
+## Cursos
+
+- SEMINARIO DE EJECUCION PENAL (SCJN),ESPECIALIDAD EN SISTEMA PENAL ACUSATORIO Y ADVERSARIAL
+- (UNIVERSIDAD DE XALAPA),CONGRESO INTERNACIONAL SOBRE JUSTICIA TERAPEUTICA (ESCUELA JUDICIAL DEL ESTADO DE MÉXICO Y CONATRIB),DIPLOMADO SOBRE JUICIO DE AMPARO,MECANISMOS ALTERNATIVOS DE SOLUCION DE CONTROVERSIAS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53251/10
+
+
+## Trayectoria Academica
+
+- LICENCIATURA UNIVERSIDAD VERACRUZANA; MAESTRÍA Y ESPECIALIDAD EN UNIVERSIDAD DE XALAPA y MAESTRÍA ESCUELA JUDICIAL PJEV
+
+
+## Motivo para buscar el Cargo Publico
+
+En beneficio del pueblo de México y Veracruz quiero contribuir a la Transformación del Poder Judicial Federal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actualmente veo un Poder Judicial Federal plagado de privilegios, clasismo, nepotismo e influyentismo, cuya función jurisdiccional está muy alejada a lo que requiere nuestro país. ES MOMENTO DE TRANSFORMARLO, es por ello que buscaré acercar la función jurisdiccional al pueblo, simplificar trámites, erradicar la corrupción y brindar atención personalizada a los justiciables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actualmente veo una impartición de justicia federal que es insensible al clamor popular y burocráticamente ineficaz. ES MOMENTO DE TRANSFORMARLA, es por ello que buscaré brindarte una impartición de justicia de forma imparcial, integral, completa y gratuita, que atenderá al reclamo social de justicia y seré un ÓRGANO GARANTE DE TUS DERECHOS HUMANOS.
+
+
+## Propuestas
+
+- CERO IMPUNIDAD: La sociedad reclama la impunidad que genera las sentencias de algunos jueces de amparo en nuestro país. Es por ello que es necesario privilegiar el estudio de fondo de los asuntos que sean resueltos por los Tribunales Colegiados a fin de garantizar los Derechos Humanos. La justicia penal debe atender al esclarecimiento de los hechos, que el culpable no quede impune sin una sanción ejemplar, proteger al inocente y garantizar la reparación del daño a la víctima del delito.
+- HUMANISMO y EMPATÍA: Es necesario desarrollar nuevas tecnologías de la información y comunicación que sean enfocadas en acercar y facilitar el uso de los órganos jurisdiccionales a los GRUPOS VULNERABLES y población de nuestro país. Se deben crear las condiciones que permitan a los grupos vulnerables y población en general acceder de manera eficaz a la justicia, evitando formalismos burocráticos y jurídicos. En pocas palabras SIMPLICIDAD PARA SOLICITAR EL AMPARO DE LA JUSTICIA FEDERAL.
+- CERCANIA AL PUEBLO y TRANSPARENCIA: La población exige conocer a sus Magistrados, ser realmente escuchados. Es por ello que debe existir un horario especifico destinado para atender y orientar a la población, sin pasar por alto la IMPARCIALIDAD JUDICIAL, dicha atención debe ser monitoreada y registrada para que la misma sea enfocada única y exclusivamente para resolver dudas y generar certeza que los juicios de amparo son resueltos conforme a Derecho, evitando actos de corrupción.
+

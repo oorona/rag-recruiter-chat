@@ -1,0 +1,78 @@
+Nombre Candidato: ANTONIO RAMIREZ VARGAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5667631524
+Correo Electronico: antoniorveleccion@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización de Conocimientos., Derecho Fiscal, Derecho Tributario, Juicio en Línea, Justicia Administrativa, Licenciatura en Derecho, Novedades Fiscales, Seguridad de la Información, Sistema Nacional Anticorrupción, UNAM
+Tags Propósito: Amparos, Artículo 17 Constitución, Capacitación judicial, Eficiencia judicial, Errores procesales, Formalismos procesales, Justicia expedita, Justicia pronta, Juzgados, Libertad jurisdiccional, Recursos públicos, Resolución de controversias, Resolución definitiva., Sistematización, Suprema Corte, Tribunales
+
+
+## Descripción del Candidato 
+
+Antonio Ramirez Vargas es candidato a Magistrado de Tribunales Colegiados de Circuito en Ciudad de México, postulado por el Poder Ejecutivo Federal. Es Licenciado en Derecho por la Universidad Nacional Autónoma de México (UNAM) y cuenta con diversos cursos de actualización en áreas como derecho fiscal, anticorrupción y seguridad de la información.
+
+Su motivación para buscar el cargo es contribuir a una justicia pronta y expedita. Propone una sistematización de los asuntos a resolver agrupándolos por características procesales y temas de estudio similares, priorizar la resolución de fondo sobre formalidades, y capacitar al personal judicial con el conocimiento interno existente, todo sin requerir recursos adicionales. Busca optimizar la función jurisdiccional y la impartición de justicia cumpliendo con el artículo 17 de la Constitución, disminuyendo la dilación de juicios y la concesión de amparos por formalidades.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Curso en Derecho Fiscal y Tributario, impartido por la Secretaría de Hacienda y Crédito Público
+- ,Curso del Sistema Nacional Anticorrupción, 2018, de la Secretaría de la Función Pública
+- ,Curso Conceptos Esenciales en Seguridad de la Información, 2018, impartido por el Servicio de Administración Tributaria
+- ,Congreso Internacional de Justicia Administrativa ¿ Juicio en Línea, 2018, Tribunal Federal de Justicia Administrativa
+- ,Seminario de Novedades en Materia Fiscal
+- Academia Mexicana de Derecho Fiscal, A
+- C
+- y UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54443/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Nacional Autónoma de México (UNAM) en constante actualización de conocimientos
+
+
+## Motivo para buscar el Cargo Publico
+
+Acreditada mi vocación de Servicio público, es necesario participar en la construcción de una Justicia pronta y expedita
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe reunir cualidades de practicidad y eficacia, lo cual se logra redefiniendo la llamada libertad jurisdiccional, con ello se debe sistematizar los asuntos a resolver en grupos de características procesales y temas de estudios similares; acciones para lo cual NO se requiere de presupuestos o de gastos adicionales que son a cargo de los impuestos de los Ciudadanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se propone la impartición de una justicia pronta y expedita, cumpliendo con lo ordenado en el artículo 17 de la Constitución Política de los Estados Unidos Mexicanos, al priorizar la resolución de asuntos por lo que hace al fondo de la controversia, sobre formalismos procedimentales, disminuyendo con ello la concesión de amparos por formalidades que en la mayoría de las ocasiones dilatan la resolución en definitiva de los juicios incluso, por años en perjuicio de los Ciudadanos.
+
+
+## Propuestas
+
+- La reducción de los tiempos para la resolución de los juicios mediante su sistematización, con la identificación de asuntos para ser agrupados por características procesales similares, y los principales temas a resolver, a efecto de crear una matriz consultable para los Juzgadores que contenga propuestas de resolución tomando en consideración los argumentos planteados por las partes en los medios de defensa que promuevan, así como los criterios de la Suprema Corte de Justicia de la Nación.
+- Priorizar la resolución de asuntos por lo que hace al fondo de las controversias plateadas, sobre formalismos procedimentales, disminuyendo la concesión de amparos por formalidades, con lo cual se obtendría la resolución de asuntos en definitiva, sin dilatar la impartición de justicia.
+- La capacitación del personal integrante de los diferentes Juzgados y Tribunales, impartida por los mismos Juzgadores, lo cual no requiere de gastos adicionales, y con ello evitar que por errores en la resolución de asuntos, como lo son, los errores procesales, los juicios se deban reponer.
+

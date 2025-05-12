@@ -1,0 +1,76 @@
+Nombre Candidato: OSCAR DURAN VALDES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5535610205
+Correo Electronico: duvo01@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Benemérita Universidad Autónoma de Puebla, Cambio Climático, Derechos Humanos, Formación Judicial, Igualdad de Género, Maestría., Medio Ambiente, Perspectiva de Género, Poder Judicial, Razonamiento Probatorio, Secretarias de Tribunal
+Tags Propósito: acceso a la justicia, atención ciudadana, concursos públicos, corrupción, derechos humanos, eficiencia, honestidad, igualdad, impunidad, justicia, justicia administrativa, meritocracia, nepotismo, recursos, reforma judicial, rendición de cuentas., responsabilidad, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Oscar Duran Valdes es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación y el Poder Legislativo Federal en la Ciudad de México. Cuenta con Maestría y una trayectoria académica en la Benemérita Universidad Autónoma de Puebla y la Escuela de Formación Judicial, complementada por diversos cursos en áreas como derechos humanos, género y formación para el Poder Judicial.
+
+Su candidatura se centra en la transformación del sistema de justicia, combatiendo la corrupción y el nepotismo, y promoviendo una impartición de justicia pronta, honesta y cercana a la ciudadanía, especialmente a personas de escasos recursos. Sus propuestas principales incluyen la implementación de concursos abiertos para puestos, la atención prioritaria a casos de vulnerabilidad y el establecimiento de un tribunal sin influyentismo.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/14sehzCqcQ/
+- https://x.com/Duvo01
+- https://www.instagram.com/duvo3009/
+- https://youtube.com/@oscarduranvaldes602?si=L_uPOlkBGTW-0Bii
+- https://www.tiktok.com/@oskr0203?_t=zm-8trwb8ls4f4&_r=1
+
+
+## Cursos
+
+- Diplomado Medio Ambiente, Cambio Climático y Derechos Humanos,Perspectiva de Género y Razonamiento Probatorio,¿Curso Género como Herramienta para la Igualdad¿,¿Curso de formación para personas Secretarias de Tribunal de Circuito: Concurso escolarizado edición 2022¿,¿Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación: Ciclo escolar 2011¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52857/10
+
+
+## Trayectoria Academica
+
+- Cursé la universidad en la Benemérita Universidad Autónoma de Puebla, la maestría en la Escuela de Formación Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+La justicia debe ser transformada. Combatiré la corrupción y el nepotismo. Impartiré la justicia de forma pronta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actualmente los jueces resuelven atrás de sus escritorios. Han estado distantes a los problemas de la sociedad. Hay nepotismo, se escoge a los trabajadores no por sus aptitudes, sino por las relaciones que tienen con otras personas juzgadoras. Las sentencias se rezagan al no contar con suficiente personal. Existe una descoordinación entre los tres poderes del Estado, no se da solución a los problemas de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Uno de los objetivos que persigue la reforma al Poder Judicial de la Federación es que el país cuente con jueces que pertenezcan a la ¿comunidad¿, que no sean ajenos a los problemas de sus ¿vecinos¿ o que permanezcan atrás de los escritorios. Por eso quiero ser Magistrado en Materia Administrativa. Porque cuento con los conocimientos, la experiencia y la sensibilidad profesional para juzgar con base en el respeto a los derechos humanos y con toda honestidad.
+
+
+## Propuestas
+
+- Honestidad y combate al nepotismo. Si las personas me eligen como magistrado, encabezaré un tribunal honesto, sin influyentismo. No regresará el ahijado, el hijo, sobrino, o el conocido de cualquier persona que no esté preparada. No puede haber un tribunal con personas consentidas o aviadoras, todos deben trabajar. Nada de darle más trabajo al que sí trabaja.
+- Combate a la corrupción. Cero impunidad en el ámbito administrativo. No deberá haber impunidad en el ámbito administrativo, quien realice un acto sancionado por la ley, debidamente comprobado, deberá asumir sus consecuencias. No daré contratos a familiares en mi órgano jurisdiccional. Implementaré concursos abiertos al público para las plazas de la ponencia a mi cargo, mediante exámenes de conocimientos para asegurar que resuelva los asuntos el más capacitado y no el que tenga ¿palancas¿.
+- Atención prioritaria a los asuntos que afectan al ciudadano de escasos recursos. Indigna ver que se le ponen trabas a las personas adultas mayores para registrarse en el programa de pensión universal. Este y otros casos de justicia para personas en situación vulnerable serán mi prioridad y las atenderé de manera inmediata. Lo que para unos es poco, para muchas personas implica atender necesidades básicas como la salud o la comida.
+

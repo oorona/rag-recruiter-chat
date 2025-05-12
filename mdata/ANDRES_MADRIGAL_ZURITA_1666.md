@@ -1,0 +1,79 @@
+Nombre Candidato: ANDRES MADRIGAL ZURITA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9931293066
+Correo Electronico: andyandre30@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Arbitraje Comercial, Derecho de las Telecomunicaciones, Doctorado en Derecho, IUP, Juez de Ejecución Penal, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Poder Judicial, Secretarios de Tribunal, UJAT
+Tags Propósito: Adultos Mayores, Atención Médica, Audiencias Públicas, Buzón de Quejas, Capacitación, Corrupción, Cortesía, Derechos Humanos, Desfavorecidos, Dignidad, Diligencia, Discapacidad, Eficiencia, Género, Honestidad, Imparcialidad, Independencia, Justicia, Niñez, Objetividad, Participación Ciudadana, Pensiones, Profesionalismo, Sentencias Claras, Servicio Público., Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+ANDRES MADRIGAL ZURITA es candidato a Magistraturas de Tribunales Colegiados de Circuito en Tabasco, postulándose para los poderes Ejecutivo Federal, Judicial de la Federación y Legislativo Federal. Cuenta con estudios de Doctorado concluidos, siendo Licenciado y Maestro en Derecho. Su trayectoria académica incluye especializaciones en temas de justicia laboral, ejecución de sanciones penales, derecho de las telecomunicaciones, intervención en arbitraje comercial y formación para secretarios del Poder Judicial. 
+
+Su motivación para el cargo es servir a la patria, poniendo a disposición su experiencia y conocimiento. Propone un modelo de justicia transparente y cercana a la gente, destacando la importancia de la perspectiva de género y la protección de grupos vulnerables. Sus propuestas incluyen la realización de audiencias públicas, capacitación a los servidores públicos para una atención digna y la emisión de sentencias claras y concisas para reducir el rezago.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://allmylinks.com/amadrigalzurita
+
+
+## Redes Sociales
+
+- https://www.facebook.com/amadrigalzurita/
+- https://x.com/amadrigalzurita/amadrigalzurita@outlook.com
+- https://www.instagram.com/amadrigalzurita/amadrigalzurita@outlook.com
+- https://youtube.com/@andresmadrigalzurita8731?si=FPKRYS7ELvnxuOch
+- https://www.tiktok.com/@amadrigalzurita
+- https://www.threads.net/@amadrigalzurita
+
+
+## Cursos
+
+- Especialización sobre la Reforma en materia de Justicia Laboral ¿ Séptima generación
+- ,Especialización en Materia de Juez de Ejecución de Sanciones Penales y Derecho de las Telecomunicaciones,Formación para Personas Secretarias de Tribunal de Circuito: Concurso Escolarizado Edición 2022,Intervención Judicial en el Arbitraje Comercial Nacional e Internacional,Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación Ciclo Escolar 2011
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54136/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la UJAT, Maestro en Derecho por el IUP y Doctorante en Derecho por el IUP
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero servir a mi patria, y para ello pondré todo mi esfuerzo, conocimiento, experiencia y dedicación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las y los juzgadores debemos impartir justicia de manera profesional, eficiente y con total transparencia, con un enfoque de perspectiva de género, salvaguardando los derechos de los grupos más vulnerables como lo son los niños, los adultos mayores y las personas con alguna discapacidad; y desde luego cumpliendo en todo momento con las obligaciones de promoción, respeto, protección y garantía a los derechos humanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe estar regida bajo estándares de transparencia, objetividad, congruencia y sobre todo protección de los derechos humanos; debe desenvolverse bajo los principios de excelencia, profesionalismo, imparcialidad, objetividad e independencia, así como con honestidad; que sea una actividad abierta con participación activa de las personas; cambiar el modelo de resolver sólo con expediente, sino aplicar el principio de realidad conforme el trato directo con las personas
+
+
+## Propuestas
+
+- Realizar un programa de audiencias públicas, en las que se destine un día a la semana para darle atención directa a las personas que intervienen en los asuntos que se resolverán en el tribunal. Lo anterior porque resulta importante escuchar de manera directa a las personas, ya que debe partirse de que la justicia debe impartirse de manera transparente y cercana a la gente. Se dará
+- Instruir y capacitar a los servidores públicos que integran el Tribunal, para que traten a las personas con amabilidad, cortesía y dignidad, y centren todos sus esfuerzos para poner al público en el centro de su función. Que cualquier persona que llegue sea abogado o no, sea atendida y se le de toda la información que requieran, así como que se le resuelvan todas sus dudas. Se fijará un Buzón de Quejas y Sugerencias, que será entregado de manera directa al Magistrado.
+- Que las sentencias que se emitan sean breves pero completas, con un lenguaje común, entendible para todo el público, esto permitirá que los asuntos se resuelvan de manera justa y con prontitud, lo cual permitirá acabar con el rezago. Se resolverán con diligencia los asuntos relativos a la Atención Médica de Calidad a que tienen derecho las personas; al Pago de Pensiones justas y a tiempo; y aquellos las sanciones a las personas corruptas, siempre velando por el bien de los más desfavorecidos.
+

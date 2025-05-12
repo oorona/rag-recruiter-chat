@@ -1,0 +1,77 @@
+Nombre Candidato: SHEILA TAIDETH DIAZ COLIN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4442425461
+Correo Electronico: taideth-1984@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Administración Pública, Comercio Internacional, Derecho, Derechos Humanos, Extinción de Dominio, Formación, Igualdad de Género, Juicio de Amparo, Maestra., Politología, Secretarias de Tribunal
+Tags Propósito: Abuso de Poder, Accesibilidad, Compasión, Compromiso., Corrupción, Credibilidad, Derechos Fundamentales, Eficiencia, Empatía, Función Jurisdiccional, Honorabilidad, Humanidad, Humildad, Igualdad, Imparcialidad, Justicia, Legalidad, Legitimidad, Protección Ciudadana, Sistema Legal, Solidaridad, Transparencia, Vocación
+
+
+## Descripción del Candidato 
+
+Sheila Taideth Diaz Colin es candidata a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en San Luis Potosí. Cuenta con estudios de Maestría, siendo politóloga, administradora pública, abogada y Maestra en Comercio Internacional y Derecho. Su formación incluye cursos y diplomados en temas de justicia, derechos humanos y extinción de dominio.
+
+Motivada por el deseo de promover un cambio en la percepción ciudadana sobre la justicia, su visión se centra en un sistema jurisdiccional que proteja los derechos fundamentales con eficiencia, transparencia y credibilidad. Sus propuestas incluyen fortalecer la cercanía entre impartidores y justiciables, así como combatir abusos de poder y garantizar la protección de los derechos fundamentales con un sistema accesible, equitativo y humano.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/profile.php?id=61574635446721&sk=about
+
+
+## Redes Sociales
+
+- https://www.facebook.com/sheilataideth.diazcolin
+- https://www.x.com/@SheilaDiaz78356
+- https://www.instagram.com/@sheila_taideth
+- https://www.tiktok.com/@sheilataideth
+
+
+## Cursos
+
+- Formación para Personas Secretarias de Tribunal de Circuito: Concurso Escolarizado Edición 2022,Curso: Extinción de Dominio
+- Teoría y Práctica,Seminario: Sistemas de Protección de Derechos Humanos
+- ,Curso: Género como Herramienta para la Igualdad
+- ,Diplomado: El Juicio de Amparo como mecanismo de protección de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52998/10
+
+
+## Trayectoria Academica
+
+- Politóloga y Administradora Pública, abogada, Maestra en Comercio Internacional y en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser un ejemplo de servicio y el impulso de un verdadero cambio en la percepción ciudadana sobre la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser un auténtico pilar para la protección de los derechos fundamentales de todas las personas en condiciones de igualdad; actuar con eficiencia, eficacia y transparencia para gozar de legitimidad y, sobre todo, de credibilidad. Quienes la ejercen deben poseer sólidos conocimientos técnicos y jurídicos, pero, ante todo, una verdadera vocación, pasión y humildad, pues en sus manos recae la justicia que todos, en algún momento y sin importar nuestra posición, anhelamos y buscamos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe impartirse siempre de manera ciega, pero no sorda; debe garantizar a quien la clama, cercanía a su causa, defensa absoluta a sus derechos, respeto a su dignidad como persona, imparcialidad, análisis de cada caso apegado estrictamente a la Ley, a derecho, ofrecerse resultados; quien imparta justicia, debe saber que su posición no es de ventaja, de privilegio, o de poder, es de compromiso, honorabilidad y humanidad, no se trata de mandar, se trata de defender.
+
+
+## Propuestas
+
+- Mostrar con el ejemplo, con hechos y compromiso, que la función jurisdiccional es el pilar fundamental de la justicia, y que los funcionarios judiciales son la herramienta principal para garantizar a la ciudadanía el acceso a un sistema legal apegado a la ley, garante de derechos y siempre imparcial en sus determinaciones.
+- Establecer, dentro del órgano judicial, un espacio garantizado dentro del horario laboral, para que los impartidores de justicia escuchen directamente a los justiciables que así lo requieran, pues la justicia debe ser (y sentirse) accesible, cercana, humana, real y, sobre todo, verdaderamente alcanzable para todas las personas, en igualdad de circunstancias, la justicia no es un privilegio, es un derecho.
+- Evitar los abusos de poder tanto al interior como hacia el exterior del Poder Judicial Federal, priorizando la protección de los derechos fundamentales de todas las personas frente a abuso, negligencia, omisión, corrupción, indolencia o abandono por parte de las autoridades, mediante un sistema eficiente, accesible, sin barreras, equitativo y guiado por los valores de humanidad, empatía, solidaridad y compasión.
+

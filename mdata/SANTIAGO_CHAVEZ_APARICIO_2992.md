@@ -1,0 +1,75 @@
+Nombre Candidato: SANTIAGO CHAVEZ APARICIO
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2226708250
+Correo Electronico: asesoriachavezaparicio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: abogado, compromiso social, formación judicial, género, igualdad, justicia., materia administrativa, materia civil, materia laboral, materia mercantil, perspectiva de género, servidor público, vocación social
+Tags Propósito: acceso a la justicia, afrodescendientes, atención ciudadana, campesinos, carrera judicial, corrupción, dignidad humana, eficacia, grupos vulnerables, honestidad, igualdad, imparcialidad, independencia judicial, influyentismo., justicia, lenguaje claro, mujeres, nepotismo, pueblos originarios, rapidez, transparencia, vulnerabilidad, víctimas, ética
+
+
+## Descripción del Candidato 
+
+SANTIAGO CHAVEZ APARICIO es candidato a Jueces/es de Distrito en Puebla, postulándose al Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, y ha completado diversos cursos en la Escuela Federal de Formación Judicial enfocados en perspectiva de género, justicia civil y mercantil.
+
+Su trayectoria incluye experiencia como abogado y servidor público, identificándose como una persona comprometida con la justicia social. Motivado por su vocación de servicio, busca un cargo público con el objetivo de garantizar una justicia pronta, clara, humana e independiente, priorizando la atención a grupos vulnerables y la transparencia en la carrera judicial. Sus propuestas centrales se enfocan en agilizar los procesos, emitir sentencias comprensibles, establecer atención directa a la ciudadanía y combatir el nepotismo y la corrupción en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BT8WiEEhn/
+- https://x.com/ChaApaSantiago?t=nr6gE_4T0G3SUierOzKVJg&s=08
+- https://www.instagram.com/santiago.chavez.aparicio?utm_source=qr&igsh=MTVmN3l4ZTlhM3Foaw==
+- https://www.tiktok.com/@santiago.chavez.aparicio?_t=ZM-8v6OxEXzsbG&_r=1
+
+
+## Cursos
+
+- Curso Género como herramienta para la igualdad por la Escuela Federal de Formación Judicial,Curso para generar espacios libres de violencia por la Escuela Federal de Formación Judicial,Curso Juzgar con Perspectiva de Género en materia laboral por la Escuela Federal de Formación Judicial,Curso Juzgar con Perspectiva de Género en materia administrativa por la Escuela Federal de Formación Judicial,Curso Inducción en materia Civil y Mercantil por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52765/11
+
+
+## Trayectoria Academica
+
+- Fui abogado, servidor público y víctima del sistema
+- Hoy me postulo a juez con vocación social y compromiso con el puebl
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi vocación es sembrar justicia con dignidad y valentía, no con favores ni redes de poder.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar justicia pronta, clara y humana. Un juez no solo aplica la ley, también escucha, comprende y decide con principios éticos. La justicia no debe depender de apellidos ni redes de poder, sino de la capacidad, la honestidad y la convicción de servir. La verdadera transformación del Poder Judicial empieza cuando quienes imparten justicia actúan con transparencia, sin privilegios y al lado del pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe dejar de ser un privilegio inaccesible y convertirse en un derecho real para todas y todos. Implica actuar con honestidad, imparcialidad y profundo respeto por la dignidad humana. Un sistema justo es aquel que reconoce a las víctimas, atiende con perspectiva social y rompe las redes de nepotismo, corrupción e influyentismo. La justicia verdadera escucha, transforma y repara.
+
+
+## Propuestas
+
+- 1. Atender a grupos vulnerables e históricamente marginados Mujeres, campesinos, pueblos originarios y afrodescendientes, jóvenes, personas con capacidades diferentes; sin dejar fuera a nadie, con total apertura y con una visión de perspectiva de las diferentes desigualdades /// 2.Juzgar con independencia, sin deberle nada a nadie. Ejerceré mi función judicial con absoluta autonomía. No recibiré órdenes, ni aceptaré presiones. No pertenezco a ningún grupo de poder ni a redes de influencia.
+- 3.Justicia rápida y eficaz En lugar de alargar juicios que lastiman emocional, económica y familiarmente a las personas, haré que los procedimientos sean cortos, imparciales y sin paja, sin perder el rigor que marca el derecho. /// 4. Sentencias claras, comprensibles y humanas. La justicia no debe expresarse en palabras que nadie entiende. Mis sentencias estarán redactadas en lenguaje claro, accesible, sin tecnicismos innecesarios.
+- 5. Atención directa a la ciudadanía. Estableceré audiencias públicas semanales de atención, para que cualquier persona pueda acercarse al juzgado, ser escuchada y recibir orientación. /// 6. Transparentar la carrera judicial En mi cargo cada convocatoria pública para reclutar a personal que desee hacer carrera judicial se hará con total transparencia, en el que cada uno de los participantes pueda observar con seguridad que el proceso busca elegir a las y los mejores calificados.
+

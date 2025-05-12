@@ -1,0 +1,75 @@
+Nombre Candidato: DIANNA SILVA LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: MUJER
+Telefono: 2222159514
+Correo Electronico: DIANNSILVA.01@GMAIL.COM
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Operativa, Benemérita Universidad Autónoma de Puebla., Código Nacional de Procedimientos Penales, Derecho, Igualdad de Género, Licenciatura, Maestría, Poder Judicial de la Federación, Procuración, Sistema Penal Acusatorio
+Tags Propósito: Accesibilidad, Atención digna, Bienestar, Capacitación personal, Comunicación eficiente, Comunicación interna., Cultura de puertas abiertas, Derechos ciudadanos, Eficiencia presupuestal, Expediente electrónico, Gestión judicial, Igualdad oportunidades, Juicio justo, Justicia humana, Lenguaje claro, Motivación, Respeto, Simplificación procesos, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Dianna Silva López es candidata a Jueza/a de Distrito en Quintana Roo, postulándose a través del Poder Legislativo Federal. Cuenta con una licenciatura en Derecho y una maestría en Procuración, además de haber completado diversos cursos de formación en el Poder Judicial de la Federación, incluyendo temas de administración operativa, sistema penal acusatorio, dogmática jurídica y perspectiva de género. 
+
+Su motivación para buscar el cargo se centra en promover una impartición de justicia más humana, transparente y accesible. Sus propuestas incluyen la revisión del presupuesto judicial para optimizar recursos, la implementación total del expediente electrónico y el fomento de una cultura de puertas abiertas en los juzgados, priorizando la atención digna y accesible para los ciudadanos, así como un ambiente laboral respetuoso para el personal judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.diannasilva.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/DiannaSilva.
+- https://www.x.com/DiannaSlva01
+- https://www.instagram.com/dianna.silva01
+- https://www.youtube.com/DiannaSilva
+- https://www.tiktok.com/dianna.silva01
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Curso de Administración Operativa del Centro de Justicia Penal Federal,Curso de Inducción para Asistente de Constancias y Registros en el Sistema Penal Acusatorio,Curso sobre Dogmática Jurídica desde la Perspectiva del Código Nacional de Procedimientos Penales,Curso de género como herramienta de igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54918/11
+
+
+## Trayectoria Academica
+
+- Soy licenciada en Derecho por la Benemérita Universidad Autonóma de Puebla y cuento con una maestría en Procuración
+
+
+## Motivo para buscar el Cargo Publico
+
+Para promover la impartición de justicia más humana, cercana a la gente, transparente, de puertas abiertas y trato digno
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no es solo la aplicación del derecho, sino el ejercicio de la justicia con un enfoque humano, ágil, accesible y cercana a la sociedad, eliminando barreras que impidan su acceso, para lo cual considero necesario simplificar los procesos, optar por el uso de la tecnología y fomentar un lenguaje claro para que todas las personas puedan entender sus derechos así como el desarrollo del proceso judicial, asumiendo un compromiso real con las necesidades del pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe tomar un rol en donde la gente que se acerque a los juzgados comprenda el por qué de las decisiones judiciales, con la seguridad que la justicia se aplicara sin distinción, con neutralidad, ética, en apego a la ley y compromiso con el bienestar de las personas, garantizando que los ciudadanos tengan las mismas oportunidades para defenderse y acceso a un juicio justo, ágil y sin retardos innecesarios, evitando cualquier forma de discriminación o prejuicio.
+
+
+## Propuestas
+
+- Revisar y ajustar las prestaciones de altos mandos para eliminar aquellas que sean excesivas o injustificadas a fin de priorizar el uso más eficiente del presupuesto judicial, y así estar en posibilidad de redirigir ese recurso hacia la apertura de nuevos órganos jurisdiccionales para reducir la carga de trabajo y agilizar la resolución de los asuntos, así como procurar la capacitación del personal de manera continua, tanto en lo académico como en lo psicoemocional.
+- Transitar de manera total al expediente electrónico, así como implementar un sistema eficiente de comunicación entre las autoridades de todos los niveles, a fin de agilizar la integración de los expedientes y reducir el uso de impresoras y papel. Reforzar la capacitación del personal en herramientas digitales y mejorar los sistemas de gestión judicial con los que se cuentan en este momento, a fin de que toda la información necesaria de cada expediente sea de fácil acceso para todas las partes.
+- Fomentar una cultura de puertas abiertas en los juzgados, donde los ciudadanos sientan que pueden acudir sin miedo ni barreras burocráticas, así como capacitar a los colaboradores en brindar atención con sensibilidad, para asegurar que quienes acudan a las instalaciones sean tratados con respeto y dignidad. Asimismo, es relevante promover un entorno de trabajo donde los compañeros se sientan valorados, motivados y sean tratados con respeto y dignidad, promoviendo la comunicación abierta.
+

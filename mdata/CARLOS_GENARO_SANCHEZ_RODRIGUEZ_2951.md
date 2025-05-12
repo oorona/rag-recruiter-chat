@@ -1,0 +1,75 @@
+Nombre Candidato: CARLOS GENARO SANCHEZ RODRIGUEZ
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 5547599044
+Correo Electronico: elderechoylajusticia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Análisis de casos, Audiencia de juicio, Delincuencia organizada, Derecho, Especialización, Formación inicial., Maestría, Ministerio público, Posgrado, Proceso penal acusatorio, Seguridad Pública
+Tags Propósito: Bienes jurídicos, Conciencia social, Conductas delictivas, Daño social, Decisión judicial, Derechos humanos, Eficiencia judicial, Estado, Función judicial, Honestidad judicial, Impartición de justicia, Justicia penal, Juzgadores electos, Libertad, Protección social, Razonamiento jurídico., Sociedad, Voto de confianza
+
+
+## Descripción del Candidato 
+
+Carlos Genaro Sánchez Rodríguez es candidato a Jueces/es de Distrito por el Poder Legislativo Federal en Puebla. Cuenta con estudios de maestría, dos especialidades y una carrera técnica en Seguridad Pública, complementados por diversos cursos en áreas como análisis de casos, litigación y justicia penal. 
+
+Su motivación para buscar el cargo es aplicar su esfuerzo y compromiso social a la impartición de justicia penal federal. Su visión se centra en una función jurisdiccional objetiva, consciente de las necesidades de las partes y la realidad del territorio, así como en una impartición de justicia que respalde a las personas y proteja sus derechos. Sus propuestas incluyen impulsar la elección de juzgadores por la sociedad, ser un ejemplo para futuras generaciones y desarrollar una impartición de justicia con razón y conciencia para proteger a la sociedad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15YWfHN6A3/?mibextid=wwXIfr
+- https://www.instagram.com/gsr8564?igsh=MTB3NGNuZjg0NTVvcA3D3D&utm_source=qr
+- https://www.tiktok.com/@carlosgsanchezrofi?_t=ZM-8v2IzYOyTzh&_r=1
+
+
+## Cursos
+
+- CURSO DE HERRAMIENTAS METODOLÓGICAS PARA EL ANÁLISIS DE CASOS (HEMAC),TALLER DE ESPECIALIZACIÓN EN COMPETENCIAS PARA AUDIENCIA DE JUICIO (CCT) ICITAP,CURSO ESTRUCTURAS DE LAS AUDIENCIAS DEL PROCESO PENAL ACUSATORIO (INDECAJ)
+- ,CURSO ESPECIALIZADO EN INVESTIGACIÓN Y LITIGACIÓN DEL DELITO DE DELINCUENCIA ORGANIZADA (OPDAT)
+- ,FORMACIÓN INICIAL PARA AGENTE DEL MINISTERIO PÚBLICO (FGE del Estado de Puebla)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55495/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho con estudios de posgrado como maestría, dos especialidades y una carrera TSU en Seguridad Pública
+
+
+## Motivo para buscar el Cargo Publico
+
+Para poner mi esfuerzo y compromiso social en la impartición de justicia en materia penal competencia de la Federación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La persona que imparte justicia en la materia penal debe ser consciente de las diversas necesidades de las partes intervinientes en el proceso penal, pero más aún debe tener clara la situación real que acontece dentro del territorio de su competencia para resolver de manera objetiva los casos delictivos por conductas que violan las Leyes penales y pueden causar grandes daños a la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en respuesta a la comisión de los delitos debe ser la vía por la cual todas las personas puedan sentirse respaldadas por el Estado. La justicia penal en México es de gran relevancia social porque derivado de un proceso penal puede verse afectada la libertad de las personas, siendo este un derecho humano que debe ser protegido por la autoridad judicial, de ahí la importancia de que las conductas delictivas sean juzgadas por personas que actúen de manera eficiente.
+
+
+## Propuestas
+
+- Impulsar que lo justo es que la sociedad decida quienes deben ser sus juzgadores, que la esperanza de una función judicial digna y honesta, retumbe en la conciencia de los electos para que actúen con decisión, valorando siempre cada situación puesta de su conocimiento conforme al daño causado.
+- Llegar a ser un ejemplo para las futuras generaciones de juzgadores electos por la sociedad, actuando de manera justa dignificando la función judicial, pero más importante honrando ese voto de confianza que la sociedad me pudiera otorgar con un actuar firme en las decisiones judiciales.
+- Desarrollar una impartición de justicia con los ojos abiertos, dotada de razón y conciencia que permita tomar las mejores decisiones para proteger a la sociedad de aquellas conductas que afectan los bienes que la Ley protege.
+

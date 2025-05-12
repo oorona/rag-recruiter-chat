@@ -1,0 +1,73 @@
+Nombre Candidato: EVA MARIANA VERENICE SALGADO GIRON
+Cargo: Juezas/es de Distrito
+Entidad: CAMPECHE
+Sexo: MUJER
+Telefono: 9811138972
+Correo Electronico: evamarianaelecciones@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Educación Continua, Especialización., Género e Igualdad, Justicia Laboral, Ley Federal del Trabajo, Ley de Amparo, Procesal Laboral, Reforma Laboral, Violencia de Género
+Tags Propósito: Acceso a la justicia, Automatización, Derechos humanos, Derechos sociales, Discapacidad, Diversidad sexual, Eficiencia, Empatía, Estándares normativos, Expediente digital, Honradez, Igualdad, Igualdad de género, Imparcialidad, Independencia judicial, Justicia accesible, Justicia social, Mejora continua, Minorías, Mujeres, Objetividad, Participación ciudadana, Paz social, Profesionalismo, Responsabilidad., Sensibilidad social, Servicios en línea, Visión social, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Eva Mariana Verenice Salgado Girón es candidata a Jueza/a de Distrito en Campeche, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Procesal Laboral y especialidad en la Reforma en materia de Justicia Laboral. Su motivación para buscar el cargo es contribuir a un sistema de justicia accesible, igualitario y con sensibilidad social.
+
+Su visión sobre la función jurisdiccional se centra en el cumplimiento de estándares normativos, la honestidad, la vocación de servicio y la sensibilidad social. Sus propuestas incluyen acercar la justicia a la sociedad a través de la comunicación y la implementación de herramientas digitales, promover una justicia igualitaria con enfoque en grupos vulnerables, y un compromiso con la responsabilidad y la mejora integral del sistema judicial mediante la profesionalización y el uso de tecnología.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/evamariana.mx
+- https://instagram.com/evamariana.mx
+- https://tiktok.com/evamariana.mx
+
+
+## Cursos
+
+- Seminario de la Reforma a la Ley Federal del Trabajo, Curso sobre la violencia de género,Seminario de actualización de la Ley de Amparo,Seminario de la Reforma a la ley Federal del Trabajo,Curso sobre la violencia de género,Curso de Genero como herramienta para la igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55548/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO, MAESTRIA EN PROCESAL LABORAL, ESPECIALIDAD SOBRE LA REFORMA EN MATERIA DE JUSTICIA LABORAL
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir en un nuevo sistema de justicia accesible, igualitario y con sensibilidad social, con mayor visión.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los juzgadores deben cumplir con los estándares normativos y actuar con honradez, con vocación de servicio para el pueblo de México, con sensibilidad social con el objetivo primordial de proteger el orden jurídico y la paz social, actuando con independencia, imparcialidad, objetividad, profesionalismo, sin privilegios, comprometido con la sociedad mexicana, consolidando una participación activa, con preparación y acción dentro del marco de legalidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una visión objetiva y subjetiva empleando los conocimientos jurídicos, pero sin perder de vista la justicia social; el operador jurídico debe participar activamente, con capacidad analítica y con las herramientas aplicables dentro del marco de los derechos humanos, para garantizar una justicia para todos y todas con igualdad.
+
+
+## Propuestas
+
+- Una justicia cercana, hoy en día la sociedad mexicana exige que los jueces sean empáticos, visibles, creando un acercamiento e interés social, siendo conveniente la participación en foros culturales o colaborar para implementar mecanismos para comunicar de forma sencilla, práctica y útil sobre el desarrollo de la función jurisdiccional y de las herramientas electrónicas, como el expediente digital, los servicios judiciales en línea, con el fin de lograr un acceso efectivo a la justicia.
+- Una justicia igualitaria, con una visión evolutiva de los derechos, con la prioridad de una justicia social igualitaria, que requiere una sensibilidad, siendo importante los derechos sociales, con un enfoque en las minorías, mujeres, personas con discapacidad y personas de la diversidad sexual, identificando el contexto social y las medidas de igualdad idóneas para garantizar una procuración de justicia igualitaria.
+- Un compromiso con responsabilidad, con una visión social al ser una mujer comprometida, empática, con un interés propositivo en el mejoramiento de un sistema integral de justicia, con vocación de servicio, profesional y definiendo buenas prácticas para una justicia más cercana, utilizando los procesos automatizados que ahorran tiempo administrativo, ahorro de recurso materiales, apegados a los requerimientos de la justicia actual.
+

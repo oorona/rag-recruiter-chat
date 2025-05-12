@@ -1,0 +1,78 @@
+Nombre Candidato: ITALICA LOURDES BERNAL ARELLANO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7772189698
+Correo Electronico: italicabernala@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Cambio, Democracia, Derecho, Derechos Humanos, FLACSO., Formación Judicial, Género e Igualdad, Licenciatura, Maestría, Reformas Constitucionales, Sensibilización, Sistema Penal Acusatorio, Universidad Iberoamericana, Violencia
+Tags Propósito: Accesibilidad, Adultos Mayores, Capacitación., Constitución, Corrupción, Discapacidad, Empatía, Género, Imparcialidad, Infancia, Justicia, Nepotismo, Plazos Legales, Profesionalismo, Servicio, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Italica Lourdes Bernal Arellano es candidata a Magistratura de Tribunales Colegiados de Circuito en Morelos, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derechos Humanos y Democracia por la FLACSO y Licenciatura en Derecho por la Universidad Iberoamericana. Su trayectoria incluye cursos en Sistema Penal Acusatorio, perspectiva de género, reformas en materia de amparo y derechos humanos, y sensibilización ante procesos de cambio.
+
+La candidata expresa su vocación de servicio y su motivación para asegurar el acceso a una justicia de excelencia. Sus propuestas se centran en la cero tolerancia a la corrupción, la atención empática y eficaz a los justiciables con especial atención a grupos vulnerables y la aplicación de perspectiva de género en las sentencias, así como el cumplimiento de plazos legales y la capacitación constante del equipo de trabajo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ARVMSX7Ya/
+- https://www.instagram.com/italicabernal/profilecard/?igsh=MTMyZWltNWdxODE0NA==
+- https://www.tiktok.com/@italica.bernal?_t=ZM-8uxiEGzbNQs&_r=1
+
+
+## Cursos
+
+- Diplomado en Sistema Penal Acusatorio 4ª Edición
+- Impartido por la Escuela Federal de Formación Judicial
+- ,Curso ¿Género como Herramienta para la Igualdad¿ Impartido la Escuela Federal de Formación Judicial,Curso Para Generar Espacios Libres De Violencia  Impartido la Escuela Federal de Formación Judicial
+- ,Reformas Constitucionales en materia de Amparo y Derechos Humanos
+- Impartido por el Instituto de la Judicatura Federal
+- ,Sensibilización ante procesos de cambio Impartido por la Universidad Anáhuac Sur y el Consejo de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52593/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la Universidad Iberoamericana UIA y Maestría en Derechos Humanos y Democracia por la FLACSO
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo vocación de servicio y quiero que los gobernados tengan acceso a una justicia de excelencia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe desempeñarse con profesionalismo y apego a la Constitución y las leyes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser imparcial, objetiva, breve y accesible para todos los gobernados.
+
+
+## Propuestas
+
+- Cero tolerancia a la corrupción y nepotismo.
+- Atención empática y eficaz a los justiciables. Por una justicia donde los derechos de los grupos vulnerables se protejan. Dictado de sentencias con perspectiva de género y protección de las infancias, adultos mayores vulnerables y personas con discapacidad.
+- Dictado de sentencias en los plazos establecidos en la Ley. Capacitación y actualización constante del equipo de trabajo.
+

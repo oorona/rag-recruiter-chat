@@ -1,0 +1,74 @@
+Nombre Candidato: RICARDO LAGUNA DOMINGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5522700053
+Correo Electronico: rilado69@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Derecho Constitucional, Derecho Tributario, Derechos Humanos, Doctorado, Especialista., Formación, Maestría, Poder Judicial de la Federación, UNAC, Universidad Castilla la Mancha, Universidad Panamericana, Universidad Tepantlato
+Tags Propósito: Acceso a la justicia, Confianza, Credibilidad, Derechos, Desigualdad, Eficiencia, Equidad., Humanismo, Inclusión social, Innovación, Justicia, Justicia social, Legitimidad, Perspectiva de género, Rendición de cuentas, Simplificación procesal, Sistema judicial, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ricardo Laguna Domínguez es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose para el Poder Judicial de la Federación. Cuenta con doctorado en Derecho Constitucional y una trayectoria académica especializada en Derechos Humanos y Derecho Constitucional, con estudios en México y España.
+
+Su motivación para el cargo es contribuir con su experiencia al sistema de justicia mexicano. Su visión se centra en fortalecer la legitimidad, credibilidad y confianza en la función jurisdiccional a través de la excelencia, la innovación, la rendición de cuentas y la cercanía con la sociedad. Sus propuestas incluyen priorizar la resolución de fondo sobre formalismos, garantizar un acceso efectivo a la justicia mejorando la eficiencia del sistema, y juzgar con perspectiva de género e inclusión social para eliminar barreras a grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/ricardolagunadomínguez
+- https://x.com/ricardolaguna
+- https://www.instagram.com/ricardolagunadominguez
+- https://www.tiktok.com/@rich.laguna
+
+
+## Cursos
+
+- Diplomado en Derecho Tributario en la Universidad Panamericana,Especialidad en Derechos Humanos por la Universidad Castilla la Mancha España,Maestría en Derecho Constitucional y Derechos Humanos por la Universidad Panemericana,Doctorado en Derecho Constitucional por la Universidad Tepantlato,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53515/10
+
+
+## Trayectoria Academica
+
+- Abogado por la UNACH, especialista en DDHH, maestro en DDHH y Constitucional en UP y Doctor en Derecho Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servirle al País y abonar, con mi experiencia, al sistema de justicia que tanto le ha quedado a deber a México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Consiste en lograr una mayor legitimación, credibilidad, confianza y reconocimiento social, a través de la excelencia en la impartición de justicia y la constante innovación, en un marco de humanismo; hacer realmente un compromiso con la sociedad a través de la rendición de cuentas, colaboración y cercanía con la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En México la desigualdad es uno de los temas que más afecta a nuestra población, por lo tanto, resulta imperioso eliminar las barreras que impiden llegar a la justicia social. El desafío para la función judicial consiste en brindar un servicio de calidad, eficiente, con total transparencia y, sobre todo, con la sensibilidad necesaria para atender las circunstancias particulares de los grupos más vulnerables
+
+
+## Propuestas
+
+- Privilegiar la resolución del fondo del conflicto por encima de los formalismos procesales. Asimismo, resulta necesario acercar la justicia a la gente, de tal forma que sea entendible para la ciudadanía.
+- Garantizar un acceso efectivo a la justicia, para logarlo resulta fundamental mejorar la eficiencia del sistema judicial. Esto implica reducir los tiempos de espera, simplificar los procedimientos legales y garantizar una justicia rápida y equitativa para todas las personas. No olvidar que una justicia tardía deja de ser justicia.
+- Para garantizar un acceso equitativo a la justicia, también resulta fundamental el juzgar con perspectiva de género y lograr una inclusión social. Esto implica eliminar las barreras que puedan afectar a grupos vulnerables y garantizar que todas las personas tengan igualdad de oportunidades para acceder a la justicia. Esto es, mejorar el acceso a la justicia es fundamental para garantizar que todas las personas puedan ejercer sus derechos de manera efectiva.
+

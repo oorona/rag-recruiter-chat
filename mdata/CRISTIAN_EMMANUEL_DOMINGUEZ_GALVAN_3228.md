@@ -1,0 +1,73 @@
+Nombre Candidato: CRISTIAN EMMANUEL DOMINGUEZ GALVAN
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 2281075669
+Correo Electronico: killoto@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Bases Constitucionales, Convenios Internacionales, Derecho Concursal, Doctorado, Especialización, Justicia Laboral, Licenciado en Derecho, Maestría, Poder Judicial Federal, Sentencias, Sistema Penal Acusatorio
+Tags Propósito: Acceso a la justicia., Actualización constante, Agilidad, Análisis de contexto, Congruencia, Conocimientos especializados, Defensa de derechos, Derechos humanos, Eficiencia, Estudio del fondo, Interculturalidad, Justicia cercana, Justicia progresiva, Juzgado abierto, Objetividad, Perspectiva de género, Pueblos indígenas, Puertas abiertas, Redes sociales, Sensibilidad, Sentencias claras, Transparencia, Visita de sitios
+
+
+## Descripción del Candidato 
+
+CRISTIAN EMMANUEL DOMINGUEZ GALVAN es candidato a Jueces/as de Distrito en Tabasco, postulándose a través del Poder Ejecutivo Federal. Cuenta con un Doctorado y una trayectoria académica sólida, complementada con diplomados y especializaciones en áreas del derecho, incluyendo el penal y laboral.
+
+Su motivación para buscar el cargo es implementar un sistema de justicia más progresivo, cercano a la ciudadanía y accesible. Propone juzgados abiertos, una comunicación clara y transparente sobre derechos, la especialización continua de los jueces y una administración de justicia que considere la interculturalidad, la perspectiva de género y los derechos humanos, priorizando el fondo de los asuntos sobre formalismos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/cristianemmanuel.dominguezgalvan
+- https://www.instagram.com/kristian_dguez
+
+
+## Cursos
+
+- Diplomado de Derecho Concursal,Diplomado en Argumentación Jurídica,Especialización sobre la Reforma en Materia de Justicia Laboral,Bases constitucionales y convencionales del sistema penal acusatorio,Programa Nacional
+- Cómo elaborar mejores sentencias
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52965/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, con diplomados dentro del Poder Judicial Federal, una especialización, maestría y un Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero implementar una forma de impartir justicia progresiva y cercana a la gente, un juzgado abierto a la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las y los juzgadores deberemos impartir justicia de manera eficiente, transparente, con conocimientos mínimos de interculturalidad (acercándonos a los pueblos y comunidades indígenas, aprendiendo sobre su cosmovisión), con un enfoque de perspectiva de género, y por supuesto cumpliendo en el ámbito de competencia con las obligaciones de promoción, respeto, protección y garantía a los derechos humanos. Debemos sensibilizarnos, ser de puertas abiertas y con base en la ley defender los derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La forma adecuada de administrar e impartir justicia debe estar regida bajo los estándares mínimos de transparencia, objetividad, congruencia y sobre todo protección de los derechos humanos. Las personas juzgadoras deben tener conocimientos mínimos sobre las materias que van a conocer, además deben cambiar su forma tradicional de juzgar exclusivamente viendo expedientes, hoy se debe especializar en interculturalidad, análisis de contexto; en ciertos casos deberá hacer visita de sitios.
+
+
+## Propuestas
+
+- Las y los juzgadores deben ser de puertas abiertas a fin de escuchar a las partes en los procesos y hacer más ágil el dictado de las sentencias de manera sencilla y clara, apartándose de una redacción con tecnicismos difícil de entender para el ciudadano no especializado en Derecho, privilegiando el estudio del fondo de los asuntos sobre la forma, porque ello conlleva dilaciones en los procesos y más gastos de las personas que acuden pidiendo justicia; también, deben comparecer a las audiencias.
+- La impartición de justicia debe ser transparente y cercana a la gente, dejando atrás la egolatría e insensibilidad, con el compromiso de, al menos, a través de redes sociales o de ciclos de conferencias, de manera sencilla y clara, informar a los ciudadanos sobre sus derechos y cómo defenderlos.
+- Las y los jueces deben especializarse en materias (no basta con tener conocimientos en general), con actualización constante, a fin de cumplir cabalmente en el desempeño del encargo.
+

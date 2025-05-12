@@ -1,0 +1,95 @@
+Nombre Candidato: MAYRA GABRIELA HUITRON ZAMUDIO
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8992066410
+Correo Electronico: dra.mayra.huitron@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada Litigante, Acceso a la Información Pública, Administración Pública, Administración Pública Federal, Derecho Fiscal, Doctorado., Gestión Documental, Gobierno, INAI, Integridad, Ley General de Transparencia, Master, Pemex, Reestructuración Fiscal, Reforma Energética 2013, Rendición de Cuentas, Servicio Público, Sistema Nacional Anticorrupción, Transparencia, Ética
+Tags Propósito: Estado de derecho, accesibilidad, anticorrupción, capacitación, celeridad, cultura de denuncia., derechos humanos, economía procesal, eficiencia, gestión de riesgos, imparcialidad, independencia, justicia, prevención, procesos administrativos, reforma judicial, rezago judicial, transparencia
+
+
+## Descripción del Candidato 
+
+Mayra Gabriela Huitron Zamudio es candidata a Jueces/as de Distrito en Tamaulipas, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado y una trayectoria como abogada litigante, con especialización en Derecho Fiscal y Gobierno y Administración Pública. Su motivación para buscar el cargo se centra en contribuir al fortalecimiento del Estado de derecho, garantizar la justicia, la imparcialidad y la protección de los derechos humanos.
+
+Sus propuestas principales se enfocan en abatir el rezago judicial mediante la optimización de procesos y recursos, implementar prácticas anticorrupción con un enfoque de prevención y gestión de riesgos, y promover una justicia eficiente a través de mecanismos innovadores y transparentes.  Su visión sobre la función jurisdiccional resalta su importancia como pilar del Estado de Derecho y su compromiso con la aplicación imparcial de la ley.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Dra.Mayra.Huitron
+- https://x.com/DraMayraHuitron
+- https://www.instagram.com/dra_mayra_huitron
+- https://www.youtube.com/@Dra.MayraHuitron
+- https://www.tiktok.com/@dra.mayra.huitron
+- https://www.threads.net/@dra_mayra_huitron
+
+
+## Cursos
+
+- La reforma energética 2013: análisis de la reestructuración fiscal de Pemex
+- https://hdl
+- handle
+- net/20
+- 500
+- 14352/16345,Sistema Nacional Anticorrupción
+- (2023)
+- Ética e integridad en el servicio público
+- ,INAI
+- (2021)
+- Sencibilización para la Transparencia y la Rendición de cuentas,Sria
+- Función Pública
+- (2021)
+- Gestión Documental en la Admón
+- Pública Federal,INAI
+- (2021)
+- Introducción a la Ley General de Transparencia y Acceso a la Inf
+- Pública
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53791/11
+
+
+## Trayectoria Academica
+
+- Abogada Litigante, Master en Derecho Fiscal y Dra
+- en Gobierno y Admón
+- Pública,
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir al fortalecimiento del Estado de derecho, garantizar justicia, imparcialidad y protección de derechos humanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es el poder del Estado para administrar justicia, proveniente del pueblo y ejercida por el poder judicial. Sin ella, desaparecería el Estado de Derecho, reemplazándola a la voluntad del más fuerte. No se puede denegar la justicia cuando se acude a los tribunales. Visión: el deber de amparar la efectividad del derecho, salvaguardar el orden jurídico y constitucional, y asegurar la aplicación imparcial de la ley, protegiendo los derechos humanos y garantizando equidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El éxito de la Reforma Judicial es fortalecer la confianza ciudadana y garantizar justicia y pacificación social. Visión: la accesibilidad de tu derecho a ser protegido ante un juzgado competente, que te ampare; con transparencia, independencia e imparcialidad; asegurar la debida administración del proceso, en condiciones de gratuidad e integralidad. Me comprometo a investigar, proteger y reparar las violaciones a los derechos humanos, observando los plazos establecidos en la ley.
+
+
+## Propuestas
+
+- Abatimiento del Rezago Judicial. Propuesta: Reducir el atraso acumulado en la resolución de casos, trámites y procedimientos mediante estrategias para mejorar la eficiencia y reducir los tiempos de resolución. Meta: Identificar y abordar las causas del rezago (alta carga de trabajo, falta de personal, deficiencias en los procesos). Implementar soluciones específicas, como clasificar, priorizar casos, contratar personal temporal, capacitar y usar herramientas tecnológicas para la mejora continua.
+- Implementación de Prácticas Anticorrupción: Prevención/Gestión de Riesgos Corruptos. Objetivo: Cero tolerancia a la corrupción. Desarrollar programas para coordinar la atención, investigación y sanción de faltas administrativas, y gestionar los riesgos de corrupción mediante la identificación, evaluación y mitigación. Meta: Capacitar al 100 del personal, identificar áreas de riesgo, implementar controles preventivos, monitorear actividades, establecer canales de denuncia y promover una cultura.
+- Justicia eficiente Propuesta: Establecer mecanismos de control innovadores y modernos para propiciar la celeridad, la accesibilidad y la economía procesal con transparencia y calidad. Para obtener resoluciones objetivas, Imparciales e Independientes. Meta: Eficientizar todos los procesos administrativos del juzgado teniendo como eje rector la transparencia judicial.
+

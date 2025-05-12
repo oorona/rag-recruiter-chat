@@ -1,0 +1,80 @@
+Nombre Candidato: VANESSA ESMERALDA REVILLA MUÑOZ
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8443107873
+Correo Electronico: Verevillam@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Audiencia Inicial, Derecho, EFFJ., Género, Igualdad, Juicio de Amparo, Maestría, Procesos Penales Federales, Sistema de Justicia Penal, UAdeC, Violencia
+Tags Propósito: accesibilidad, celeridad, comunidades indígenas, consulta pública, derechos fundamentales, derechos humanos, educación jurídica, eficiencia, equidad, grupos vulnerables, igualdad, imparcialidad, justicia, juzgados móviles, migrantes, mujeres víctimas de violencia, participación ciudadana, personas con discapacidad., servicios jurídicos gratuitos, transparencia
+
+
+## Descripción del Candidato 
+
+Vanessa Esmeralda Revilla Muñoz es candidata a Jueza/es de Distrito en Coahuila, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con maestría concluida y formación continua en temas de justicia, incluyendo cursos sobre violencia de género, juicio de amparo y procesos penales federales.
+
+Su motivación para buscar el cargo público es servir a su comunidad a través de la aplicación de la justicia, la igualdad y la equidad.  Propone un enfoque en la protección de los derechos fundamentales, la implementación de espacios de interacción con los justiciables y talleres de sensibilización sobre derechos humanos, con especial atención a grupos vulnerables y comunidades indígenas. Busca un sistema judicial accesible, transparente y eficiente que garantice la equidad y el respeto a los derechos de todas las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Vanessa-Esmeralda-Revilla-MuC3B1oz/61573735746535/?mibextid=wwXIfr&rdid=2eTaufhnPyMXHBko&share_url=https3A2F2Fwww.facebook.com2Fshare2F18sHvuazGz2F3Fmibextid3
+- https://x.com/verevillam?s=21
+- https://www.instagram.com/vanessa.revillam/?igsh=MXU0bTdrNWxxdzl0aw3D3D&utm_source=qr#
+
+
+## Cursos
+
+- CURSO PARA GENERAR ESPACIOS LIBRES DE VIOLENCIA
+- EFFJ,CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD
+- EFFJ,CURSO PRÁCTICAS DEL JUICIO DE AMPARO INDIRECTO
+- EFFJ,CURSO PRÁCTICAS DE LOS PROCESOS PENALES FEDERALES
+- EFFJ,CURSO GENERALIDADES DEL NUEVO SISTEMA DE JUSTICIA PENAL Y SU OPERATIVIDAD (ÉNFASIS EN SU AUDIENCIA INICIAL)
+- EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55299/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en derecho y aspirante al grado de maestra en derecho por la Facultad de Jurisprudencia de la UAdeC
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a mi comunidad, a través de la aplicación de la justicia, igualdad y equidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional, no solo se limita a la aplicación literal de la ley, sino que debe interpretarse y adaptarse en cada caso particular; es un ejercicio orientado hacia la equidad, imparcialidad y la defensa de los derechos fundamentales de las personas, que permita que todo individuo sea escuchado, presente pruebas, y a que su caso sea resuelto dentro de un plazo razonable, para garantizar un sistema judicial accesible, transparente y eficiente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es necesario que la impartición de justicia se encuentre basada en la imparcialidad, la equidad, el respeto a los derechos de las personas, y la transparencia en el trámite y resolución de los juicios; a través de la aplicación de la celeridad en las actuaciones, que no comprometa la calidad y la justicia en la decisión tomada, y que permita que la sociedad entienda cómo se llega a una determinada resolución, pues la justicia no debe ser un privilegio de unos pocos, sino un derecho de todos.
+
+
+## Propuestas
+
+- Priorizar el respeto a los derechos de las personas, en la emisión de las resoluciones de los juicios, a través de la interpretación de las leyes, de manera que favorezcan la protección de los derechos fundamentales, y con ello, garantizar que todos los procedimientos judiciales sean transparentes y que las personas tengan derecho a participar activamente en su defensa; además de actuar con especial atención en casos que involucren a personas pertenecientes a grupos vulnerables.
+- Implementación de espacios de interacción directa entre la suscrita y los justiciables, a través de audiencias públicas y foros de consulta, en los que la sociedad pueda expresar sus preocupaciones y expectativas sobre la administración de justicia, y escuchar las inquietudes que versen sobre el funcionamiento del sistema judicial, a través del conocimiento de los derechos y recursos que tienen a su alcance en sus procedimientos.
+- Realizar talleres que permitan la sensibilización y educación sobre los derechos humanos y el acceso a la justicia, a fin de que la ciudadanía que habita en las comunidades indígenas, rurales, y grupos vulnerables como mujeres víctimas de violencia, migrantes, y personas con discapacidad, conozcan de nuestras funciones, para facilitar el acceso a la justicia, como los juzgados móviles, y el conocimiento de los servicios jurídicos gratuitos que tiene el Poder Judicial de la Federación.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: DULCE ANAHI GARCIA CASTILLO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 2219664145
+Correo Electronico: ann.dagc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Espacios Libres, Formación Judicial, Licenciatura, Profesional, Título., Violencia
+Tags Propósito: accesibilidad, confianza ciudadana, derechos, favoritismo, igualdad, imparcialidad, justicia, juventud, lenguaje claro, mérito, nepotismo., oportunidades, procesos judiciales, rendición de cuentas, resoluciones judiciales, sistema judicial, transparencia
+
+
+## Descripción del Candidato 
+
+Dulce Anahi Garcia Castillo es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho por la Universidad Latinoamericana y cédula profesional. Ha completado un curso en Generación de Espacios Libres de Violencia por la Escuela Federal de Formación Judicial.
+
+Su motivación para buscar el cargo es abrir oportunidades para jóvenes, erradicar el favoritismo y asegurar una justicia equitativa. Propone un sistema judicial ágil, transparente y accesible, enfocándose en la claridad de las resoluciones judiciales y el fortalecimiento de la transparencia en los procesos. Busca eliminar el nepotismo, simplificar el lenguaje legal en las sentencias y facilitar el acceso a la información sobre el progreso de los casos judiciales. Su curriculum vitae completo está disponible en: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53223/11
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/du.anahigc
+- https://x.com/Du_AGarcia
+- https://www.instagram.com/du.anahigc/?next=2Fanahi.gc_2F
+- https://www.tiktok.com/@du.anahigc
+
+
+## Cursos
+
+- Curso en Generación de Espacios Libres de Violencia por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53223/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho Universidad Latinoamericana Título y Cédula profesional
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser juez para abrir puertas a jóvenes, acabar con el favoritismo y asegurar una justicia justa para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr un sistema judicial ágil, transparente y accesible para todos. Como jueza, mi compromiso es tomar decisiones basadas en hechos y en la ley, sin que influyan factores externos. Quiero que la gente confíe en que cada caso se trata con imparcialidad y respeto. Un sistema donde las personas sientan que la justicia está a su alcance y que sus derechos son protegidos de manera clara y eficiente, sin barreras ni complicaciones innecesarias.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser un proceso claro, accesible y justo para todos. Como jueza, mi objetivo es asegurarme de que cada persona, sin importar su nivel de conocimiento sobre la ley, entienda lo que está pasando en su caso y por qué se toman las decisiones. Quiero que las personas confíen en el sistema, sabiendo que se respetan sus derechos y que sus casos son tratados con seriedad. La justicia debe ser comprensible, sin complicaciones ni tecnicismos innecesarios, para que todos puedan ser escuchados.
+
+
+## Propuestas
+
+- Eliminar el favoritismo y garantizar oportunidades para todos: Es crucial que el sistema judicial se base en el mérito, no en conexiones personales o influencias externas. Propongo crear un entorno donde los jóvenes con talento y ganas de crecer tengan la misma oportunidad de desarrollarse profesionalmente, sin que el nepotismo u otros factores externos limiten su avance. Solo así podremos fortalecer el sistema judicial y garantizar una verdadera igualdad de oportunidades.
+- Simplificar el lenguaje de las resoluciones judiciales: Muchas veces, las personas no entienden completamente las decisiones que se toman en sus casos debido al uso de un lenguaje técnico. Como jueza penal, propongo que las resoluciones sean redactadas de manera clara y directa, explicando de forma sencilla las decisiones y los pasos a seguir. Esto permitirá que cualquier persona, independientemente de su conocimiento legal, pueda comprender su proceso y lo que está sucediendo en su caso.
+- Fortalecer la transparencia y la accesibilidad del sistema: La falta de información clara y accesible sobre los procesos judiciales es una barrera para la confianza ciudadana. Propongo que se faciliten los medios para que las personas puedan seguir el avance de sus casos de manera sencilla y comprensible. Además, es esencial fomentar la rendición de cuentas, asegurando que los actos de los jueces sean transparentes y accesibles para todos los ciudadanos.
+

@@ -1,0 +1,80 @@
+Nombre Candidato: VIRIDIANA REYES RICARDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 2203411483
+Correo Electronico: viridiana.re.ri@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: ABA ROLI MÉXICO, Derecho, Doctorado, Escuela Judicial, Especialidad., Formación Jurídica, Impartición de Justicia, Justice México, Litigación Oral, Maestría, Mérida, Oaxaca, Perspectiva de Género, Razonamiento Probatorio, UABJO, University San Diego
+Tags Propósito: acceso a la justicia, confianza., derechos, diversidad, estado de derecho, honestidad, igualdad, imparcialidad, inclusión, justicia, legalidad, perspectiva de género, pluriculturalidad, poder judicial, procesos judiciales, profesionalización, rectitud, sana crítica, transparencia, víctimas, ética
+
+
+## Descripción del Candidato 
+
+Viridiana Reyes Ricardez es candidata a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Legislativo Federal. Cuenta con un doctorado concluido y una trayectoria académica continua desde su licenciatura. Su motivación para buscar el cargo público es su vocación de servicio y el deseo de impartir justicia.
+
+En su visión sobre la función jurisdiccional, propone un sistema profesional, especializado y apegado al estado de derecho, con jueces que apliquen la sana crítica con perspectiva de género e inclusión. Sus propuestas incluyen servir a la ciudadanía con honestidad e imparcialidad, velar por el respeto de los derechos de las personas, y garantizar una justicia pronta y expedita para las víctimas de delitos. Su perfil completo y CV se encuentran disponibles en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/viridiana.ricardez/
+- https://www.instagram.com/viri.ricardez/
+- https://www.youtube.com/@viridianareyes3694
+- https://www.tiktok.com/@viridiana.reyes.ricardez
+
+
+## Cursos
+
+- Diplomado de alta formación en Razonamiento Probatorio, por la Facultad de Derecho y C
+- S
+- , de la UABJO
+- ,Curso ¿Impartición de Justicia con Perspectiva de Género¿, Escuela Judicial del Consejo de la Judicatura de Oaxaca
+- ,Taller del desarrollo de habilidades en litigación oral por University  San Diego, en unión con Justice  México
+- ,Curso  de formadores en  organizado por ABA ROLI MÉXICO, y la iniciativa Mérida
+- ,1er Congreso Internacional sobre  y  organizado por  Formación Jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54665/10
+
+
+## Trayectoria Academica
+
+- Desde que obtuve mi grado de Licenciatura, he continuado con estudios de maestría, especialidades y doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi vocación de servicio. Es la posibilidad real que tengo de materializar mi anhelo de poder impartir justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que nuestro país requiere una función jurisdiccional profesional, especializada, técnica y apegada al estado de derecho, con un poder judicial integrados por personas juzgadoras que cuenten con el conocimiento y experiencia para analizar los problemas de la ciudadanía desde la sana crítica con perspectiva de género, incluyente, respetuosos de la diversidad y pluriculturalidad de nuestro País. La noble función judicial es un servicio al público para su acceso a la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión en la impartición de justicia se centra en el ideal del sistema judicial, donde la honestidad y excelencia sean el cimiento sobre el cual se construye la confianza en el poder judicial. El sistema judicial debe eliminar cualquier forma de discriminación o sesgo, asegurando que las voces de todos sean escuchadas y valoradas, sin privilegios para algunos. Logrando así que todos los procedimientos sean transparentes. Una justicia basada en rectitud, igualdad y honestidad.
+
+
+## Propuestas
+
+- Estaré al servicio de todas las personas, siempre me guiaré por la honestidad, legalidad, imparcialidad y la ética profesional en todos los asuntos.
+- Vigilaré que se respeten tus derechos para que nunca más sientas que el Poder Judicial te falla.
+- Si fuiste víctima de delito, tú voz será escuchada y cuidaré que en los procesos tengas una justicia pronta y expedita.
+

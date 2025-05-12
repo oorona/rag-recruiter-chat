@@ -1,0 +1,76 @@
+Nombre Candidato: EDILTRUDIS ALONSO BARRON
+Cargo: Juezas/es de Distrito
+Entidad: ZACATECAS
+Sexo: MUJER
+Telefono: 4924511357
+Correo Electronico: ediltrudisbarron@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho del Trabajo, Derechos Humanos, Especialización., Género, Huelgas, IMSS, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Pensiones, Procesal Administrativo, Procesal Civil, Procesal Mercantil, Protección de Datos, Reforma Laboral, Seguridad Social, Sindicatos, Transparencia
+Tags Propósito: Acceso a la justicia., Agilización juicios, Alimentación, Asesoría legal, Capacitación judicial, Conciliación, Corrupción, Defensoría pública, Derechos humanos, Derechos laborales, Digitalización, Educación, Justicia accesible, Negligencia, Perspectiva de género, Protección infancia, Realidad social, Salud, Transparencia, Violencia de género, Vivienda, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Ediltrudis Alonso Barron es candidata a Jueza/és de Distrito en Zacatecas, postulándose desde En Funciones. Cuenta con Maestría en Derecho, especializándose en Derecho del Trabajo y Justicia Laboral, Civil y Administrativo, y posee cédula profesional. Su trayectoria académica y cursos recibidos se centran en derecho laboral, seguridad social, transparencia, derechos humanos y perspectiva de género.
+
+La motivación de la candidata para buscar el cargo público es proteger los derechos de trabajadores y beneficiarios, promoviendo un acceso a la justicia sencillo, pronto y accesible. Su visión de la función jurisdiccional y la impartición de justicia se basa en agilizar trámites, simplificar procedimientos, acercar la justicia a la población, fomentar la conciliación, y juzgar con perspectiva de género y atendiendo a la realidad social. Sus propuestas incluyen fortalecer la asesoría legal, ampliar la protección a víctimas de violencia, sancionar la corrupción, digitalizar procesos, priorizar la conciliación y garantizar la transparencia en el sistema judicial.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15uJkucmkL/
+- https://www.instagram.com/ediltrudisalonso?igsh=enA2NnZtMXpkZmti
+- https://www.tiktok.com/@edil.barron?_t=ZM-8v5plrFAZct&_r=1
+
+
+## Cursos
+
+- Destrezas para la Conducción y Decisión en Audiencias
+- Transparencia, Acceso a la Información Pública y Protección Datos,Curso de Especialización sobre la Reforma en Materia de Justicia Laboral y Especialidad en Seguridad Social (IMSS),Actualización sobre la Reforma en Justicia Laboral, Seguridad Social (IMSS), Procesal Civil, Mercantil y Administrativo
+- ,Cursos para Generar Espacios Libres de Violencia, Juzgar con Perspectiva de Género y Protección de Derechos Humanos
+- ,Cursos sobre derecho del trabajo individual y colectivo (sindicatos y huelgas), seguridad social, pensiones y prestacion
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52413/11
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestria en Derecho, Especialidad en Derecho del Trabajo y Justicia Laboral, Civil y Administrativo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para protejer los derechos de los trabajadores y sus beneficiarios, hacer una justicia accesible, sencilla y pronta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser más agil el trámite de los juicios, hacer sencillos los procedimientos, usando un lenguaje claro y entendible por quien acude al juicio, debe acercarse la justicia a la población (tribunales y asesores legales que acudan a los poblados para que no se trasladen a solicitar justicia). Debe existir la conciliación de las partes, como alternativa de solución de la controversia, es una medida más agil de resolución, lo que implica escuchar a las partes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe agilizarse el trámite de los juicios, para tener una resolución pronta, en la que se vean los problemas sociales y se juzgue con perspectiva de género, protegiendo los derechos de los más vulnerables y se atienda a la realidad social; debiendo acerca la justicia al pueblo, donde no hay tribunales, para que la justicia sea accesible a toda la población y preveer mecanismos de protección de los derechos, como medidas para la protección de la salud, educación, vivienda, alimentación y otros.
+
+
+## Propuestas
+
+- Las partes sean escuchadas directamente por el juez, fortalecer la asesoria legal y defensoría pública para quienes no pueden pagar abogados; establecer normas para ampliar la protección a víctimas de violencia, especialmente mujeres e infancia, así como regular medidas para la protección de los derechos y facilitar el acceso a los servicios de salud, alimentación, vivienda y educación.
+- Aplicar sanciones efectivas a jueces y funcionarios que incurran en corrupción o negligencia. Actualizar constantemente a jueces y ministerios públicos en nuevas leyes y derechos humanos y promover una cultura judicial con perspectiva de género y derechos humanos, y juzgar apegados a los principios de realidad y en las audiencias esté presente el juzgador para que atienda las necesidades de quienes acuden a pedir justicia.
+- Publicar sentencias de manera accesible, digitalizar procesos judiciales para agilizar trámites y reducir rezagos, además de implementar herramientas de análisis de casos, buscando optimizar el tiempo de tramite de los mismos. Dar prioridad a la conciliación de los asuntos, cuando sean conciliables, como alternativa de solución de las controversias. La justicia debe ser transparente y que el pueblo tenga acceso a los servicios de impartición de justicia.
+

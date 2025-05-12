@@ -1,0 +1,77 @@
+Nombre Candidato: EDUARDO TORRES CARRILLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: etorresc2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Ciencias Jurídicas, Derechos Humanos, Especialización Judicial, Género, I.J.F., Igualdad, Juez Constitucional, Licenciatura en Derecho, Reformas Constitucionales, Sistema Acusatorio, Suprema Corte de Justicia, Universidad Autónoma de Nuevo León., Violencia
+Tags Propósito: Acceso a la Justicia, Austeridad., Capacitación Judicial, Certeza Jurídica, Contrapesos, Estado de Derecho, Experiencia Jurisdiccional, Imparcialidad, Independencia Judicial, Justicia, Objetividad, Paz Social, Poder Judicial, Profesionalismo, Sensibilidad Social, Transparencia
+
+
+## Descripción del Candidato 
+
+EDUARDO TORRES CARRILLO es candidato a Magistratura de Tribunales Colegiados de Circuito en Nuevo León, postulándose en la función de En Funciones. Es Licenciado en Derecho y Ciencias Jurídicas por la Universidad Autónoma de Nuevo León, con estudios concluidos, y cuenta con especializaciones judiciales, incluyendo cursos en el Instituto de Especialización Judicial de la Suprema Corte de Justicia de la Nación y en Estados Unidos, con enfoque en temas constitucionales, derechos humanos y perspectiva de género. 
+
+Su motivación para buscar el cargo es continuar sirviendo a la ciudadanía en la impartición de justicia.  Su visión de la función jurisdiccional enfatiza la importancia de magistrados y jueces con experiencia para generar certeza jurídica y paz social.  Propone la capacitación constante de los magistrados y jueces federales, un acercamiento a usuarios y población en general, y la transparencia y austeridad en el ejercicio del cargo.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Especialización Judicial en el Instituto de Especialización Judicial de la Suprema Corte de Justicia de la Nación,Función del Juez Constitucional en el Sistema Acusatorio Experiencias Compartidas, Departamento de Justicia EE
+- UU
+- ,Impacto de las Reformas Constitucionales de Amparo y Derechos Humanos en la labor Jurisdiccional
+- I
+- J
+- F
+- ,Curso Género como Herramienta de Igualdad,Curso para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55284/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Ciencias Jurídicas, Facultad de Derecho y Ciencias Sociales, Universidad Autónoma de Nuevo León
+
+
+## Motivo para buscar el Cargo Publico
+
+Tener la oportunidad de seguir sirviendo a la ciudadanía en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Poder Judicial de la Federación, como contrapeso de los otros poderes de la Unión, debe contar con magistrados y jueces federales con vasta experiencia en la función jurisdiccional para tener los conocimientos y herramientas para resolver y pacificar los conflictos, generando certeza jurídica y de esa manera contribuir a la paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar que los tribunales federales sean instituciones sólidas y confiables que garanticen el estado de derecho, mediante el acceso a la justicia independiente, objetiva, profesional e imparcial, para lo cual debe contar con magistrados y jueces federales no solo con experiencia en la labor judicial, sino también sensibles a los problemas sociales.
+
+
+## Propuestas
+
+- Capacitación constante de los magistrados y jueces federales.
+- Acercamiento no sólo con los usuarios del sistema judicial, sino también con la población en general.
+- Seguir trabajando con transparencia y austeridad.
+

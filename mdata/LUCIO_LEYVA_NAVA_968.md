@@ -1,0 +1,76 @@
+Nombre Candidato: LUCIO LEYVA NAVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 7441801010
+Correo Electronico: leyvalucio20@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Congreso Nacional, Curso de Especialización, Derecho de Amparo, Diplomados., Formación Jurídica, Juicios Orales, Justicia Federal, Justicia Social, Justicia para Adolescentes, Materias Jurídicas, Perspectiva de Género
+Tags Propósito: Accesibilidad, Administración de justicia, Conciliación, Control interno, Convivencia social, Corrupción, Derechos humanos, Discapacidad, Eficiencia, Gratuidad, Imparcialidad, Impartición de justicia, Impunidad, Justicia pronta, Justicia social, LGBTIQ+, Ley de Amparo, Mediación, México, Oralidad, Poblaciones marginadas, Pobreza, Pueblos indígenas, Rendición de cuentas, Seguimiento de sentencias, Sistema judicial., Supervisión interna, Transformación social, Transparencia, Violencia de género
+
+
+## Descripción del Candidato 
+
+Lucio Leyva Nava es candidato a Magistrado de Tribunales Colegiados de Circuito en Guerrero, postulando en funciones. Cuenta con formación de Doctorado y una trayectoria académica centrada en el Derecho de Amparo y la justicia social, evidenciado en sus múltiples maestrías y diplomados. Su motivación para buscar el cargo es continuar su labor en la transformación social del país, basándose en su experiencia y compromiso con México.
+
+Su visión de la función jurisdiccional enfatiza la imparcialidad, eficiencia y protección de los derechos humanos, buscando una justicia accesible y gratuita para todos. Sus propuestas incluyen facilitar el acceso a la justicia para poblaciones marginadas, agilizar los procesos a través de la mediación y la oralidad, y fortalecer la transparencia y rendición de cuentas en el sistema judicial a través de mecanismos de supervisión y seguimiento público de sentencias.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/p/Lucio-Leyva-Nava-61567702663414/
+- https://x.com/lucioleyvanava
+- https://www.instagram.com/lucioleyvanava
+- https://youtube.com/@lucioleyvanava?si=BokF0gCZCHIqm7Gb
+- https://www.tiktok.com/@lucioleyvanava
+- https://whatsapp.com/channel/0029VbAL2ju2v1IktKaVNC46
+
+
+## Cursos
+
+- Maestría en Derecho de Amparo,Maestría en juicios orales civiles y mercantiles,Diplomados en Juicio de Amparo en Materia Penal y Civil,Congreso Nacional para Juzgar con Perspectiva de Género,Curso de Especialización en Justicia Federal para Adolescentes
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54262/10
+
+
+## Trayectoria Academica
+
+- Formación en Derecho de Amparo y demás materias para impartir justicia social con calidad a nuestro país
+
+
+## Motivo para buscar el Cargo Publico
+
+Seguir en el cargo para continuar con la transformación social del país por medio de mi experiencia y amor a México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional en México tiene como visión fundamental la administración de justicia, la cual debe caracterizarse por su imparcialidad, eficiencia y compromiso con la protección de los derechos humanos y la promoción de la justicia social, permitiendo una convivencia social justa y equitativa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe ser gratuita, imparcial, eficaz y accesible para todas las personas, evitar la corrupción, la impunidad y la desconfianza. La sociedad merece una justicia de calidad y transparente, garantizando un sistema judicial más equitativo e inclusivo, buscando que todos encuentren reparación y justicia efectiva.
+
+
+## Propuestas
+
+- ACCESO DE JUSTICIA PARA TODOS: Proponer programas para que la justicia llegue a poblaciones marginadas, como pueblos indígenas, personas en situación de pobreza, mujeres víctimas de violencia, personas con discapacidad, comunidad LGBTIQ+ y demás minorías vulnerables.
+- JUSTICIA PRONTA Y EXPEDITA: Promover reformas a la Ley de Amparo para que se reglamente la mediación y la conciliación como alternativas a la litigación y así resolver conflictos de forma más rápida. Así como, implementar en determinados asuntos la oralidad en el juicio de amparo.
+- PROMOCIÓN DE LA TRANSPARENCIA Y RENDICIÓN DE CUENTAS: Proponer mecanismos más efectivos de supervisión y control interno que permitan a los ciudadanos conocer el desempeño de los jueces y magistrados, así como la fiscalización del sistema judicial. La implementación de un sistema público de seguimiento de sentencias y resoluciones ayudaría a mejorar la confianza de la sociedad en la justicia.
+

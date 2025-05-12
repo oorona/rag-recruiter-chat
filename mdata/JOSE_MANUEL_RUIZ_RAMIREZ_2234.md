@@ -1,0 +1,76 @@
+Nombre Candidato: JOSE MANUEL RUIZ RAMIREZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: josemruizramirez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: CIDE, España, Estado de Derecho, UCL, Univ. Mancha, Univ. del Claustro de Sor Juana., democracia, derecho, derechos fundamentales, derechos humanos, docencia, género, inclusión, justicia constitucional, maestría en derecho, multiculturalismo, sexualidad
+Tags Propósito: acceso a la justicia, celeridad, certeza, claridad, contexto social, derechos laborales, dignidad, discriminación, eficacia, empatía, explotación, igualdad, justicia laboral, justicia real., justicia sustantiva, lenguaje claro, no burocracia, oportunidad, protección al trabajador, resolución de conflictos, sentido común, transformación social, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+José Manuel Ruiz Ramírez es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho, complementada con especializaciones en justicia constitucional, derechos fundamentales y temas de género y derechos humanos. Su trayectoria académica incluye estudios en el CIDE y la UCL (Reino Unido).
+
+Ruiz Ramírez motiva su candidatura en el deseo de acercar la justicia laboral a quienes más la necesitan, con un enfoque en ética, eficacia y sentido común. Su visión se centra en una función jurisdiccional que conecte el derecho con la realidad, priorizando la claridad, la cercanía y la justicia sustantiva, así como en una impartición de justicia ágil, clara y empática. Sus principales propuestas incluyen impulsar una justicia laboral accesible y libre de discriminación, ofrecer resoluciones oportunas y con impacto real, y juzgar con claridad y entendimiento de la realidad de los trabajadores.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.josemanuelruiz.mx
+
+
+## Redes Sociales
+
+- https://www.x.com/@Gellert_G
+- https://www.instagram.com/ruizramirez_juez
+- https://www.tiktok.com/@ruizramirez_juez
+
+
+## Cursos
+
+- Especialidad en justicia constitucional y tutela de derechos fundamentales (2024), Univ
+- Mancha, España
+- ,Diplomado en Género, Sexualidad y Derecho (120 h, 2015), impartido por el CIDE con enfoque en derechos e inclusión,Diplomado en derechos humanos: multiculturalismo, Estado de Derecho y democracia, Univ
+- del Claustro de Sor Juana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54385/11
+
+
+## Trayectoria Academica
+
+- Soy maestro en Derecho por UCL (Reino Unido) y licenciado por el CIDE; enfocado en justicia, derechos humanos y docencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero acercar la justicia laboral a quienes más la necesitan, con ética, eficacia, claridad y sentido común.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser un puente entre el derecho y la vida real. Quiero que se ejerza con claridad, cercanía y justicia sustantiva. Resolver no es solo aplicar normas, sino entender contextos, proteger derechos y garantizar decisiones justas que transformen vidas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una justicia laboral ágil, clara y empática, que escuche a quien más lo necesita y actúe con firmeza frente a la desigualdad. Impartir justicia no debe ser un trámite técnico y burocráatico, sino una herramienta poderosa para proteger la dignidad y la estabilidad de las y los trabajadores.
+
+
+## Propuestas
+
+- Justicia que refleje igualdad real. Impulsar una justicia laboral accesible, rápida y efectiva, que actúe con cero tolerancia frente a la discriminación o explotación. Las resoluciones deben garantizar respeto, dignidad y condiciones justas para todas las personas, especialmente para quienes históricamente han sido excluidas o vulneradas.
+- Decisiones con impacto y oportunidad. La justicia no puede ser solo un trámite. Debe responder con determinación a los conflictos laborales, brindando soluciones claras a quienes enfrentan inestabilidad. Resolver con oportunidad es hacerlo de forma expedita y permitir que las personas continúen sus vidas y proyectos con certeza, sin miedo ni indefensión.
+- Juzgar con claridad y sentido común. Acercar la justicia a la realidad de quienes trabajan, con lenguaje claro, procesos comprensibles y sin tecnicismos. Las decisiones deben estar arraigadas en la cercanía hacia la persona, en el contexto social y ser herramientas de transformación que resuelvan los problemas reales de la gente, no ejercicios burocráticos ni distantes.
+

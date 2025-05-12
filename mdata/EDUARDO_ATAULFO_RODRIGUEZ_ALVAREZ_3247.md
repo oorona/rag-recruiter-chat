@@ -1,0 +1,77 @@
+Nombre Candidato: EDUARDO ATAULFO RODRIGUEZ ALVAREZ
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8332366205
+Correo Electronico: eduardoataulfo@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación, Carrera Judicial., Escuela Federal de Formación Judicial, Igualdad de Género, Instituto de la Judicatura Federal, Juez Federal, Juicio de Amparo, Poder Judicial de la Federación, UAT, Universidad de Alicante
+Tags Propósito: Acceso a la justicia, Derechos ciudadanos, Eficiencia judicial, Enfoque social, Formalismos judiciales, Funcionalidad, Jueces cercanos, Justicia social, Participación ciudadana, Política de puertas abiertas, Preparación judicial, Protección de derechos., Sentencias comprensibles, Simplificación legal, Transparencia judicial
+
+
+## Descripción del Candidato 
+
+EDUARDO ATAULFO RODRIGUEZ ALVAREZ es candidato a Jueces/es de Distrito en Tamaulipas, postulándose para ejercer las funciones del cargo. Cuenta con Maestría en el juicio de amparo y desde 2021 se desempeña como Juez Federal de Carrera.  
+
+Su motivación para buscar el cargo público se basa en su experiencia y conocimiento para defender los derechos de las personas frente a la arbitrariedad. Propone acercar la función jurisdiccional al pueblo, facilitando el acceso y la comprensión de las sentencias, así como priorizar los problemas de las personas sobre los formalismos legales.  Además, busca implementar una política de puertas abiertas para que los justiciables puedan exponer directamente sus argumentos y aboga por una mejor preparación de los jueces para entender los problemas sociales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16PV9nZEAa/?mibextid=wwXIfr
+- https://www.instagram.com/_eduardoataulfo?igsh=M2Nnank4dW5zNmN1&utm_source=qr
+- https://www.tiktok.com/@eduardo.ataulfo.r?_t=ZM-8v2Ox8V15Py&_r=1
+
+
+## Cursos
+
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación (2007)
+- ,Maestría en juicio de amparo impartido por la Escuela Federal de Formación Judicial (2016)
+- ,Diplomado en argumentación impartido por la universidad de Alicante, España (2017),Diálogos para la Instrumentación de la Nueva Ley de Amparo del Instituto de la Judicatura Federal
+- ,Género Como Herramienta para la Igualdad, en la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54915/11
+
+
+## Trayectoria Academica
+
+- Egresado de la UAT, con Maestría en el juicio de amparo
+- Juez Federal de Carrera desde 2021
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo el conocimiento y la experiencia para defender y hacer valer los derechos del pueblo frente a las arbitrariedades.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función del juzgador debe cambiar para acercarse al pueblo, pues no basta entender la ley y aplicarla, sino que en nuestra nueva realidad social, es necesario que las personas conozcan quienes juzgan sus asuntos y tengan la oportunidad de decirnos a los jueces frente a frente las causas por las que consideran que la razón y el derecho están de su parte, así como que en las sentencias que se dicten en sus asuntos sean entendibles y no se necesite a ningún abogado para comprenderlas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser entendida desde un enfoque social, beneficiando los resultados sobre las formas. Niguna persona debe esperar años para que, al final, se le diga que por un detalle técnico, debe comenzar nuevamente el juicio. Impartir la justicia con este enfoque social, implica que el juzgador entienda al pueblo, sus problemas y sus necesidades; que forme parte de la sociedad. Si un juzgador es ajeno a la realidad social, sus sentencias jamás podrán ser justas.
+
+
+## Propuestas
+
+- Favorecer, en todo momento, los problemas de las personas sobre los formalismos judiciales. Para ello el juzgador deberá vigilar de cerca todos los procesos que se llevan en su juzgado a fin de orientarlos y cuidar que se respeten los derechos de las personas, para evitar que se dicten sentencias injustas.
+- Política de puertas abiertas. Todo justiciable deberá tener la oportunidad de que quien los juzga escuche de viva voz su versión del problema y las razones por las que estima que debe dictarse una sentencia en su favor.
+- Jueces mejor preparados para entender los problemas sometidos a su conocimiento, con la finalidad de que puedan aplicar la justicia desde un enfoque social y funcional.
+

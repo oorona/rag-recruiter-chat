@@ -1,0 +1,76 @@
+Nombre Candidato: LII YIO PEREZ ZARATE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9512044693
+Correo Electronico: liiperezzarate@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Justicia, Adolescentes, Derecho, Derecho Familiar, Derecho Internacional, Derecho Procesal Penal, Derechos de la Infancia, Educación Especial, Educación., Justicia Penal, Lengua de Señas Mexicana, Relaciones Internacionales
+Tags Propósito: Accesibilidad, Cercanía, Discriminación, Escucha, Humanidad, Justicia, Puertas Abiertas, Realidad Social., Reclamo Social
+
+
+## Descripción del Candidato 
+
+LII YIO PEREZ ZARATE es candidata a las Magistraturas de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado concluidos y posee una formación académica en Derecho y Educación Especial, complementada con maestrías en Derecho Procesal Penal y A; Educativa. Ha realizado cursos en áreas como Derecho Internacional, Justicia Penal para Adolescentes y Derechos de la Infancia, así como en Lengua de Señas Mexicana.
+
+Su motivación para buscar el cargo se centra en impartir una justicia accesible, cercana y humana, con un enfoque en la sensibilidad al reclamo social, especialmente hacia grupos históricamente discriminados. Sus propuestas principales se articulan en torno a la accesibilidad, cercanía y humanidad de la justicia, adaptándola a las necesidades individuales y promoviendo la escucha permanente a la sociedad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/LiiYioPerezZarate
+- https://twitter.com/lii_yio?s=21
+- https://www.instagram.com/liiyio?igsh=dHc1eDl5bnMxcjlw&utm_source=qr
+- https://www.tiktok.com/@lii_yio?is_from_webapp=1&sender_device=pc
+- https://www.threads.net/@liiyio
+
+
+## Cursos
+
+- Derecho Internacional y Relaciones Internacionales,Justicia Penal para Adolescentes,Especialidad en Derecho Familiar,Los Derechos de la Infancia y el Acceso a la Justicia,Lengua de Señas Mexicana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54067/10
+
+
+## Trayectoria Academica
+
+- Licenciaturas en Derecho y en Educación Especial, área intelectual; Maestrías en Derecho Procesal Penal y A
+- Educativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir una justicia accesible, cercana y humana
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La labor jurisdiccional debe ser de puertas abiertas, escuchando e informando al Pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Sensible al reclamo social, con especial atención a los grupos históricamente discriminados.
+
+
+## Propuestas
+
+- Justicia Accesible: Adecuada a cada persona.
+- Justicia Cercana: Con escucha permanente.
+- Justicia Humana: Sensible a la realidad social.
+

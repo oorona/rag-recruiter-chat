@@ -1,0 +1,79 @@
+Nombre Candidato: RODOLFO PARRA FERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5620089113
+Correo Electronico: rodoparracandidato@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Asesores Jurídicos Federales, Capacitación, Comercio Exterior, Defensoría Pública, Derecho, Derecho Administrativo, Diplomado, Investigación Educativa, Justicia Administrativa, Licenciatura, Maestría, Procedimiento Contencioso Administrativo, Seminario., Tributario
+Tags Propósito: Carta Magna, accesibilidad, audiencias virtuales, derechos humanos, digitalización, eficiencia, humanismo, imparcialidad, innovación, justicia, justicia popular., leyes, paridad de género, procuración de justicia, sistema judicial, tecnología, transparencia
+
+
+## Descripción del Candidato 
+
+Rodolfo Parra Fernandez es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Investigación Educativa, Derecho y una Licenciatura en Derecho, además de diversos cursos de especialización en áreas como el amparo, justicia administrativa y derecho fiscal.
+
+Su motivación para el cargo público se centra en el servicio a la ciudadanía con un enfoque humanista y la promoción de la paridad de género. Propone modernizar el Poder Judicial mediante la implementación de tecnologías digitales para agilizar la gestión de casos, establecer sistemas de audiencias virtuales y transformar los aparatos de justicia en instancias populares, buscando así una impartición más pronta, expedita y accesible de la justicia, especialmente en materia de Derechos Humanos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Rodolfo Parra
+- https://x.com/Rodolfo Parra
+- https://instagram.com/Rodolfo Parra
+- https://tiktok.com/Rodolfo Parra
+
+
+## Cursos
+
+- Curso de Capacitación y Actualización de Asesores Jurídicos Federales
+- Instituto Federal de Defensoría Pública del PJF,Diplomado en Amparo
+- Casas de la Cultura Jurídica del PJF,Especialización en Justicia Administrativa
+- Tribunal Federal de Justicia Fiscal y Administrativa,Seminario de Actualización de Interpretación de la Ley Federal de Procedimiento Contencioso Administrativo,Aspectos Tributarios en la Legislación de Comercio Exterior
+- TFJFA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54638/10
+
+
+## Trayectoria Academica
+
+- Maestría en Investigación Educativa
+- Maestría en Derecho Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir al pueblo, con un sentido humanista, en donde permeé la paridad de género.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Quiero que en México, los juzgadores apliquen de manera pronta y expedita el derecho constitucional a los justiciables. Para ello, implementar mecanismos basados en la tecnología informática, que ayude de manera razonable a instrumentar medidas de protección a los derechos humanos. Es decir, el renovar al Poder Judicial, sin duda necesita de personas humanistas que instruyan operaciones jurídicas basadas en los avances de la tecnología y las herramientas mas avanzadas en la actualidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quiero que en México, se procure e imparta una verdadera justicia, velando en todo momento al cumplimiento de nuestras leyes, y de nuestra Carta Magna. y; con ello, responder al rezago de justicia en materia de Derechos Humanos, respetando en todo momento al pueblo que más necesita ser escuchado en los tribunales.
+
+
+## Propuestas
+
+- Hacer de los aparatos de justicia de nuestro país, verdaderas instancias populares para procurar e impartir justicia en México.
+- La implementación de tecnologías digitales avanzadas, para agilizar la gestión de casos y mejorar la eficiencia del sistema judicial. Por ejemplo, se podrían digitalizar, organizar y clasificar automáticamente los casos que llevan los juzgadores, lo que permitiría a éstos y demás funcionarios centrarse en las tareas sustantivas.
+- Establecer un sistema de audiencias virtuales. Lo cual sería más accesibles y seguras, reduciendo los tiempos de espera y mejorando la transparencia.
+

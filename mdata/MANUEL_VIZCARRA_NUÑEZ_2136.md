@@ -1,0 +1,76 @@
+Nombre Candidato: MANUEL VIZCARRA NUÑEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5534338049
+Correo Electronico: mavinu_31@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: 15 años carrera judicial., 20 años experiencia, Carrera judicial, Derecho de las telecomunicaciones, Elaboración sentencias, Formación judicial, Justicia laboral, Licenciatura en derecho, Maestría, Reformas fiscales, Secretarios Poder Judicial
+Tags Propósito: acceso a la justicia, arbitrariedad, compromiso, derechos ciudadanos., humanismo, imparcialidad, justicia, legalidad, pueblo, seguridad, sentencias, sociedad, soluciones, tranquilidad, ética
+
+
+## Descripción del Candidato 
+
+Manuel Vizcarra Núñez es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría concluida y 20 años de experiencia en la profesión jurídica, de los cuales más de 15 han sido en la carrera judicial. Su formación incluye cursos sobre temas como elaboración de sentencias, derecho de las telecomunicaciones y reformas en materia de justicia laboral.
+
+Vizcarra Núñez motiva su candidatura con el deseo de “regresar la justicia a las manos del pueblo”, proponiendo sentencias que resuelvan los problemas de fondo, prioricen un enfoque humanista y rompan las barreras que impiden una justicia real. Su visión se centra en un compromiso ético con el cargo, la atención a las necesidades de la sociedad y la prioridad de la seguridad y tranquilidad ciudadana por encima de formalismos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/MANUELVIZCARRANUÑEZ
+- https://www.x.com/MANUELVIZCARRANUÑEZ
+- https://www.instagram.com/MANUELVIZCARRANUÑEZ
+- https://www.youtube.com/MANUELVIZCARRANUÑEZ
+- https://www.tiktok.com/MANUELVIZCARRANUÑEZ
+- https://www.threads.com/MANUELVIZCARRANUÑEZ
+
+
+## Cursos
+
+- Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Ciclo Escolar 2013,Ciclo de Conferencias Cómo Elaborar Mejores Sentencias,Conferencia Sobre Reformas Fiscales,Diplomado Derecho de las Telecomunicaciones,Jornada de Sensibilización Sobre la Reforma en Materia de Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55533/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho con especialidad y maestría; tengo 20 años en esta profesión y más de 15 años de carrera judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero regresar la justicia a las manos del pueblo y otorgar verdaderas soluciones con las sentencias que se dicten
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe tener compromiso y ética con el cargo que el pueblo nos encomienda, para hacer una labor real en el proceso de justicia y así se pueda cubrir a la sociedad de las arbitrariedades que cometen las autoridades
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se deben realizar sentencias que otorguen una solución real al problema del ciudadano, dejan fuera formalismos y otorgando un humanismo comprometido que escuche y atienda realmente las necesidades de la sociedad
+
+
+## Propuestas
+
+- Sentencias de fondo que solucionen en su totalidad y de manera definitiva los problemas de la sociedad
+- Dejar a un lado la legalidad y ser más humanos, abriendo las puertas de par en par a los ciudadanos, para que se sientan realmente escuchados por el impartidor de justicia
+- Romper todas las barreras que obstruyen la posibilidad de otorgar una justicia real, pasando de ser únicamente cuidadores de la constitución a veladores de la seguridad y tranquilidad de los ciudadanos
+

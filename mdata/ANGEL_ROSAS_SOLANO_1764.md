@@ -1,0 +1,80 @@
+Nombre Candidato: ANGEL ROSAS SOLANO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2281247037
+Correo Electronico: angelrosassolano@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Colegio de Veracruz, Instituto Universitario Puebla, Universidad Autónoma de Veracruz, Universidad de Xalapa, administración de justicia, ciencias políticas, criminología, derecho, doctorado, formación académica, maestría, postgrado., psicología jurídica, sistema adversarial, sistema anticorrupción, sistema penal acusatorio
+Tags Propósito: administración de justicia, agilidad, bondad, cercanía, colapso judicial, corrupción, dinamismo, eficiencia, generosidad, involucramiento ciudadano., justicia, magistrado, modernización, país, prontitud, sistema judicial mexicano, transparencia
+
+
+## Descripción del Candidato 
+
+ÁNGEL ROSAS SOLANO es candidato a Magistrado de Tribunales Colegiados de Circuito en Veracruz, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con un alto nivel de escolaridad, incluyendo un doctorado en Derecho, y ha cursado cuatro maestrías en áreas relacionadas con el derecho, la administración de justicia, el sistema penal y la lucha contra la corrupción. Actualmente, estudia la licenciatura en Ciencias Políticas.
+
+Su motivación para el cargo es servir a México con integridad. Visualiza una función jurisdiccional basada en la bondad y la generosidad, y propone una impartición de justicia dinámica, transparente y cercana a la gente. Sus principales propuestas incluyen agilizar los procedimientos judiciales, erradicar la corrupción en el sistema, y fomentar la cercanía entre los juzgadores y los ciudadanos involucrados en los casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/angel.rosassolano/?locale=es_LA
+- https://www.instagram.com/angelrosassolano?igsh=MTk4bDg2eHNpbGtyYg==
+- https://www.youtube.com/channel/UCwq03-CNousbXbinYLUNHHA
+- https://www.tiktok.com/@www.tiktok.comangelrosas
+
+
+## Cursos
+
+- Realizó la maestría en psicología jurídica y criminología en el Instituto Universitario Puebla, campus Xalapa
+- ,Estudió la maestría en administración de justicia en la Universidad Autónoma de Veracruz Villa Rica sita en Boca del R
+- ,Llevó a cabo la maestría en sistema penal acusatorio y adversarial, por la Universidad de Xalapa
+- ,Cursó la maestría en sistema anticorrupción, por el Colegio de Veracruz
+- ,Obtuvo el grado de doctor en derecho por el Instituto de Investigaciones Jurídicas de la Universidad Veracruzana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55143/10
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho; realizó 4 maestrías y un doctorado
+- Actualmente, cursa la licenciatura en ciencias políticas
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser magistrado de circuito para servir a mi país con amor, buena fe y entrega absoluta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Durante toda mi vida tanto personal como profesional, he sido un convencido de que en todas las actividades [ya sean oficios o profesiones] es menester una entrega seria pero, sobre todo, hace falta gente que tenga bondad y generosidad porque muchos problemas de la patria y del mundo, derivan de la ambición y el egoísmo desmedidos. En este nuevo comienzo de la administración de justicia en México, confío en que ninguno desaprovechemos la oportunidad de hacer bien las cosas en beneficio de todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema de impartición de justicia llegó a un colapso no deseado por nadie, porque la generalidad asumió que la justicia era lenta, corrupta, anquilosada y alejada de la sociedad. Entonces, la enseñanza del punto de inflexión que ahora se vive, lleva a concluir que la gente quiere una justicia dinámica, transparente, modernizada y cercana a las personas; no hay lugar para concluir de otra manera; bajo el riesgo de que este nuevo esfuerzo fracase, pero no debemos dar lugar a ello.
+
+
+## Propuestas
+
+- La justicia debe ser pronta porque la que llega tarde ya no es justicia. Tiene que encontrarse la manera de que los procedimientos sean ágiles, de manera que la gente vea resueltos sus conflictos sin que pasen meses o años como ha sucedido hasta ahora pese a todos los intentos por abatir los tiempos de substanciación de los mismos.
+- Algo que es obligado proscribir, desterrar o desaparecer, es la corrupción del sistema judicial. Porque este vicio, más que ningún otro, ha sido el que desprestigió al sistema judicial en México. En el entendimiento de que corregir tal vicio involucra a todos los involucrados en el sistema de administración de justicia... desde policías, peritos, actuarios, secretarios, jueces y magistrados, hasta los propios directamente interesados.
+- La cercanía de los juzgadores con la gente, es importante para que se cambie la impresión negativa que se tiene de los mismos. En esta nueva etapa, verdaderamente, debe haber una cercanía permanente entre los jueces y los involucrados en los asuntos, es decir, los directamente interesados. Ello a fin de trabajar   para hacer funcionar el nuevo sistema judicial mexicano.
+

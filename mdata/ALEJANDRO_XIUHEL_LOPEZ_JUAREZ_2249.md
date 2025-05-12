@@ -1,0 +1,78 @@
+Nombre Candidato: ALEJANDRO XIUHEL LOPEZ JUAREZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5550398700
+Correo Electronico: xiuhueldual@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación jurídica, Derechos humanos, Diplomado., España, Especialidad, Género, Igualdad, Litigación, Posgrado, Sistema penal acusatorio, UNAM, Universidad Tepantlato, Universidad de Girona
+Tags Propósito: Acceso a la justicia, Capacitación, Celeridad, Competencias, Derechos humanos, Estado de derecho, Función judicial, Justicia, Litigio, Mediación, Profesionalización, Resolución de conflictos., Seguridad jurídica, Transparencia, Validación
+
+
+## Descripción del Candidato 
+
+Alejandro Xiuhel López Juárez es candidato a Jueces/as de Distrito en la Ciudad de México, postulando al Poder Judicial de la Federación. Cuenta con maestría y cédula profesional, complementada con formación en temas como el sistema penal acusatorio, derechos humanos, argumentación jurídica y perspectiva de género.
+
+Su motivación para el cargo se centra en aportar sus competencias para la mejora y profesionalización de la impartición de justicia. Su visión se basa en un compromiso vocacional con el acceso a la justicia, la capacitación constante y el respeto a los derechos humanos. Propone mejorar la capacitación de los funcionarios, transparentar la función judicial permitiendo acceso a las audiencias y fomentar la celeridad en el despacho de los asuntos, promoviendo la mediación como herramienta de resolución.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alejandro.lop.94
+- https://www.instagram.com/@alejandro.lop.94
+- https://www.tiktok.com/@alejandrolop6
+
+
+## Cursos
+
+- Diplomado en sistema penal acusatorio y derechos humanos
+- ,Taller de litigación del diplomado en sistema penal acusatorio y derechos humanos
+- ,Sistema penal acusatorio
+- Situación actual
+- ,Género como herramienta para la igualdad
+- ,Argumentación jurídica
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54163/11
+
+
+## Trayectoria Academica
+
+- Licenciatura UNAM, posgrado Universidad Tepantlato, especialidad Universidad de Girona, España
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con las competencias para la mejora y profesionalización en la impartición de justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es una labor que requiere de compromiso y vocación que demanda tiempo y esfuerzo, la cual debe encontrar como única guía el acceso a la justicia que la sociedad históricamente ha demandado; por ello, es indispensable que quien ostente un cargo público judicial, cuente con las competencias y valores necesarios que permitan alcanzarla, en aras de dotar a los gobernados de seguridad jurídica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es una actividad de tiempo completo que demanda capacitación constante de quienes la tienen a su cargo, en grado total que su compromiso e intereses obedezcan únicamente a la satisfacción de justicia con respeto irrestricto a los derechos humanos, para mantener alejado cualquier interés externo que pudiera corromperla, pues solo de esta manera es posible sostener un auténtico estado democrático de derecho.
+
+
+## Propuestas
+
+- Capacitación de calidad para los funcionarios, pues solo de esta manera se encontrarán en posibilidad de dirimir las controversias de las personas con estricto apego a la ley y respeto a los derechos humanos.
+- Transparentar la función judicial. Permitir el libre acceso de las personas a las salas de audiencia y su difusión a través de medios masivos de comunicación, pues ello generará cercanía a los gobernados con los funcionarios en su quehacer diario, ya que podrán conocer de primera mano los asuntos que resultan de su interés, aun cuando no sean partes contendientes en el litigio, lo que a su vez evita que se sesgue la información.
+- Mayor celeridad en el despacho de los asuntos y fomentar la mediación. De esta manera se busca que en breve tiempo las personas encuentren respuesta al problema jurídico a que se encuentran sometidos y participen activamente en su solución a través de propuestas que, una vez sometidas a la validación del órgano jurisdiccional, den respuesta justa a sus pretensiones.
+

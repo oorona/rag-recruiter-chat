@@ -1,0 +1,78 @@
+Nombre Candidato: EDGAR EDUARDO QUEZADA JARAMILLO
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5573879812
+Correo Electronico: quezadajaramilloeduardo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Análisis Político, CIDE, Constitucional, Derecho, Diplomado., Elecciones, Gobernanza Electoral, Justicia Electoral, Licenciatura, Maestría, TEPJF, UACH, UANL, UNAM
+Tags Propósito: Administración de elecciones, Análisis político., Calidad electoral, Capacitación, Carrera electoral, Certeza jurídica, Confianza, Constitución, Derechos políticos, Digitalización, Elecciones íntegras, Empatía, Equidad, Estabilidad democrática, Estado de derecho, Igualdad, Innovación, Inteligencia artificial, Justicia, Justicia electoral, Megalópolis, Mejores prácticas internacionales, Naturaleza humana, Observatorio electoral, Paz social, Rendición de cuentas, Simplicidad
+
+
+## Descripción del Candidato 
+
+Edgar Eduardo Quezada Jaramillo es candidato a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con Maestría en Derecho y cédula profesional, habiendo cursado diplomados en análisis político estratégico, justicia electoral y elecciones. Su trayectoria académica incluye la Licenciatura en Derecho por la Universidad Autónoma de Chihuahua y la Maestría en Constitucional y Gobernabilidad por la Universidad Autónoma de Nuevo León.
+
+El candidato expresa su motivación por simplificar la justicia y mejorar la certeza jurídica. Su visión de la función jurisdiccional se centra en la protección de la Constitución, la estabilidad democrática, la paz social, la empatía y la cercanía con la ciudadanía. Sus propuestas incluyen la creación de un observatorio de derecho electoral digital, el impulso de una carrera electoral integral y la creación de un foro internacional para el intercambio de mejores prácticas en elecciones en megalópolis.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jaramzada?locale=es_LA
+- https://x.com/EduQuezadaJ
+- https://www.instagram.com/eduardoquezadaj/profilecard/?igsh=MWR1aXE1MzZ5MGhwaw==
+- https://www.tiktok.com/@eduardo.quezada.j?_t=ZM-8v19j7zZEc1&_r=1
+
+
+## Cursos
+
+- Diplomado en Análisis Político Estratégico
+- Centro de Investigación y Docencia Económicas
+- CIDE,Especialidad en Justicia Electoral por el Tribunal Electoral del Poder Judicial de la Federación
+- TEPJF,Diplomado en Elecciones, representación política y gobernanza electoral
+- Instituto de Investigaciones Jurídicas IIJ UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17520/9
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la Universidad Autónoma de Chihuahua y Maestría en Constitucional y Gobernabilidad UANL
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy convencido que la justicia necesita mayor certeza y simplicidad. Menos sobrerregulación y tecnicismos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como magistrados debemos cuidar la Constitución, así como procurar la estabilidad democrática y paz social. Es importante comprender la naturaleza humana no solo de las personas juzgadas sino de la propia ley. El arte de juzgar debe ir acompañado de innovación ante casos únicos, de empatía y cercanía con la gente, así como de mantenerse fiel a sus necesidades. No es podemos hablar de igualdad si se observan privilegios, inequidad en la aplicación de la ley y una burbuja donde sólo habita el juez
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia electoral debe basarse en 3 pilares: Ser humana. Brindar certeza, garantizar elecciones integras y maximizar los derechos políticos y electorales, velando por su progresividad. Ser cercana. Atender al entorno al que se dirige desde la confianza y pertenencia social con ejercicios de rendición de cuentas. Ser digital. México ha sido punta de lanza en incorporar reglas y modelos electorales innovadores, no podemos perder la oportunidad de transitar a una era democrática más accesible
+
+
+## Propuestas
+
+- Formar un observatorio de derecho electoral digital y uso de inteligencia artificial en elecciones. Las autoridades electorales de manera conjunta con universidades y think tanks deben promover laboratorios de innovación tecnológica a fin de acelerar una agenda de innovación y eficiencia electoral
+- Impulsar una carrera electoral integral que permita formar cuadros de profesionales capacitados en 4 ejes: judicial, mejores prácticas internacionales, administración de elecciones, y análisis político
+- Desde la Ciudad de México, y como corresponsables de las elecciones de la ciudad más grande del país, impulsar un foro permanente internacional de intercambio de mejores prácticas, análisis de riesgos y resultados sobre calidad y confianza en la gestión de elecciones, estado de derecho y justicia electoral de las megalópolis
+

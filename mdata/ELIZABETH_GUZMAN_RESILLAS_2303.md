@@ -1,0 +1,79 @@
+Nombre Candidato: ELIZABETH GUZMAN RESILLAS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5568673770
+Correo Electronico: eli.guzman.resillas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación Intercultural, Defensa Penal, Derecho, Especialidad, Formación Judicial, Juicio Oral, Justicia para Adolescentes, Licenciatura., Maestría, Población Indígena, Proceso Penal Acusatorio
+Tags Propósito: accesibilidad, adulto mayor, confianza ciudadana, derechos animales, derechos humanos, dignidad, discapacidad, eficiencia judicial, empatía, equilibrio social, grupos vulnerables, herramientas tecnológicas, imparcialidad, interés superior, justicia humanista, justicia penal, lenguaje claro, paz social, personas desaparecidas, protección de víctimas, reparación del daño., transparencia, violencia de género, ética
+
+
+## Descripción del Candidato 
+
+Elizabeth Guzmán Resillas es candidata a Jueza de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con maestría en Juicio Oral y Proceso Penal Acusatorio, además de dos especialidades en temas de justicia, incluyendo justicia para adolescentes y defensa penal. Su trayectoria académica y profesional se centra en el ámbito del derecho y el sistema judicial.
+
+Su motivación para buscar el cargo público se basa en garantizar una justicia humanista, proteger los derechos de los grupos vulnerables y combatir la corrupción. Sus propuestas principales incluyen la humanización de la función judicial, la creación de un sistema judicial accesible, transparente y libre de burocracia, y un enfoque en la reparación del daño a las víctimas, con especial atención a mujeres, niños, personas con discapacidad y animales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573559740227
+- https://x.com/eliguzmanre?s=21&t=zVsfybU9hfAdpoS5ARGN6A
+- https://www.instagram.com/elizabeth_guzman_resillas/profilecard/?igsh=NnBwNGk4ODB2YXgw
+- https://www.tiktok.com/@eli.guzmanresillas?_t=ZM-8v4wA199rMr&_r=1
+- https://www.linkedin.com/in/eli-gr-7499531a6/
+
+
+## Cursos
+
+- Curso de Formación para Aspirantes al Cargo de Jueza o Juez, 2024
+- ,Especialidad en Justicia para Adolescentes
+- ,Maestría en Juicio Oral y Proceso Penal Acusatorio
+- ,Taller de capacitación para la atención intercultural de la población indígena de la Ciudad de México
+- ,Especialidad en Defensa Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53527/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, maestra en Juicio Oral y Proceso Penal Acusatorio, con dos especialidades
+
+
+## Motivo para buscar el Cargo Publico
+
+Garantizar justicia con un enfoque humanista, proteger tus derechos y defender a los grupos más vulnerables con ética.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los juzgadores deben ser cercanos a las personas, con una visión humanista y social. Como jueza, mi compromiso es garantizar que cada persona reciba un trato justo e igualitario, sin importar su origen, situación económica, personal o social. Los juicios se deben resolver de forma objetiva en cada caso, considerando las particularidades de las partes involucradas, especialmente las de los grupos más vulnerables. La justicia debe ser accesible para todos, sin distinción y libre de corrupción.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe fortalecer la construcción de la paz, ser reflejo de los valores fundamentales que nos unen como sociedad. Las personas juzgadores debemos actuar libres de corrupción y con una visión humanista. Un sistema judicial que resuelva sin dilaciones, ni formalismos, en un lenguaje sencillo y claro. La justicia debe ser un medio para proteger los derechos de quienes más lo necesitan, accesible, transparente y que busque restaurar el equilibrio social, basada en la confianza ciudadanía.
+
+
+## Propuestas
+
+- Humanizar la función judicial: La justicia debe ser cercana, empática y respetuosa de las partes. Es necesario que los jueces comprendan las realidades sociales de quienes enfrentan un juicio. La humanización del sistema judicial contribuiría a que las personas se sientan escuchadas y tratadas con dignidad. Este enfoque permitiría decisiones más justas y equilibradas, especialmente cuando se trata de grupos vulnerables que enfrentan desventajas sociales.
+- El sistema judicial debe ser accesible, transparente y libre de barreras burocráticas. Preocupado en resolver el fondo del conflicto, alejado de formalidades y tecnisismos, permitir que los ciudadanos puedan entender lo qué sucede en sus juicios. Favorecer el uso de herramientas tecnológicas para mejorar la eficiencia y eficacia de los Juzgados. Una justicia basada en la protección de los derechos humanos, interés superior y que proteja a las mujeres víctimas de violencia así como adulto mayor.
+- Un sistema de justicia penal que tenga en el centro a la víctima y su reparación del daño. Una Justicia que no invisibilice los derechos de las mujeres, las niñas, niños y adolescentes. Juzgadores que garanticen a las personas con discapacidad el pleno reconocimiento de su personalidad jurídica, que mire de forma sensible los casos de personas desaparecidas y que proteja a sus familias de forma inmediata. Juzgadores que tengan en cuenta los derechos de los animales sintientes.
+

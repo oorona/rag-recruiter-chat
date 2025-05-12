@@ -1,0 +1,75 @@
+Nombre Candidato: BARTOLO GARCIA CORDOVA
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9371234917
+Correo Electronico: logasadespacho@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Internacional, Derecho Procesal, Docencia, Instructor., Juicio de Amparo, Licenciatura en Derecho, Maestría en Litigación, Profesor, Suprema Corte de Justicia
+Tags Propósito: Confianza, Conflictos, Constitución, Derechos humanos, Dilaciones procesales, Equidad, Estado garantista, Honestidad, Imparcialidad, Independencia judicial, Justicia, Normas jurídicas, Seguridad jurídica, Solución de controversias, Tratados Internacionales, Vocación de servicio.
+
+
+## Descripción del Candidato 
+
+Bartolo Garcia Cordova es candidato a Juez/a de Distrito en Tabasco, postulándose para el Poder Judicial de la Federación. Cuenta con maestría en Litigación y Derecho Procesal, además de un diplomado en Juicio de Amparo de la Suprema Corte de Justicia de la Nación. Su trayectoria incluye experiencia como Licenciado en Derecho y Asuntos Internacionales e instructor/profesor docente.
+
+Su motivación para el cargo es contribuir a un sistema de justicia equitativo e imparcial. Sus propuestas se centran en garantizar una impartición de justicia imparcial y eficiente, el respeto a los derechos humanos en los procesos, y fortalecer la independencia de los jueces. Busca una institución judicial cercana a la gente, fundamentada en la honestidad y correcta interpretación de las leyes.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/bartts.garco
+- https://x.com/BartoloGar21318
+- https://www.youtube.com/@logasalogasa 4867
+- https://www.tiktok.com/@.b.g.c1
+
+
+## Cursos
+
+- DIPLOMADO EN JUICIO DE AMPARO EDICIÓN 2023 SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53578/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO Y ASUNTOS INTERNACIONALES, MAESTRÍA EN LITIGACIÓN Y DERECHO PROCESAL,INSTR
+- Y PROFESOR DOCENTE
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir con el sistema de impartición de justicia, para que sea equitativo e imparcial y generar confianza.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una Institución cercana a la gente, cuyo funcionamiento se base en los principios de honestidad y honradez con una correcta interpretación las normas jurídicas que regulan nuestros actos como sociedad, solucionar de manera eficaz los conflictos que pudieran generarse entre los ciudadanos y el Estado, garantizando la seguridad jurídica de los mismos, así como la protección de sus bienes y derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un impartidor de justicia con decisiones justas, imparciales y sustentadas en las leyes, con vocación de servicio y sentido de pertenencia evitando actos deshonestos, vigilando en todo momento el irrestricto respeto a los derechos humanos, a nuestra Constitución Política de los Estados Unidos Mexicanos, de las leyes que de ella emanen y de los Tratados Internacionales de los que México sea parte.
+
+
+## Propuestas
+
+- Que la impartición de justicia sea imparcial, equitativa y justa, así como evitar dilaciones procesales en el ámbito de competencia y jurisdicción.
+- Que durante los actos procesales se privilegie el respeto a los derechos humanos de los gobernados y el estado sea garantista sobre todos sus bienes y derechos.
+- Que los impartidores de justicia tengan el espíritu de servicio y de justicia, se optimice la impartición de justicia con mecanismos de solución de controversias y se fortalezca la independencia de los jueces.
+

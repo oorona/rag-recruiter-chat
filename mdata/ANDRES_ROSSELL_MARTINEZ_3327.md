@@ -1,0 +1,80 @@
+Nombre Candidato: ANDRES ROSSELL MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: andres_rossell@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Competencia Constitucional, Crimonología, Derecho Procesal Penal, Formación Judicial, Función Jurisdiccional, Igualdad de Género, Licenciatura en Derecho, Maestría en Derecho., Poder Judicial de la Federación, Violencia
+Tags Propósito: Autonomía Judicial, Debido Proceso, Derechos Fundamentales, Estado de Derecho, Fiscalía, Imparcialidad, Independencia Judicial, Justicia, Modernización, Procuración de Justicia., Reforma Integral, Reparación del Daño, Sistema de Justicia, Tecnología, Víctimas
+
+
+## Descripción del Candidato 
+
+Andrés Rossell Martínez es candidato a Juez/a de Distrito en Veracruz, postulándose para el Poder Judicial de la Federación. Cuenta con más de 20 años de experiencia en el campo de la impartición de justicia y posee estudios de Maestría en Derecho Procesal Penal y Criminología, así como en Competencia Constitucional y Ordinaria. Ha completado diversos cursos de formación en áreas como igualdad de género, prevención de violencia y función jurisdiccional.
+
+Su motivación para el cargo se basa en su trayectoria profesional y conocimiento del funcionamiento de un juzgado. Su visión de la función jurisdiccional se centra en la protección de los derechos fundamentales, la modernización y eficiencia, y el respeto al Estado de Derecho. Sus propuestas principales incluyen fortalecer la independencia judicial, modernizar el sistema de justicia mediante tecnologías de la información y llevar a cabo una reforma integral del sistema de justicia en México, incluyendo la revisión del sistema de procuración de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BgD9krMSQ/?mibextid=wwXIfr
+- https://x.com/andrsrossell3?s=11&t=6Q9mE6kgL_WpEHsD6dEXTQ
+- https://www.instagram.com/abogadoandresrossell?igsh=MTR1Z3l0N2RpNHJjYw3D3D&utm_source=qr
+
+
+## Cursos
+
+- Curso Género como Herramienta para la Igualdad, Segunda Edición
+- Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia   I Escuela Federal de Formación Judicial
+- ,Diplomado en Introducción a la Función Jurisdiccional Escuela Judicial del Instituto de la Judicatura Federal
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54940/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Mtro
+- en Derecho Procesal Penal y Crimonología, Mtro
+- en Competencia Constitucional y Ordinaria
+
+
+## Motivo para buscar el Cargo Publico
+
+Más de 20 años trabajando en el campo de impartición de justicia me respaldan. Conozco bien la operación de un Juzgado.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe orientarse a la protección de los derechos fundamentales de las personas; además requiere ser moderna y eficiente. Además, tiene que garantizar el Estado de Derecho y el respeto a la ley. El juzgador, por ende, debe tener vocación de servicio y ser cercano a la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar el debido proceso, proteger a las víctimas y asegurar la reparación del daño. Debe realizarse con un amplio conocimiento del derecho y siempre al amparo de los principios de imparcialidad e independencia judicial previstos en la Constitución Política de los Estados Unidos Mexicanos.
+
+
+## Propuestas
+
+- Fortalecer la independencia judicial: Para ello resulta fundamental garantizar la autonomía del Poder Judicial para que pueda tomar decisiones sin influencias políticas o sociales.
+- Modernizar el sistema de justicia: Lo que se puede lograr con la implementación de tecnologías de la información, lo que agilizaría los procesos judiciales y mejoraría la accesibilidad a la justicia.
+- Reforma integral del sistema de Justicia: Es necesario realizar una reforma intgral que aborde los problemas estructurales del sistema de justicia en México. Esto incluye la revisión y la reforma del sistema de procuración de justicia, a cargo de la Fiscalía General de Justicia y de las Fiscalías de las entidades federativas.
+

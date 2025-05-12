@@ -1,0 +1,80 @@
+Nombre Candidato: JOSE RAMIREZ SALCEDO
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: joseramsal1c@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Análisis Político, Derecho, Derecho Electoral, Dirección Internacional, Doctorado, Gestión Educativa, ITAM, NMSU, Política Educativa, Resolución de Disputas, TEPJF., U de G, UIA
+Tags Propósito: Acceso a la justicia, Comunicación, Cultura democrática, Cultura y artes., Democracia, Digitalización, Educación jurisdiccional, Equidad, Federalismo, Imparcialidad, Justicia electoral, Legalidad electoral, Lenguaje claro, Profesionalismo, Protección de derechos, Rendición de cuentas, Resolución de conflictos, Sensibilidad, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Ramirez Salcedo es candidato a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con estudios de Maestría y actualmente cursa un Doctorado, además de diversas especializaciones y diplomados en áreas como política, gestión educativa y resolución de disputas. Su trayectoria académica incluye el título de Abogado.
+
+El candidato motiva su búsqueda del cargo en el deseo de contribuir al fortalecimiento de una justicia electoral democrática, federalista, imparcial, abierta e incluyente. Su visión de la función jurisdiccional se centra en la ética, la imparcialidad, la legalidad electoral y el fortalecimiento de la cultura democrática. Sus propuestas incluyen la educación y actualización permanente de los integrantes de la judicatura, la profundización de la claridad y digitalización de los servicios jurisdiccionales, y una comunicación clara y transparente de las acciones y resoluciones de los órganos jurisdiccionales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jose.ramirezsalcedo.9/
+- https://x.com/joseramsal
+- http://instagram.com/joseramsalcuu
+- https://www.tiktok.com/@joseramsal4.
+- https://bsky.app/profile/joseramsal.bsky.social
+
+
+## Cursos
+
+- Especialidad en Política y Gestión Educativa
+- ,Diplomado en Análisis Político
+- UIA
+- ,Diplomado en Resolución de Disputas Internacionales
+- NMSU
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17547/9
+
+
+## Trayectoria Academica
+
+- Abogado, U de G, Maestría en Dirección Internacional, ITAM, Maestro en Derecho Elctoral, EJE del TEPJF
+- Cursa Doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir al fortalecimiento de una justicia electoral democrática, federalista, imparcial, abierta e incluyente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional electoral en México es el pilar fundamental de la democracia que garantiza la legalidad, transparencia y equidad de los procesos electorales. Sobre las bases de: La ética, la imparcialidad y la autonomía. La legalidad electoral. El fortalecimiento de la cultura democrática. La transparencia y la rendición de cuentas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia hace posible la convivencia y el desarrollo social armónico, es el proceso mediante el cual el Estado, a través de sus órganos jurisdiccionales, resuelve conflictos y controversias, mediante la aplicación de las leyes y normas vigentes para garantizar los derechos de las personas. Implica: El acceso a la justicia. La resolución de conflictos. La aplicación de la ley. La protección de derechos. El cumplimiento de las resoluciones judiciales.
+
+
+## Propuestas
+
+- Educar y actualizar de manera permanente a los integrantes de la judicatura y a las personas que integran los órganos jurisdiccionales, así como a la ciudadanía respecto de su sus derechos y obligaciones en materia jurisdiccional La cultura y las artes enfocadas a este propósito dan magníficos resultados.
+- Profundizar la claridad y simplificación de los procesos y la digitalización de los servicios jurisdiccionales mediante el aprovechamiento de los avances tecnológicos, cuando resulte posible, a la vez que propiciar una relación de mejor calidad y mayor calidez en el trato personal.
+- Comunicar en lenguaje sencillo y claro, a la vez que sobrio y correcto, las acciones y resoluciones de los órganos jurisdiccionales, por todas las vías disponibles, así como tener gran sensibilidad y profesionalismo ante las inquietudes y expectativas manifestadas por los partidos políticos, las instituciones y la ciudadanía, organizada o a título individual.
+

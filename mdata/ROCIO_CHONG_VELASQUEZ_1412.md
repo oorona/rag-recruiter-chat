@@ -1,0 +1,81 @@
+Nombre Candidato: ROCIO CHONG VELASQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9511002921
+Correo Electronico: rocio.chong.v@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adolescencia, Derecho Judicial, Derecho Procesal Constitucional, Juicio de amparo, Licenciatura en Derecho, Maestría en Derecho, Niñez, PJO., Perspectiva de Género, Psicología Forense, Razonamiento Probatorio, UABJO, Universita Degli Studi di Perugia
+Tags Propósito: Acceso a la Justicia, Contexto Social, Datos Sensibles., Derechos Humanos, Desigualdad, Formación Jurídica, Igualdad, Imparcialidad, Justicia, Justicia Cercana, Justicia Indígena, Paz Social, Pluralismo Jurídico, Publicidad, Regiones, Resolución Ciudadana, Resolución de Conflictos, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+ROCIO CHONG VELASQUEZ es candidata a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho, incluyendo una especialización en Derecho Judicial en Italia, y cédula profesional. Su formación se complementa con diplomados en áreas como juicio de amparo, psicología forense, razonamiento probatorio, perspectiva de género y derecho procesal constitucional.
+
+Su motivación para buscar el cargo es la oportunidad de proteger los derechos de las personas, y su visión de la función jurisdiccional se centra en la administración correcta de justicia para promover, respetar, proteger y garantizar los derechos humanos. Sus propuestas incluyen el fortalecimiento de la justicia indígena, la máxima publicidad y transparencia del actuar de los juzgadores, y la creación de presencia de juzgados y tribunales en las 8 regiones de Oaxaca.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/rociochongv
+- https://www.x.com/rociochongv
+- https://www.instagram.com/rociochongv/
+- https://www.tiktok.com/@rociochongv
+
+
+## Cursos
+
+- Diplomado en Juicio de amparo
+- ,Diplomado en Psicología Forense especializada en Niñas, Niños y Adolescentes
+- ,Diplomado en Razonamiento Probatorio
+- ,Diplomado en Perspectiva de Género
+- ,Diplomado en Derecho Procesal Constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53069/10
+
+
+## Trayectoria Academica
+
+- Lic
+- y Mtra
+- En Derecho por la UABJO
+- Maestría en Derecho Judicial por la Universita Degli Studi di Perugia Italia y PJO
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser juzgadora me brinda la oportunidad de proteger los derechos de todas las personas, tengo la formación para lograrlo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Juzgar es una noble y difícil labor, debemos tener presente que las decisiones que tomamos afectan personas, familias y comunidades. Administrar justicia correctamente permite promover, respectar, proteger y garantizar los derechos de los seres humanos, así también brinda la seguridad que cuando se violan estos derechos se sanciona al culpable y se reparan los daños a víctimas, logrando una solución pacífica del problema, evitando la venganza privada y fortalece la paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para poder dar a cada persona lo que le corresponde, es necesario conocer la realidad que vivimos los Oaxaqueños, tener presente las desigualdades que existe entre los seres humanos, por ende la justicia tiene que ser sensible, humana, sencilla, igualitaria e imparcial, para lograrlo es necesario escuchar las necesidades de las personas y conocer el contexto social que se vive en cada región.
+
+
+## Propuestas
+
+- FORTALECIMIENTO de la justicia indígena. Reconociendo el pluralismo jurídico en nuestro Estado, lo cual implica un dialogo permanente entre autoridades indígenas y autoridades del Estado, para garantizar el respecto de los derechos de grupos vulnerables como mujeres, infancia, etc. formación desde las aulas sobre las diversas formas de administrar justicia.
+- MÁXIMA publicidad y transparencia del actuar de juzgadores. Explicación de resoluciones de trascendencia social en lenguaje ciudadano, cuidando la reserva de identidad de intervinientes y protección de datos sensibles, las cuales podrán ser transmitida por los medios de comunicación disponibles, privilegiando el uso de nuevas tecnologías.
+- JUSTICIA cercana a la sociedad. Para ello los juzgados y Tribunales deben tener presencia en las 8 regiones del Estado y no concentrarse en la capital del Estado.
+

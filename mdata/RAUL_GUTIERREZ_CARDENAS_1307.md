@@ -1,0 +1,80 @@
+Nombre Candidato: RAUL GUTIERREZ CARDENAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: raulgutierrezcardenas@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Cédule Profesional, Derecho Constitucional, Derecho Procesal Penal, Especialidad, Formación, Instituto de Ciencias Jurídicas de Nayarit, Licenciatura, Maestría, Mención Honorífica., PJF, Preparación, Razonamiento Probatorio, Sistemas de Justicia, Título en trámite, Universidad Autónoma de Nayarit, Universidad Panamericana, Universidad de Girona
+Tags Propósito: Acceso a la justicia., Bien común, Brevedad, Cercanía, Ciudadanía, Confianza, Derecho sustancial, Derechos, Empatía, Fondo del problema, Formalidad, Justicia, Lenguaje claro, Liderazgo, Poder Judicial, Protección, Publicidad, Resolución de conflictos, Servicio público, Transparencia
+
+
+## Descripción del Candidato 
+
+Raúl Gutierrez Cardenas es candidato a Magistrado de Tribunales Colegiados de Circuito, postulado por el Poder Ejecutivo Federal para el estado de Nayarit. Cuenta con una formación académica que incluye la Maestría en Derecho Procesal Penal Acusatorio y estudios de especialización en Derecho Constitucional y Amparo, así como un Máster en Sistemas de Justicia y Racionalidad (en trámite). Su trayectoria profesional se sustenta en el ámbito legal, siendo Licenciado en Derecho por la Universidad Autónoma de Nayarit.
+
+Motivado por el deseo de aplicar su experiencia en el servicio público, su visión de la función jurisdiccional se centra en la mejora continua de la sociedad a través de la resolución de problemas y la protección de los derechos de las partes. Sus propuestas principales incluyen el acercamiento del Poder Judicial a la sociedad, la simplificación del lenguaje en las resoluciones judiciales y la emisión de sentencias que resuelvan el fondo de los conflictos, priorizando la justicia sustantiva sobre la formalidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/raulgtzca
+- https://x.com/rraulgutierrez
+- https://www.instagram.com/raul_gtzc
+- https://www.youtube.com/@raulgutierrez7213
+- https://www.tiktok.com/@raulgutierrezcar
+
+
+## Cursos
+
+- Maestría en Derecho Procesal Penal Acusatorio, Instituto de Ciencias Jurídicas de Nayarit
+- Cédula profesional 13592767
+- ,Máster en Sistemas de Justicia y Racionalidad, Universidad de Girona, España (Título en trámite)
+- ,Especialidad en Derecho Constitucional y Amparo, Universidad Panamericana, 2009, Mención Honorífica (sin cédula)
+- ,Curso Básico de Formación y Preparación de Secretarios del PJF, Estudios de Especialidad (Cédula profesional 12365387)
+- ,Curso de Especialización: Bases del Razonamiento Probatorio, impartido por la Universidad de Girona, España (sin cédula)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53452/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Nayarit (Cédula profesional 5047994)
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero usar mi experiencia en derecho y el servicio público para ejercer un liderazgo transformador hacia el bien común.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Realizar la función jurisdiccional lleva implícito un compromiso con la ciudadanía y el Estado para contribuir a la mejora continua de la sociedad mediante la solución de sus problemas. Para ello, las resoluciones que se dicten deben buscar siempre la mejor forma de proteger los derechos de las partes en el litigio, siendo necesario, conocer la realidad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Jueces y magistrados deben buscar una justicia que atienda tanto a la firmeza técnica del derecho, como a la nobleza y empatía del servicio público. Debe recordarse que las leyes han sido creadas para proteger al débil del poderoso, por ello, las acciones de los aplicadores de la ley, deben elegir también su protección. No solo deben resolver conflictos, deben generar confianza en la sociedad.
+
+
+## Propuestas
+
+- Acercamiento a la sociedad. La sociedad en general no conoce cómo trabajan los juzgadores, en qué les beneficia o perjudica su trabajo, si protegen o no sus derechos. El propio Poder Judicial ha contribuido a este desconocimiento, se ha pretendido que el juez no llame la atención en sociedad, provocando que no conozcan su trabajo. La publicidad es una forma de control del poder público, debe incrementarse la publicidad del trabajo de jueces y magistrados, y aumentar la cercanía con el pueblo.
+- Brevedad, claridad y sencillez en el lenguaje de las resoluciones. Jueces y magistrados debemos esforzarnos en reducir el tamaño de todas las resoluciones, no es mejor la sentencia con mayor cantidad de argumentos , o la mayor cantidad de jurisprudencias citadas. Los razonamientos deben exponerse de forma precisa, clara y breve, evitando justificar excesivamente. Además, se debe buscar el uso de un lenguaje sencillo, que permita a las personas conocer y entender sin necesidad de ser abogado.
+- Dictar sentencias que resuelvan el fondo del problema. Los juzgadores no debemos elegir la opción más rápida o sencilla de emitir sentencia, que es, reponer el procedimiento y evitar realizar el estudio de fondo. Debe garantizarse el derecho de las personas a recibir justicia y resolver de manera efectiva el conflicto planteado, aplicando así el derecho sustancial, no privilegiando la formalidad.
+

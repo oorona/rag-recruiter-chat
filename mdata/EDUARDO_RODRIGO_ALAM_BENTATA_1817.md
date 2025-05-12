@@ -1,0 +1,74 @@
+Nombre Candidato: EDUARDO RODRIGO ALAM BENTATA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 9991277001
+Correo Electronico: eduardorodrigo.alam@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Administración Pública, Derecho Electoral, Derechos Humanos, Escuela Judicial Electoral, Juzgado, Maestro, Mediación, Negociación, Poder Judicial de la Federación, Políticas Públicas, Suprema Corte, Tribunal, UNAM.
+Tags Propósito: Accesibilidad, Capacitación, Combate a la corrupción, Combate a la impunidad, Confianza ciudadana, Derechos humanos, Equidad, Estado de derecho, Impartición de justicia, Inclusión, Independencia judicial, Justicia de puertas abiertas, Justicia pronta, Lenguaje claro, Modernización tecnológica, Paz social, Perspectiva de género, Rendición de cuentas, Sentencias claras., Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+EDUARDO RODRIGO ALAM BENTATA es candidato a una Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en YUCATÁN. Cuenta con maestría en Administración Pública y Políticas Públicas, así como diversos diplomados en áreas como mediación, derecho electoral y derechos humanos. Su motivación para buscar el cargo se centra en la importancia de la impartición de justicia para una sociedad democrática.
+
+Su visión se enfoca en consolidar la función jurisdiccional federal como garante de justicia pronta, imparcial, accesible y respetuosa de los derechos humanos, con énfasis en la transparencia y la confianza ciudadana. Propone una "Justicia de Puertas Abiertas", una "Justicia Transparente" mediante la publicación de reportes semanales de actividades y una "Justicia Accesible" que promueva sentencias redactadas en lenguaje claro y una perspectiva de género e inclusión.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/LaloAlamB
+- https://www.instagram.com/lalo_alam/
+- https://www.tiktok.com/@laloalamb
+
+
+## Cursos
+
+- Diplomado en Mediación y Negociación: Impartido por el Centro de Estudios Mexicanos y Centroamericanos de la UNAM,Diplomado en Derecho electoral: por la Escuela Judicial Electoral del Poder Judicial de la Federación,Diplomado, La Suprema Corte y los Derechos Humanos: impartido por la Suprema Corte de Justicia de la Nación,Constancia, Examen de aptitud para acceder a la categoría de Secretario de Tribunal de Circuito o Juzgado de Distrito,Diplomado Sistema de medios de impugnación electorales
+- Escuela Judicial Electoral del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52244/10
+
+
+## Trayectoria Academica
+
+- Abogado, Maestro en Administración Pública y Políticas Públicas, con diplomas en Derechos Humanos, Negociación, etc
+
+
+## Motivo para buscar el Cargo Publico
+
+La impartición de justicia es un pilar fundamental de nuestra sociedad democrática. Atenderla es hacer patria.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional federal en México debe consolidarse como garante de justicia pronta, imparcial y accesible, fortalecida por la independencia judicial, la transparencia y el respeto a los derechos humanos, contribuyendo al Estado de derecho, la paz social y la confianza ciudadana en las instituciones federales de justicia. Esta función implica además de un alto honor, la responsabilidad de entender el entorno y el contexto social que impera en nuestro país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe proyectarse como pilar fundamental del Estado de derecho, comprometida con una justicia pronta, completa, imparcial, transparente y accesible. Su visión debe centrarse en garantizar los derechos humanos, fortalecer la confianza ciudadana, combatir la impunidad y la corrupción, así como modernizarse mediante el uso de tecnologías. Todo ello con plena independencia y responsabilidad, al servicio de una sociedad más justa, equitativa y en paz.
+
+
+## Propuestas
+
+- Justicia de puertas abiertas. Garantizar que las oficinas encargadas de la impartición de justicia permanezcan accesibles y disponibles para brindar información clara y oportuna a toda persona que la requiera. Contar con personal capacitado para atender dudas, consultas y necesidades, con especial atención a quienes, por su condición social, económica o cultural, enfrentan mayores barreras para acceder a la justicia, promoviendo así un servicio incluyente, cercano y empático.
+- Justicia transparente. Elaborar y publicar un reporte semanal de actividades que detalle en forma clara y accesible las tareas realizadas en el periodo. Este informe incluirá además los criterios jurisdiccionales más relevantes del Tribunal durante el periodo correspondiente, permitiendo a la ciudadanía conocer el quehacer judicial, fortalecer la rendición de cuentas y fomentar la confianza en la labor impartidora de justicia a través de una comunicación constante, clara y proactiva.
+- Justicia accesible. Impulsar la capacitación continua para que cada sentencia se redacte en un lenguaje claro, sencillo y ciudadano, comprensible para cualquier persona. Asimismo, formar al personal jurisdiccional para juzgar con perspectiva de género y con un enfoque inclusivo hacia personas pertenecientes a grupos en situación de vulnerabilidad o que, por sus condiciones particulares, enfrentan mayores barreras para acceder a la justicia, garantizando así un servicio más equitativo y cercano.
+

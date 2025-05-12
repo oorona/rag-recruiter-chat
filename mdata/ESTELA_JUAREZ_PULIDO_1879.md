@@ -1,0 +1,71 @@
+Nombre Candidato: ESTELA JUAREZ PULIDO
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: estelajuarezpulido@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación, Derecho, Licenciatura, Tijuana, Universidad Autónoma de Baja California
+Tags Propósito: Acceso a la justicia, Capacitación, Ciudadanía, Confianza, Constitución., Derechos humanos, Eficiencia, Expedita, Imparcialidad, Impartición de justicia, Poder judicial, Servicio público, Transparencia, Ética, Órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Estela Juarez Pulido es candidata a Jueza/es de Distrito en Baja California, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho de la Universidad Autónoma de Baja California y cédula profesional. Su motivación para buscar el cargo público es contribuir al servicio público, y su visión se centra en mejorar la impartición de justicia a través de la aplicación de principios éticos, la eficiencia y la cercanía a la población.
+
+Sus propuestas incluyen la capacitación continua del personal del Poder Judicial de la Federación, la apertura de más órganos jurisdiccionales, particularmente en Tijuana, y una mayor transparencia en las actividades del Poder Judicial para acercarlo a la ciudadanía. Se puede encontrar más información sobre su trayectoria en el enlace de su Curriculum Vitae: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53511/11 y en su perfil de Facebook: https://www.facebook.com/estelajuarezpulido.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/estelajuarezpulido
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53511/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO EN LA UNIVERSIDAD AUTONOMA DE BAJA CALIFORNIA EN LA CIUDAD DE TIJUANA, CURSOS CAPACITACION
+
+
+## Motivo para buscar el Cargo Publico
+
+CONSIDERO QUE UNA FORMA DE APORTAR A MI PAÍS Y A LA CIUDADADANÍA ES FORMAR PARTE DEL SERVICIO PÚBLICO.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+MEJORAR LA IMPARTICION DE JUSTICIA MEDIANTE LA APLICACION CONSTANTE DE LOS PRINCIPIOS ETICOS PARA CUMPLIR CON EL OBJETIVO PRINCIPAL QUE ES IMPARTIR JUSTICIA DE FORMA PRONTA Y EXPEDITA Y CERCANA A LA POBLACIÓN.
+
+
+## Vision sobre la Imparticion de Justicia
+
+IMPARTICIÓN DE JUSTICIA CERCANA A TODA LA POBLACIÓN EN FORMA EFICIENTE, IMPARCIAL Y CONFIABLE, SIEMPRE ACORDE A LOS PARAMETROS ESTABLECIDOS EN NUESTRA CONSTITUCIÓN Y EN TOTAL RESPECTO A LOS DERECHOS HUMANOS.
+
+
+## Propuestas
+
+- CAPACITACIÓN Y ACTUALIZACIÓN CONSTANTE DE TODO EL PERSONAL QUE INTEGRA EL PODER JUDICIAL DE LA FEDERACIÓN Y SOBRE TODO, INCULCAR PRINCIPIOS ÉTICOS, CON LA FINALIDAD DE OFRECER UN SERVICIO EFICIENTE Y SOBRE TODO INDEPENDIENTE E IMPARCIAL.
+- A FIN DE LOGRAR CON EL PROPÓSITO DE UNA JUSTICIA EXPEDITA SE REQUIERE LA APERTURA DE MÁS ÓRGANOS JURISDICCIONALES EN TODAS LAS MATERIAS, LOS EXISTENTES, POR LO MENOS EN LA CIUDAD DE TIJUANA, NO SON SUFICIENTES PARA SOLVENTAR LAS NECESIDADES DE LA POBLACIÓN.
+- INFORMACIÓN CONSTANTE A LA POBLACIÓN RESPECTO DEL PODER JUDICIAL DE LA FEDERACIÓN, ESTO ES, SOBRE LAS ACTIVIDADES QUE REALIZA; LA FORMA DE ACCEDER A LA IMPARTICIÓN DE JUSTICIA, ELLO CON LA FINALIDAD DE MANTENER UN PODER JUDICIAL CERCANO A LA CIUDADANÍA.
+

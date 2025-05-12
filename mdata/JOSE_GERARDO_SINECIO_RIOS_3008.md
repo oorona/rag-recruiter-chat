@@ -1,0 +1,75 @@
+Nombre Candidato: JOSE GERARDO SINECIO RIOS
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: gerardosinecior@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho de las Empresas, Educación Superior, Licenciatura, Maestría, Universidad Anáhuac
+Tags Propósito: Ambiente Laboral, Bienestar Social, Ciudadanía, Derechos, Humanidad, Justicia, Justicia Expedita, Mandato Constitucional, Paz Social, Perspectiva Ciudadana., Reforma Judicial, Respeto, Trabajadores Judiciales
+
+
+## Descripción del Candidato 
+
+Jose Gerardo Sinecio Rios es candidato a Juez/a de Distrito en Querétaro, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Licenciado y Maestría en Derecho por la Universidad Anáhuac, respaldados por su cédula profesional. Su motivación para buscar el cargo se centra en alcanzar el bienestar social a través de una impartición de justicia responsable y humana.
+
+El candidato se presenta como una perspectiva ajena a la carrera judicial tradicional, buscando incorporar la visión ciudadana en las decisiones judiciales y promover una justicia pronta y expedita. Sus propuestas incluyen garantizar la ejecución oportuna de las sentencias, el respeto hacia los trabajadores del Poder Judicial y fomentar un ambiente laboral sano y libre de violencia en su juzgado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/gerardosineciooficial?mibextid=wwXIfr&mibextid=wwXIfr
+- https://x.com/gerasin13?s=21
+- https://www.instagram.com/jgsinecio?igsh=MWlvamYydm8zbDRvdA3D3D&utm_source=qr
+- https://www.tiktok.com/@un_jerry?_t=ZM-8v6KN5AJfpH&_r=1
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55431/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Anáhuac
+- Maestría en Derecho de las Empresas por la Universidad Anáhuac
+
+
+## Motivo para buscar el Cargo Publico
+
+Pienso que el bienestar social solamente puede alcanzarse a través de una impartición de justicia responsable y humana
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Soy de los pocos candidatos que no emanamos de la carrera judicial, por lo que mi perspectiva es alimentada por la visión que comparte la ciudadanía. Y veo esta elección como la oportunidad de que cualquier abogado o abogada con conocimiento profundo de las necesidades de la población ocupe espacios que históricamente habían permanecido ajenos y lejanos a las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero al derecho como una de las herramientas más efectivas para conservar la paz en una sociedad, y por lo mismo debemos agregar la perspectiva ciudadana a las decisiones judiciales. Si bien el conocimiento jurídico es indispensable, el constante contacto directo en territorio con la población es la forma en que logramos mejores perspectivas para emitir juicios y esa es la aportación que la reforma judicial hace a la nación.
+
+
+## Propuestas
+
+- Cumplir con el mandato constitucional de justicia pronta y expedita, con la finalidad de que las sentencias se ejecuten en el menor tiempo posible.
+- Respeto total hacia los trabajadores del poder judicial. Todas y todos ellos son personas que valen mucho su entrega hace que nuestros derechos sean respetados.
+- Respeto a las relaciones entre las personas que trabajarán en mi juzgado, reconociendo su humanidad y el valioso labor que, en equipo, sirve para crear y conservar un ambiente de trabajo que sea sano y libre de violencia.
+

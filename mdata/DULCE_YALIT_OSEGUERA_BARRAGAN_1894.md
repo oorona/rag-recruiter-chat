@@ -1,0 +1,71 @@
+Nombre Candidato: DULCE YALIT OSEGUERA BARRAGAN
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6865493806
+Correo Electronico: dulceoseguera@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: 13 años experiencia., Actualización Profesional, Derecho Civil, Derecho Familiar, Derecho Mercantil, Experiencia Profesional, Litigio
+Tags Propósito: acceso a la justicia, administración de justicia, agilización administrativa., convenios internacionales, derechos fundamentales, imparcialidad, justicia, litigante, prontitud, resolución de conflictos, seguridad jurídica, ética judicial
+
+
+## Descripción del Candidato 
+
+DULCE YALIT OSEGURA BARRAGAN es candidata a Juezas/es de Distrito en Baja California, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, respaldada por 13 años de experiencia en litigio, particularmente en el área mercantil, y formación continua en Derecho Familiar, Mercantil y Civil.
+
+Su motivación para buscar el cargo público se centra en su compromiso con la ética judicial y la resolución justa de conflictos. Propone agilizar los procesos administrativos para facilitar el acceso a la justicia, aplicar convenios internacionales y derechos fundamentales, y reducir los tiempos de resolución de juicios para garantizar la prontitud en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15zHbqqJwc/?mibextid=wwXIfr
+
+
+## Cursos
+
+- DERECHO FAMILIAR,CURSO EN MATERIA ORAL MERCANTIL,CURSO DE ACTUALIZACION EN DERECHO CIVIL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54635/11
+
+
+## Trayectoria Academica
+
+- Cuento con 13 años de experiencia en el litigio en diferentes ramas del derecho y principalmente en el area Mercantil
+
+
+## Motivo para buscar el Cargo Publico
+
+Por ser enteramente comprometida en todo momento con la ética judicial y para solucionar con juticia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la administracion de justicia en todo momento de manera imparcial, publica y demas principios rectores del derecho, otorgando en todo momento la seguridad juridica a los justiciables, con el unico fin de resolver los conflictos presentados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Comprometida en todo momento con la ética judicial, orientada a la práctica de la conducta necesaria y conveniente para que se cumpla esa delicada misión de juzgar rectamente, velando para mantener una conducta imparcial ante la tramitación y resolución de conflictos judiciales que le son sometidos a la consideración judicial.
+
+
+## Propuestas
+
+- Con el conocimiento obtenido a lo largo de mi experiencia como litigante y al conocer plenamente las nececidades de los ciudadanos en el acceso a la imparticion de justicia, se propone agilizar temas administrativos y puedan ser realizados de manera agil y de facil acceso para cualquier ciudadano.
+- Aplicar en todo momento los convenios internacionales y derechos fundamentales.
+- Reducir los tiempos de resolucion de un juicio, a efecto de que se cumpla con la garantia de la prontitud.
+

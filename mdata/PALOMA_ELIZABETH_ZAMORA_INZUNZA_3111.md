@@ -1,0 +1,80 @@
+Nombre Candidato: PALOMA ELIZABETH ZAMORA INZUNZA
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: MUJER
+Telefono: 6672290441
+Correo Electronico: pezi.osa888@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Criminalística, Derecho, Derecho del Trabajo, Especialidad, Formación Judicial, IECPySP, IJF., Igualdad de Género, Justicia Laboral, Licenciatura, Seguridad Social, UAS, Violencia
+Tags Propósito: Acceso a la justicia, Autonomía, Conciliación, Derechos laborales, Digitalización, Economía, Efectividad, Eficiencia, Estado de derecho, Igualdad de género, Imparcialidad, Independencia, Justicia laboral, Justicia pronta, Medios electrónicos, Paz social, Resolución de conflictos, Simplificación, Transparencia, Órganos jurisdiccionales.
+
+
+## Descripción del Candidato 
+
+Paloma Elizabeth Zamora Inzunza es candidata a Jueza/es de Distrito en SINALOA, postulándose a través del Poder Ejecutivo Federal y Poder Legislativo Federal. Es Licenciada en Derecho y Criminalística, con especialidad en Derecho Laboral, y cuenta con formación continua del Poder Judicial de la Federación en áreas como seguridad social, género, prevención de violencia y derecho del trabajo.
+
+Zamora Inzunza basa su candidatura en su conocimiento y experiencia del sistema jurisdiccional. Su visión sobre la función jurisdiccional se centra en garantizar los derechos laborales tanto de trabajadores como empleadores con actuaciones legales, imparciales y transparentes. Sus propuestas incluyen simplificar las resoluciones judiciales, implementar herramientas electrónicas para agilizar la justicia y promover la conciliación entre las partes involucradas en los conflictos laborales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AfPuoS3Hu/
+- https://x.com/esa_paloma8?s=08
+- https://www.instagram.com/palomazamora?igsh=MWN6aGNic2lmMWk2Mw==
+- https://www.tiktok.com/@paloma.zamora.8?_t=ZM-8v6WCbc3km5&_r=1
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Seminario en Seguridad Social por la Escuela Federal de Formación Judicial
+- ,Curso Género como Herramienta para la Igualdad en la Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia en la Escuela Federal de Formación Judicial
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral por la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54771/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la UAS; y en Criminalìstica por el IECPySP de Sinaloa
+- Especialdiad en Derecho Laboral en IJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy preparada con conocimientos y experiencia basta en la materia, conozco desde adentro los organos jurisdiccionales.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como juzgadora en la materia, se debe adquirir el compromiso de garantizar los derechos laborales tanto de trabajadores como de los empleadores, ya que para ambas partes es importante obtener del órgano jurisdiccional actuaciones apegadas a la legalidad, imparciales, transparentes, autónomas e independientes a cualquier interés. Es de suma importancia el juzgador que se encarga de dirimir las controversias laborales, ya que estos vínculos son el motor de la economía de nuestra sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe desarrollarse procurando que ésta sea pronta y accesible a todas las personas, removiendo cualquier barrera de carácter física, social, económica, ideológica y de género, para efectos de mantener la paz social y el estado de derecho; debiendo además de juzgar con la perspectiva de que cada caso es particular precisamente por aquellas posibles diferencias, asimismo, se debe emitir resoluciones eficientes y efectivas, velando de manera activa por su cumplimiento.
+
+
+## Propuestas
+
+- Simplificar las resoluciones emitidas por el órgano jurisdiccional, comprendiendo dentro de éstas tanto los acuerdos de trámite como las sentencias, ello, sin dejar de fundamentar y motivar debidamente las mismas; pues esta práctica permitirá aminorar los tiempos que se dedican a la elaboraciòn de proyectos rebuscados y sobreabundantes, que incluso pueden llegar a obstaculizar de manera equitativa el acceso a la justicia.
+- Hacer de los medios electrónicos una verdadera herramienta que permita mayor agilidad, eficacia y prontitud en la impartición de justicia. Es un hecho que los medios digitales pueden simplificar tareas, traslados y prácticas que se realizan de una manera tradicional; sin hacer uso de la totalidad de los mismos por ser novedosos y poco explorados en cuanto a la legislación se refiere; sin embargo, en la medida de que éstos sean empleados, se regularán dentro de nuestro sistema de justicia.
+- Promover la conciliación entre partes. Es conocido que en la actualidad se insta a las partes a agotar una etapa conciliatoria previo a acudir a los órganos jurisdiccionales, sin embargo, el contacto posteriormente entre las partes se vuelve casi nulo como consecuencia de la fase escrita del proceso laboral, sin que medie comunicaciòn a veces incluso hasta la audiencia de juicio, por tanto, el tribunal debe ser facilitador y proactivo en la conciliaciòn como un eje rector de la justicia laboral.
+

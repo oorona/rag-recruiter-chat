@@ -1,0 +1,76 @@
+Nombre Candidato: KARLA ISABEL COLIN MAYA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: escribeme@karlacolin.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Anticorrupción, Comunicación estratégica, Cumplimiento normativo, Derechos humanos, Género, Políticas públicas, Rendición de cuentas, Suprema Corte., Transparencia, Violencia de género
+Tags Propósito: acceso a la justicia, automatización, cultura jurídica., derechos, digitalización, discapacidad, diversidad, eficiencia, honestidad, integridad, interculturalidad, justicia, justicia abierta, justicia cercana, observatorios ciudadanos, perspectiva de género, rendición de cuentas, transformación judicial, transparencia, tribunales itinerantes, ética
+
+
+## Descripción del Candidato 
+
+Karla Isabel Colin Maya es candidata a Magistratura de Tribunales Colegiados de Circuito dentro del Poder Judicial de la Federación en México. Cuenta con un doctorado y ha realizado diversos diplomados en áreas como cumplimiento normativo, transparencia, derechos humanos, violencia de género y combate a la corrupción, complementados con una maestría en comunicación estratégica y una especialidad en género y políticas públicas.
+
+Su motivación para aspirar al cargo público se centra en aplicar la ley para resolver conflictos con justicia e integridad. Propone una transformación del modelo judicial, buscando un sistema más justo, transparente y eficiente. Sus principales propuestas incluyen la implementación de una "Justicia Abierta" a través de la digitalización y lenguaje claro, una "Justicia Honesta" con mecanismos de rendición de cuentas y combate a la corrupción, y una "Justicia Cercana" que priorice la empatía, la participación ciudadana y la descentralización del acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.karlacolin.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/karlacolinmaya
+- https://x.com/karlacolinmaya
+- https://www.instagram.com/karlacolinmaya
+- https://www.youtube.com/@karlacolinm89
+- https://www.tiktok.com/@karlacolinmaya
+- https://www.threads.net/@karlacolinmaya
+
+
+## Cursos
+
+- Diplomado en Formación Integral de Oficiales de Cumplimiento Normativo, Transparencia y Anticorrupción,Diplomado en Consultoría para Centros de Trabajo Libres de Violencia de Género,Diplomado Derechos Humanos desde la Perspectiva de Género,Diplomado La Suprema Corte y los Derechos Humanos,Diplomado en Combate a la corrupción y Rendición de Cuentas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52961/10
+
+
+## Trayectoria Academica
+
+- También estudié una Maestría en Comunicación Estratégica y una Especialidad en Género, Violencia y Políticas Públicas
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero tener la oportunidad de servir a la gente aplicando la ley para resolver sus conflictos con justicia e integridad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Estar a la altura de la sociedad mexicana que exigió una transformación de la justicia. Corresponder la confianza de quienes hoy toman en sus manos la elección de personas juzgadoras con la esperanza de renovar el modelo judicial para que sea más justo, transparente y eficiente capaz de garantizar que la justicia sea un derecho para todos y no un privilegio. La voluntad popular demanda que la función jurisdiccional este a cargo de personas diferentes, de abogados(as) honestas, capaces, cercanas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia será confiable, los argumentos serán concisos y las resoluciones otorgarán certeza a las partes. Los juicios de amparo directo y los recursos que se tramitan ante los tribunales serán resueltos con excelencia dentro de los términos establecidos y con apego a la ley. Se aplicarán los protocolos para juzgar con perspectivas de género, infancias, adolescencias, interculturalidad, diversidad sexual y de género, que involucren personas migrantes y con discapacidad.
+
+
+## Propuestas
+
+- JUSTICIA ABIERTA. La información jurídica estará disponible y se redactará en lenguaje claro y entendible. Se usarán formatos sencillos y amigables para la ciudanía. Se garantizará la producción de datos estadísticos jurisdiccionales que permitan analizar los fenómenos jurídicos. Se impulsará la digitalización y la automatización de trámites. Se ampliará la cobertura del juicio en línea. Se arribará a la justicia electrónica. Así se generarán ahorros de tiempo y dinero para las y los usuarios.
+- JUSTICIA HONESTA. La rendición de cuentas será clara y el ejercicio del cargo, transparente. Se actuará con ética e integridad. Se implementará un botón de pánico para alertadores(as) de la corrupción. Se señalarán las malas prácticas institucionales como el soborno, los cobros indebidos, el nepotismo y el amiguismo. Se buscará que las y los abogados realicen su profesión sin ejercer presiones ni influyentismo. Se supervisará, evaluará y en su caso, se sancionará el desempeño de la función.
+- JUSTICIA CERCANA. Se escuchará a quienes más lo necesitan, se empatizará con sus causas y se comprenderán sus problemas. Con objetividad e imparcialidad, se aplicará la justicia de una forma más humana. Se crearán observatorios ciudadanos que incidan en el control y vigilancia de la justicia. Se organizarán tribunales itinerantes que descentralicen el acceso a la justicia. Se realizarán campañas sobre cultura jurídica para no abogados. Se abrirán las puertas y se instalarán mesas de orientación.
+

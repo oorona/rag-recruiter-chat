@@ -1,0 +1,74 @@
+Nombre Candidato: DAVID GONZALEZ MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: 4499909599
+Correo Electronico: gonzalezmartinezdavid00@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derechos Humanos, Formación Judicial, Igualdad de Género, Impartición de Justicia., Justicia Laboral, Licenciatura en Derecho, Maestría, Poder Judicial, Sistema Penal Acusatorio, Violencia
+Tags Propósito: Accesibilidad, Ciudadanía, Confianza Pública, Derechos Humanos, Empatía, Estado de Derecho, Humanización, Imparcialidad, Inteligencia Emocional, Justicia, Legitimidad, Participación Ciudadana, Poder Judicial, Resolución de Conflictos., Sentencias Claras, Simplificación, Transparencia, Trato Digno, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+David Gonzalez Martinez es candidato a Magistratura de Tribunales Colegiados de Circuito en Aguascalientes, postulándose por el Poder Judicial de la Federación. Cuenta con estudios de maestría concluidos y una trayectoria académica en Derecho con especialización y formación judicial. Motivado por un compromiso con los derechos humanos, aspira a servir a la ciudadanía con justicia y empatía, concibiendo la función jurisdiccional como fundamental para el Estado de Derecho y la promoción de la justicia social.
+
+Su propuesta central se basa en humanizar la justicia, simplificar el lenguaje de las sentencias y acercar los tribunales a la ciudadanía a través de jornadas de puertas abiertas y capacitación en trato digno. Busca un Poder Judicial accesible, empático y transparente que garantice un trato justo y respetuoso para todos, priorizando la comprensión de las necesidades individuales y la comunicación clara de las resoluciones judiciales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1UfRs3CHC6/?mibextid=wwXIfr
+- https://www.instagram.com/gonzalez.martinez.david?igsh=MWRsOTV2cGZxNDI1aQ3D3D&utm_source=qr
+- https://www.tiktok.com/@gonzalez.martinez988?_t=ZM-8v2I8OKHrhF&_r=1
+
+
+## Cursos
+
+- Especialidad en Derechos Humanos y Sistema Penal Acusatorio,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Género como Herramienta para la Igualdad
+- ,Jornada de Sensibilización Sobre la Reforma en Materia de Justicia Laboral,Curso para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53450/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, con maestría, especialidad y sólida formación judicial orientada a la impartición de justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Con firme compromiso con los derechos de las personas, aspiro a ser Magistrado para servir con justicia y empatía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como base del Estado de derecho. No solo implica resolver conflictos legales, sino también proteger derechos fundamentales y promover justicia social. Debe ejercerse con independencia, imparcialidad y cercanía a la ciudadanía. El juzgador debe ser empático, técnico y humano, consciente de que detrás de cada expediente hay una persona con una historia que merece ser escuchada y atendida con justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible, humana y eficiente. No basta con aplicar la ley: es necesario escuchar, comprender y responder a las necesidades reales de las personas. La justicia debe llegar a todos, especialmente a quienes más la necesitan. Un Poder Judicial cercano, empático y transparente fortalece la confianza social y garantiza que cada persona reciba un trato justo, digno y respetuoso.
+
+
+## Propuestas
+
+- 1. Acercamiento de los tribunales a la ciudadanía. Propongo jornadas de puertas abiertas en los tribunales para que la ciudadanía conozca su funcionamiento, así como capacitar al personal en empatía y trato digno, pues un personal bien capacitado puede brindar una experiencia más humana. Estas acciones fortalecerán la confianza pública, facilitarán el acceso a la justicia y acercarán el Poder Judicial a las personas, especialmente a quienes enfrentan mayores barreras para ejercer sus derechos.
+- 2. Humanización de la justicia. La justicia debe ser ejercida con empatía y comprensión. Propongo capacitar a jueces y servidores públicos en inteligencia emocional, comunicación efectiva y atención a personas en situación de vulnerabilidad. También planteo audiencias más participativas donde las personas sean escuchadas. La justicia no solo debe ser técnica, sino también humana, cercana y sensible a las realidades sociales de cada caso.
+- 3. Simplificación de las sentencias. Propongo que las sentencias judiciales sean más claras y accesibles, sin perder solidez jurídica. Esto implica redactar resoluciones comprensibles para la ciudadanía. Al transparentar el lenguaje y la lógica jurídica, se fortalece la legitimidad del Poder Judicial y se promueve el derecho de todas las personas a comprender las decisiones que les afectan.
+

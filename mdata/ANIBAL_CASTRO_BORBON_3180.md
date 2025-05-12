@@ -1,0 +1,76 @@
+Nombre Candidato: ANIBAL CASTRO BORBON
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6621747151
+Correo Electronico: anibalcb@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Amparo Penal, Capacitación para Juzgadores, Compromiso Social., Derecho, Derecho Penal, Diplomado, Doctorado, Especialización Judicial, Maestría, Nuevo Sistema de Justicia Penal, Procesal Penal, Trayectoria Académica
+Tags Propósito: Acceso a la justicia, Administración de justicia, Agilidad, Corrupción, Escrutinio ciudadano, Funcionalidad, Imparcialidad, Impunidad, Influyentismo, Justicia, Justiciables, Ley, Nepotismo, Poder Judicial., Rendición de cuentas, Renovación judicial, Transparencia
+
+
+## Descripción del Candidato 
+
+Aníbal Castro Borbón es candidato a Juez de Distrito en Sonora, postulándose en funciones. Cuenta con estudios de Doctorado y cédula profesional, complementados por una Maestría en Administración y Procuración de Justicia, un Diplomado en Derecho Penal y formación especializada en el Instituto de la Judicatura Federal. 
+
+Su motivación para el cargo se centra en administrar justicia con apego a la ley, combatir la impunidad y erradicar el influyentismo, nepotismo y corrupción en el Poder Judicial. Propone acercar la función jurisdiccional a la ciudadanía para garantizar una administración de justicia transparente y con rendición de cuentas, promoviendo el escrutinio social. Su trayectoria se basa en la preparación académica, compromiso social y honestidad.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Doctorado en Derecho,Maestría en Administración y Procuración de Justicia (Chihuahua, Chihuahua)
+- ,Diplomado en Derecho Penal, Procesal Penal y Amparo Penal
+- (Tijuana, Baja California)
+- ,Especialización Judicial
+- Instituto de la Judicatura Federal (Hermosillo, Sonora)
+- ,Curso Programa de Capacitación para Juzgadores del Nuevo Sistema de Justicia Penal aun no Adscritos (Ciudad de Mexico)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52512/11
+
+
+## Trayectoria Academica
+
+- Preparación académica, trayectoria honesta y compromiso social, estoy listo para seguir sirviendo a mi Pais
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez de Distrito, para administrar justicia con apego a la ley, sin tolerancia a la impunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Quiero participar en un ejercicio que va contra el influyentismo, el nepotismo y la corrupción que tanto daño ha hecho a nuestro país, y a la que el Poder Judicial, no ha sido ajeno. Quiero participar en un ejercicio con el fin de estar cercano a los justiciables. Quiero participar en un ejercicio para impartir una justicia pronta. Quiero participar para que la funciojurisdiccional
+
+
+## Vision sobre la Imparticion de Justicia
+
+Yo veo una renovación estructural para que la impartición de justicia sea funcional, mucho más ágil, expedita y esté acorde a lo que vive nuestro México, una justicia más transparente, de mayor rendición de cuentas y donde la lupa ciudadana sea factor determinante.
+
+
+## Propuestas
+
+- Participar en un ejercicio que va contra el influyentismo, el nepotismo y la corrupción que tanto daño ha hecho.
+- Acercar a la ciudadania con los Juzgadores, con el fin de transparentar la función que se realiza cotidianamente en los tribunales, y con ello garantizar una correcta administración de justicia con el escrutinio de la sociedad.
+- No proporcionó
+

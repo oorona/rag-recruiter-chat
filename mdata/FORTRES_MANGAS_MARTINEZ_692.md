@@ -1,0 +1,86 @@
+Nombre Candidato: FORTRES MANGAS MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5613014652
+Correo Electronico: fortresmangasmartinez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Justicia, Argumentación Jurídica, Derecho Constitucional, Derecho de Amparo, Derechos Humanos, Derechos de la Infancia, Diplomado, Doctorado., Instituto de la Judicatura Federal, Libertad de Expresión, Licenciatura en Derecho, Maestría, Proporcionalidad, Protección de Periodistas, Unesco, Universidad Iberoamericana, Universidad de Pompeu Fabra
+Tags Propósito: acceso a la justicia, bienestar colectivo., compromiso social, confianza ciudadana, defensoría pública federal, derechos individuales, derechos sociales, dignidad humana, eficiencia judicial, estado de derecho, imparcialidad, juicio de amparo oral, justicia constitucional, justicia incluyente, reducción de tiempos procesales, reglas procesales, sistema judicial digital, transparencia judicial, ética profesional
+
+
+## Descripción del Candidato 
+
+FORTRES MANGAS MARTINEZ es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal. Cuenta con doctorado en Derecho Constitucional y una amplia trayectoria en el ámbito judicial federal. Su motivación para buscar el cargo se basa en su experiencia y formación especializada en justicia constitucional.
+
+Su visión de la función jurisdiccional se centra en la imparcialidad, ética profesional y protección de los derechos individuales y colectivos.  Entre sus propuestas se encuentran la implementación gradual del juicio de amparo con tramitación oral, la transformación hacia un sistema de justicia federal totalmente digital y la modificación de reglas procesales para publicar proyectos de resolución con anticipación, buscando mejorar la transparencia, eficiencia y acceso a la justicia. Su perfil y propuestas detalladas se encuentran disponibles en el enlace a su Curriculum Vitae proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/FortresMangas Martinez
+- https://www.x.com/@FortresM
+- https://www.instagram.com/f_mangas_m
+- https://www.youtube.com/@fortres43
+- https://www.tiktok.com/@fortres.mangas.ma
+
+
+## Cursos
+
+- Curso Proporcionalidad e Interpretación de los Derechos Humanos
+- Los Derechos de la Infancia y el Acceso a la Justicia
+- ,DIPLOMADO EN DERECHOS HUMANOS cursado en la Universidad Iberoamericana (noviembre 2012 a junio a 2013)
+- ,DIPLOMADO EN ARGUMENTACIÓN JURÍDICA
+- Instituto de la Judicatura Federal (octubre a diciembre de 2014)
+- ,MARCO JURÍDICO INTERNACIONAL DE LA LIBERTAD DE EXPRESIÓN Y PROTECCIÓN DE PERIODISTAS
+- Unesco, Knight Center, UTX
+- ,APLICACIÓN DEL PRINCIPIO DE PROPORCIONALIDAD EN CONFLICTOS DE DH
+- Universidad de Pompeu Fabra, Barcelona, España
+- 2014
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53938/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho
+- Maestría en Derecho de Amparo
+- Doctorado en Derecho Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Por mi amplia carrera judicial federal, formación especializada y compromiso con la justicia constitucional.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función judicial como pilar esencial del Estado de derecho, cuyo ejercicio debe ser riguroso, ético e imparcial, especialmente escrupuloso en la protección de la dignidad individual y, sobre todo, colectiva. Sin caer en activismos, debe velar por un equilibrio justo y responsable entre los derechos individuales y sociales, garantizando certeza jurídica, estabilidad social y bienestar común.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la justicia se sustenta en la imparcialidad, honradez, ética profesional y profundo compromiso social. Creo firmemente en la protección efectiva de los derechos individuales como base para garantizar la dignidad humana y el respeto a las libertades, a la vez que defendiendo la plena vigencia de los derechos sociales, esenciales para alcanzar una sociedad más justa, equitativa e incluyente, donde prevalezca siempre el Estado de derecho y el bienestar colectivo.
+
+
+## Propuestas
+
+- Propongo mejorar la función judicial federal mediante la implementación gradual y efectiva del juicio de amparo con tramitación oral, fortaleciendo la transparencia, eficiencia e inmediación. Ello permitirá resolver de forma ágil y directa los conflictos constitucionales, garantizando un acceso más expedito a la justicia, mayor cercanía con las partes y la reducción significativa de tiempos procesales, fortaleciendo así la protección efectiva de los derechos fundamentales.
+- Propongo impulsar la transformación integral hacia un sistema de justicia federal totalmente digital, reduciendo significativamente gastos operativos y administrativos. El ahorro presupuestal obtenido podrá destinarse directamente al fortalecimiento de la Defensoría Pública Federal, permitiendo una atención jurídica de mayor calidad, especialmente orientada a proteger los derechos y la dignidad de las personas más vulnerables, promoviendo una justicia accesible, rápida e incluyente.
+- Propongo mejorar la función judicial federal mediante la modificación de reglas procesales en los juicios de amparo, estableciendo la obligación de publicar anticipadamente el contenido de los proyectos: en tribunales colegiados, mínimo tres días antes de la sesión, y en juzgados de distrito, una semana antes de la audiencia constitucional. Esto fortalecerá la transparencia, la confianza ciudadana y la calidad de las resoluciones, generando inmediación efectiva y reduciendo errores judiciales.
+

@@ -1,0 +1,84 @@
+Nombre Candidato: JUANA FERIA PASCUAL
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5527247232
+Correo Electronico: feriap1805@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Capacitación, Ciclo de Conferencias., Constancia, Curso, Derecho Penal, Derecho de Menores, Derecho de las Telecomunicaciones, Ejecución Penal, Especialización, Licenciatura en Derecho, Niñez, Posgrado, Trabajo Social, UNAM, Victimología
+Tags Propósito: Bienestar Social, Certeza Jurídica, Debida Celeridad, Debida Motivación, Derechos Humanos, Estado de Derecho, Función Jurisdiccional, Género, Imparcialidad, Investigación del Delito, Justicia, Legalidad, Orden Jurídico., Poder Judicial, Prevención del Delito, Transparencia
+
+
+## Descripción del Candidato 
+
+Juana Feria Pascual es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho, especialidad en Derecho de Menores por la UNAM, y diversos cursos de actualización en áreas como derecho penal, derechos de las víctimas, ejecución penal y derecho de las telecomunicaciones. 
+
+Su motivación para buscar el cargo se basa en sus aptitudes profesionales y experiencia. Su visión sobre la función jurisdiccional y la impartición de justicia se centra en la aplicación de la ley con justicia, legalidad, imparcialidad, respeto a los derechos humanos y perspectiva de género, buscando la celeridad en los procedimientos y la prevención del delito. Sus propuestas incluyen dictar resoluciones fundadas y motivadas, garantizar la imparcialidad y transparencia, y establecer colaboración con entidades investigadoras para eficientar los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18oSt4GHSn/
+
+
+## Cursos
+
+- Especialista en Derecho de Menores en el Posgrado de la Facultad de Derecho Unam
+- Titulo Profesional,Asistencia al Curso Derecho de la Victimas en materia penal
+- Celebrado del 22 al 26 de junio de 2020
+- Constancia
+- ,Asistencia al curso ¿Ejecución Penal¿, impartido del 19 de octubre al 16 de noviembre de 2020
+- SSP
+- Constancia,Asistencia al Ciclo de Conferencias
+- La perspectiva jurídica y psicología de la niñez en México
+- FD
+- Constancia,Asistencia al Curso de actualización para profesores, Derecho de las telecomunicaciones
+- FD
+- Constancia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53050/11
+
+
+## Trayectoria Academica
+
+- Tec enTrabajadora Social
+- Licenciada en derecho y Especialista en Derecho de Menores por la Facultad de Derecho
+- UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo las aptitudes profesionales y experiencia para desempeñarme en el cargo, actuando con probidad y honradez.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la interpretación y aplicación de la ley al caso concreto. Por lo consiguiente, los jueces deben dictar sus sentencias con justicia, legalidad, imparcialidad, respeto de los derechos humanos y con perspectiva de género, además, dar celeridad a los procedimientos, respetando el debido proceso, a fin de garantizar el bienestar social y el Estado de Derecho. Otro aspecto que deberán contener las resoluciones son verdaderas medidas de prevención del delito.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una función esencial del Estado para restaurar el orden transgredido, garantizando el bienestar social y el Estado de derecho, siendo en esta visión la propuesta que los jueces aseguren el cumplimiento y la aplicación efectiva de la ley, a efecto de resolver los conflictos que se presenten entre personas o entre estas y entidades gubernamentales, cuidando siempre el respeto de los derechos humanos y juzgando con perspectiva de género.
+
+
+## Propuestas
+
+- Garantizar con fundamento en la ley, que los jueces dicten resoluciones con imparcialidad, transparencia, respeto de los derechos humanos y perspectiva de género, teniendo como fin restaurar el orden jurídico trasgredido y la prevención del delito.
+- Que las resoluciones judiciales esten debidamente fundadas y motivadas en las leyes constitucionales o secundarias, con el fin de lograr que la sociedad tenga certeza jurídica y recobre la confianza en el Poder Judicial, logrando con ello fortalecer el Estado de Derecho en México.
+- Establecer las acciones necesarias a través de relaciones de colaboración con las entidades encargadas de la investigación de los delitos a fin de que haya una eficiente investigación científica del delito, logrando con ello evitar que los juicios se alarguen indefinidamente y dictar resoluciones con certeza jurídica, perspectiva de los derechos humanos y de género.
+

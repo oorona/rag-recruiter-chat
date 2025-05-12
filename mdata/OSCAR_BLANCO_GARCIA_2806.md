@@ -1,0 +1,83 @@
+Nombre Candidato: OSCAR BLANCO GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7772565095
+Correo Electronico: osblaga@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho laboral, Derechos fundamentales, Derechos humanos., Formación judicial, Harvard, Poder Judicial de la Federación, Seguridad social, Servidor público, UNAM
+Tags Propósito: Acceso a la Justicia, Administración de Justicia., Amparo, Burocracia Judicial, Conciliación, Corrupción, Debido Proceso, Derechos Humanos, Eficiencia Judicial, Ejecución de Sentencias, Igualdad, Imparcialidad, Justicia, Justicia Expedita, Juzgados Especializados, Nepotismo, Protección a Vulnerables, Reforma Judicial, Rezago Jurisdiccional, Transparencia
+
+
+## Descripción del Candidato 
+
+Oscar Blanco Garcia es candidato a Jueces/as de Distrito en Morelos, postulándose a través del Poder Ejecutivo Federal. Cuenta con maestría en Derecho Constitucional por la UNAM y es servidor público de carrera judicial, con formación continua en derechos fundamentales, seguridad social y temas laborales a través de la Escuela Federal de Formación Judicial y Harvard X.
+
+Su motivación para buscar el cargo es transformar la administración de justicia federal, priorizando la protección de los derechos humanos, la igualdad, la imparcialidad y la resolución efectiva de conflictos.  Sus propuestas centrales incluyen facilitar el acceso a la justicia, agilizar la tramitación de los juicios respetando los plazos legales y asegurar la pronta ejecución de las sentencias, buscando soluciones de fondo sobre formalidades y promoviendo la conciliación cuando sea posible.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/oscarblancogarcia26
+
+
+## Redes Sociales
+
+- https://www.facebook.com/oscarblancogarcia26/
+- https://x.com/OscarBlanco2025
+- https://www.instagram.com/oscarblancogarcia26/?hl=es
+- https://www.youtube.com/@oscarblancogarcia2025
+- https://www.tiktok.com/@oscar_blanco_garcia
+- https://www.facebook.com/OscarBlancoG
+
+
+## Cursos
+
+- Curso El sistema de derechos fundamentales, Escuela Federal de Formación Judicial
+- ,Diplomado en seguridad social, Escuela Federal de Formación Judicial
+- ,Curso de inducción para personas secretarias de Juzgado de Distrito especializado en Materia Laboral, EFFJ
+- ,Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación, EFFJ
+- ,Curso Justice, impartido por Michael J
+- Sandel, Harvard X
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52281/11
+
+
+## Trayectoria Academica
+
+- Maestro en Derecho Constitucional UNAM
+- Servidor público de carrera judicial
+- Comprometido con los derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi compromiso es demostrar con acciones que se puede lograr la transformación de la administración de justicia federal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Creo en un sistema que proteja a los vulnerables contra el arbitrario, que garantice igualdad, imparcialidad y objetividad, que escuche a todas las partes, busque soluciones efectivas y decida prudentemente. Un verdadero esquema de protección de los derechos humanos. Es necesario dejar atrás los vicios judiciales que entorpecen y retrasan injustificadamente la solución de los asuntos, combatir la corrupción, el nepotismo y hacer justica pronta y expedita.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estoy convencido de que los juicios no solo son expedientes, sino problemas reales de personas que necesita protección y tienen una demanda de justicia. Los jueces deben privilegiar la solución de las controversias sobre las formalidades, con absoluto respeto del derecho de debido proceso. Es importante que, cuando la legislación aplicable lo permita, se privilegie la conciliación para llegar a una solución alterna antes de agotar el procedimiento.
+
+
+## Propuestas
+
+- Justicia accesible. Los jueces deben ser verdaderos protectores de derechos humanos y contribuir a que el sistema de justicia sea accesible para todos en condiciones de igualdad, privilegiando la solución de fondo sobre formalidades. Son necesarias reformas para hacer el juicio de amparo más sencillo y garantizar la defensa adecuada durante todo el procedimiento.
+- Tramitación de los juicios en los plazos de ley. Es indispensable que los juicios se resuelvan en los plazos que establece la ley, combatir el gran rezago jurisdiccional y la burocracia judicial, así como promover la creación de juzgados especializados.
+- Ejecución rápida de las sentencias. El juez debe intervenir activamente en la ejecución de sus determinaciones ejerciendo las facultades establecidas en la ley para esos fines. Es indispensable que se gestione el debido cumplimiento de las autoridades o de la parte que resultó condenada con el objeto de que exista una verdadera administración de justicia.
+

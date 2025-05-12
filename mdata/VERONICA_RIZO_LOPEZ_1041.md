@@ -1,0 +1,71 @@
+Nombre Candidato: VERONICA RIZO LOPEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3338211483
+Correo Electronico: vrizodoctorado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Academia., Amparo, Derecho Administrativo, Derecho Constitucional, Derechos Humanos, Doctora en Derecho, Experiencia Jurídica, Impartición de Justicia, Investigación Jurídica, Jurisprudencia, Maestra en Derecho, Perspectiva de Género
+Tags Propósito: acceso a la justicia, administración de justicia, capacitación judicial, carrera judicial, celeridad, eficacia, estado de derecho, igualdad, inclusión, independencia judicial, innovación judicial, legalidad, legitimidad judicial, pensamiento crítico, poderes del estado, principios constitucionales., rendición de cuentas, servicio público, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Verónica Rizo López es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose desde el Poder Legislativo Federal. Cuenta con un doctorado en Derecho y más de 23 años de experiencia en el ámbito jurídico y académico, con especializaciones en Derecho Administrativo, Constitucional y Derechos Humanos. 
+
+Su motivación para buscar el cargo se centra en la emisión de sentencias con pensamiento crítico y metodológico que garanticen el acceso a la justicia, la transparencia y la protección de grupos vulnerables. Sus propuestas incluyen el fortalecimiento de la coordinación entre poderes para evitar violaciones legales, la innovación en la carrera judicial a través de la capacitación continua, y la defensa de la independencia judicial mediante el diálogo institucional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/share/.18iXzavsph/?mibextid=wwXIfr
+
+
+## Cursos
+
+- ESPECIALIDAD EN DERECHO ADMINISTRATIVO,ESPECIALIDAD EN DERECHO CONSTITUCIONAL Y AMPARO,DIPLOMADO EN DERECHOS HUMANOS,SEMINARIO DE INVESTIGACIÓN Y REDACCIÓN JURÍDICA Y SEMINARIO DE ACTUALIZACIÓN EN JURISPRUDENCIA,DIPLOMADOS EN IMPARTICIÓN DE JUSTICIA CON PERSPECTIVA DE GÉNERO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54368/10
+
+
+## Trayectoria Academica
+
+- Abogada, Maestra en Derecho y Doctora en Derecho, con experiencia jurídica por más de 23 años, así como en la Academia
+
+
+## Motivo para buscar el Cargo Publico
+
+Sentencias que se emitan con pensamiento crítico, claro y metodológico para hacer efectivo el acceso a la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los retos de la administración e impartición de justicia, su funcionamiento y el buen desarrollo que sus actividades deberían tener el ámbito judicial, me han impulsado a participar, con la finalidad de aportar mi experiencia de más de 23 años en el servicio público. Urgen sentencias que se emitan desde un pensamiento crítico, claro y metodológico para hacer efectivo el acceso a la justicia, transparencia y rendición de cuentas. Pero además ponderar a los grupos más vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Evitar violaciones que provocan al pueblo y a sus ciudades el actuar de sus entes administrativos y ejecutores de sus leyes de competencia, identificar y evitar resoluciones e interpretaciones contrarias y violatorias los principios de economía, celeridad, eficacia, legalidad, publicidad y buena fe para hacer posible una justicia paritaria, equitativa e incluyente.
+
+
+## Propuestas
+
+- Implementar mecanismos necesarios entre autoridades de todos los poderes y niveles de gobierno, evitando violaciones que provocan al pueblo y a sus ciudades el actuar de sus entes administrativos y ejecutores de sus leyes de competencia, propongo generar buenos vínculos con homólogos para identificar y evitar resoluciones e interpretaciones contrarias y violatorias los principios constitucionales.
+- La carrera judicial constituye uno de los pilares fundamentales del Poder Judicial, por lo que es trascendente innovar y reestructurar los mecanismos existentes para propiciar mejores condiciones y oportunidades a fin de continuar con una preparación de calidad y excelencia para las y los impartidores de justicia, así como para todos los profesionistas interesados en la formación judicial. Ponderar e impulsar la capacitación constante del órgano jurisdiccional.
+- Como tema prioritario es necesario defender y fortalecer la independencia judicial, con la finalidad de que prevalezca el estado democrático de derecho, buscando el diálogo respetuoso e institucional con otros poderes, encaminado a la reivindicación de la legitimidad del Poder Judicial.
+

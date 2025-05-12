@@ -1,0 +1,75 @@
+Nombre Candidato: JAZMIN GUERRERO PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5566892712
+Correo Electronico: jazminguerrero212@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Curso., Derecho, Derecho Laboral, Diplomado, Especialización, Formación Judicial, Justicia Laboral, Licenciatura, Maestría, Poder Judicial de la Federación, Reforma Laboral, Seguridad Social, Sistema Procesal Penal Acusatorio
+Tags Propósito: Acceso a la justicia, Agilidad, Conciliación, Derechos humanos, Dignidad, Eficacia, Empatía, Expediente electrónico, Igualdad de condiciones, Imparcialidad, Independencia, Integridad, Justicia laboral, Legalidad, Legislación laboral., Perspectiva de género, Simplificación de trámites, Solución de conflictos, Tecnología, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jazmín Guerrero Pérez es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Laboral y una trayectoria académica enfocada en esta área, incluyendo especialización en la Reforma en Materia de Justicia Laboral. Su motivación para buscar el cargo público es contribuir a una impartición de justicia laboral que responda a la realidad social.
+
+Su visión se centra en una justicia imparcial, independiente e íntegra, accesible, pronta y expedita, que proteja los derechos humanos y promueva la conciliación. Sus propuestas clave incluyen la ampliación de mecanismos alternativos de solución de conflictos laborales, la agilización de trámites mediante herramientas tecnológicas y la aplicación de un enfoque humano y digno en la resolución de los conflictos laborales, considerando la perspectiva de género y la atención a personas vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FhLLBXuCR/
+- https://x.com/JazmnGuerr76544?t=youyuboI7C8OgMBoZLW--g&s=09
+- https://www.instagram.com/jazminguerreroperez?igsh=ajBsZHVnY2Iyb3lt
+- https://www.tiktok.com/@jazmn.guerrero.pr?_t=ZM-8v8PzXOFWbP&_r=1
+
+
+## Cursos
+
+- Diplomado en Sistema Procesal Penal Acusatorio
+- Universidad Nacional Autónoma de México,Diplomado en materia de Seguridad Social, Escuela Federal de Formación Judicial,Curso Básico de Preparación y Formación de Secretarios del Poder Judicial de la Federación, Curso de Especialidad,Curso de Actualización sobre la Reforma en Materia de Justicia Laboral,Curso de Especialización sobre la Reforma en Materia de Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53564/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Especialización sobre la Reforma en Materia de Justicia Laboral, Maestría en Derecho Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir con una impartición de justicia entre la clase trabajadora y patronal apegada a la realidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El gran compromiso, como jueza en materia laboral, es la impartición de justicia mediante el dictado de sentencias imparciales, independientes, íntegras y legales, lo cual lograré mediante el esfuerzo, compromiso y preparación diaria: analizando el cúmulo de pruebas del expediente, siendo proactiva en el procedimiento laboral y escuchando a ambas partes para así proteger los derechos humanos, individuales o colectivos, que se vean involucrados en los conflictos laborales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia laboral debe ser accesible, pronta y expedita, pues es la base medular de la economía y el bienestar del país. A fin de generar certeza, debe valerse de diversos elementos como mecanismos para la solución de conflictos, tales como la conciliación; el dictado de medidas precautorias durante el procedimiento; la aplicación de perspectiva de género y atención a personas vulnerables; y la emisión de sentencias justas, con lenguaje claro, reparatorias y ejemplares.
+
+
+## Propuestas
+
+- Ampliación de mecanismos de solución de conflictos laborales. A través del acompañamiento de las partes que deseen celebrar un convenio en todo momento del procedimiento judicial, mediante la accesibilidad del espacio para el diálogo, permitiendo la utilización de medios electrónicos para la comunicación y/o celebración de convenio, y velando en todo momento por el respeto de sus derechos.
+- Agilidad y eficacia en la impartición de justicia. Mediante la práctica la simplificación de los trámites administrativos durante el proceso laboral, esto incluye el dictado de acuerdos breves y claros, la apertura total del expediente electrónico, impulsando la utilización de herramientas tecnológicas tanto para el acceso al expediente, la realización de notificaciones, como para demás diligencias actuariales de manera electrónica, lo que permitirá acortar los plazos y optimizar los recursos.
+- Justicia humana y digna. Actuar con empatía, sensibilidad y comprensión hacia las personas involucradas¿ trabajadores, empleadores, beneficiarios o cualquier otra persona que intervenga en un juicio laboral¿, para garantizar la igualdad de condiciones y oportunidades, sin importar el contexto social, cultural o económico, alineando cada decisión judicial con los principios consagrados en la legislación laboral y los derechos humanos.
+

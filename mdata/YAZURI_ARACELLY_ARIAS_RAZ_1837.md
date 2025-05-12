@@ -1,0 +1,74 @@
+Nombre Candidato: YAZURI ARACELLY ARIAS RAZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: MUJER
+Telefono: 9997439606
+Correo Electronico: yazuri_ar@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Argumentación Jurídica, Doctorado Derechos Humanos., Igualdad de Género, Justicia Laboral, Licenciatura en Derecho, Maestría Derecho Constitucional, Perspectiva de Género, Secretarios Poder Judicial, Simplificación Judicial, Toma de Decisiones
+Tags Propósito: Accesibilidad, Calidad de resoluciones., Capacitación, Derechos ciudadanos, Eficiencia, Empatía, Equidad de género, Función jurisdiccional, Imparcialidad, Inclusión, Justicia, Lenguaje jurídico, Resolución, Respeto, Servicio al público, Sistema judicial, Transparencia, Yucatán
+
+
+## Descripción del Candidato 
+
+Yazuri Aracelly Arias Raz es candidata a Magistratura de Tribunales Colegiados de Circuito en Yucatán, postulándose para el Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derechos Humanos, además de Maestría en Derecho Constitucional y Amparo, y Licenciatura en Derecho. Su trayectoria académica se complementa con diversos cursos de especialización en argumentación jurídica, perspectiva de género en materia penal, justicia laboral y formación para el Poder Judicial.
+
+La candidata fundamenta su postulación en su experiencia, imparcialidad y compromiso con la justicia, buscando un Yucatán más justo y equitativo en términos de género. Sus propuestas principales incluyen el fortalecimiento de la función jurisdiccional a través de la transparencia, accesibilidad y eficiencia, la mejora continua de la calidad de las resoluciones mediante la capacitación de los juzgadores, y la humanización del servicio público en el ámbito judicial, promoviendo una atención respetuosa y empática para quienes buscan justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A4Zpc8ybs/?mibextid=wwXIfr
+- https://x.com/yazuriarias?s=21
+- https://www.instagram.com/yazuri_ar?igsh=bnpxZmc0aWt4MTZs&utm_source=qr
+- https://www.tiktok.com/@yazuri_arias?_t=ZM-8uzjVedAPTx&_r=1
+
+
+## Cursos
+
+- Diplomado Argumentación Jurídica, Toma de Decisión y Simplificación de la Decisión Judicial, Universidad de las Américas,Juzgar con Perspectiva de Género en Materia Penal,Actualización Sobre la Reforma en Materia de Justicia Laboral,Género como Herramienta para la Igualdad,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52309/10
+
+
+## Trayectoria Academica
+
+- Cuento con una Licenciatura en Derecho, Maestría en Derecho Constitucional y Amparo; y, un Doctorado en Derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Con mi experiencia, imparcialidad y amor por la justicia, trabajaré por un Yucatán más justo y con equidad de género.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi compromiso es una función jurisdiccional en Yucatán basada en justicia, equidad de género y transparencia. Como Magistrada de Circuito, garantizaré resoluciones imparciales, protegiendo los derechos de cada ciudadano. Apostemos por un sistema judicial accesible, eficiente y cercano a la sociedad, donde la ley sea un verdadero pilar de confianza. Con experiencia y compromiso, trabajaré para que la justicia no solo se imparta, sino que también se sienta.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en Yucatán debe ser cercana, equitativa y transparente. Como Magistrada de Circuito, trabajaré para que cada resolución sea imparcial y garantice los derechos de todas las personas, sin distinción. La justicia no solo debe impartirse, sino sentirse con certeza y confianza. Mi compromiso es fortalecer un sistema accesible, eficiente, y humano, donde la ley proteja a quien la necesita. Con tu apoyo, construiremos un Yucatán más justo para todos.
+
+
+## Propuestas
+
+- Mi compromiso es fortalecer la función jurisdiccional con mayor transparencia, accesibilidad y eficiencia. Para ello, uno de mis enfoques se encuentra en la emisión de sentencias claras y accesibles, fomentando un lenguaje jurídico comprensible para la ciudadanía, así como agilizando los trámites y reduciendo tiempos de respuesta, garantizando decisiones justas e incluyentes.
+- mi visión es lograr una justicia más hábil, accesible y equitativa mediante el fortalecimiento y capacitación continua de los juzgadores para mejorar la calidad de las resoluciones.
+- Mi compromiso también se centra en transformar la función jurisdiccional para que además de accesible y eficiente, sea humana, mediante la capacitación constante en servicio al público para que cada persona que buque justicia reciba atención respetuosa y comprensiva; facilitar el acceso a la justicia sin barreras y priorizando siempre la empatía y el respeto a quienes se acercan al sistema judicial.
+

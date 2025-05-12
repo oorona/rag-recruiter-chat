@@ -1,0 +1,80 @@
+Nombre Candidato: YURIDIA ARIAS ALVAREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: yuridia.arias.alvarez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Amparo Laboral, Derecho Colectivo, Derecho del Trabajo, Juicio de Amparo, Justicia Laboral, Maestría., Seguridad Social, Universidad de Guadalajara, Universidad del Valle de Atemajac
+Tags Propósito: Poder Judicial, acceso a la justicia., confianza, denuncia ciudadana, derechos, educación jurídica, eficiencia judicial, igualdad, impacto social, justicia accesible, lenguaje claro, recursos optimizados, resolución rápida, sistema judicial, transparencia
+
+
+## Descripción del Candidato 
+
+YURIDIA ARIAS ALVAREZ es candidata a Magistratura de Tribunales Colegiados de Circuito en JALISCO, postulándose desde el Poder Ejecutivo Federal, el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con doctorado y una trayectoria académica en la Universidad de Guadalajara y la Universidad del Valle de Atemajac, donde obtuvo el título de Abogado y Maestro en Juicio de Amparo, respectivamente. Su formación complementaria incluye diplomados y seminarios en seguridad social y derecho laboral.
+
+La candidata expresa su motivación para buscar el cargo en su deseo de contribuir a una justicia accesible para todos y generar un impacto positivo en la sociedad. Sus propuestas centrales se enfocan en mejorar la accesibilidad de la justicia mediante el uso de lenguaje claro en las sentencias y campañas de educación jurídica, optimizar la eficiencia judicial, y fortalecer la transparencia con mecanismos de denuncia efectivos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/yuridiaariasalvarez
+- https://www.x.com/AriasYuridia
+- https://www.instagram.com/yuridiaariasalvarez
+- https://www.tiktok.com/ariasalvarezyuridia
+
+
+## Cursos
+
+- DIPLOMADO EN SEGURIDAD SOCIAL
+- ,ESPECIALIDAD EN DERECHO DEL TRABAJO Y JUSTICIA LABORAL
+- ,SEMINARIO DE AMPARO EN MATERIA LABORAL,SEMINARIO DE DERECHO COLECTIVO
+- ,SEMINARIO EN SEGURIDAD SOCIAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52310/10
+
+
+## Trayectoria Academica
+
+- Universidad de Guadalajara, 11/2014 Abogado
+- Universidad del Valle de Atemajac, 04/2013 Maestro: Juicio de Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero trabajar para que la justicia sea accesible para todos y generar un impacto real y positivo en la sociedad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser fácil de acceder y confiable para todas las personas. Mi objetivo como parte del sistema judicial es asegurarme de que todas las personas, sin importar de dónde vengan o qué recursos tengan, puedan defender sus derechos de manera justa. La justicia debe ser un derecho de todos, y para lograrlo necesitamos un sistema cercano, imparcial y que inspire confianza.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los jueces y magistrados os jueces deben escuchar a todas las personas involucradas en un caso, tomar decisiones basadas en las leyes, y asegurarse de que todos reciban lo que les corresponde. La justicia tiene que ser clara, rápida y fácil de conseguir para todos, para que la gente confíe en el sistema y se sienta segura de que sus derechos están protegidos.
+
+
+## Propuestas
+
+- Trabajar para que la justicia se más accesible para todos, una forma es usar lenguaje sencillo en las sentencias y resoluciones que se dicten; realizar campañas de educación jurídica a través de redes sociales, para que la población conozca sus derechos y el funcionamiento de la justicia. Así es posible que el sistema sea más cercano y comprensible para la ciudadanía, y pueda percibir que la justicia es para todos.
+- Trabajar en mejorar la eficiencia judicial, optimizando los recursos disponibles para disminuir el retraso en la resolución de asuntos. Para ello se debe identificar los tipos de asuntos prioritarios, y además atender a las fechas en que fueron remitidos para su resolución.
+- Lograr una mayor transparencia, con la implementación de mecanismos de denuncia accesibles y efectivos para que los ciudadanos reporten irregularidades. Así la ciudadanía podrá advertir que la justicia es confiable, y fortalecer la confianza en el Poder Judicial de la Federación.
+

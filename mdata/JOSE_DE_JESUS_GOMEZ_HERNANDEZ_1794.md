@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE DE JESUS GOMEZ HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2288368532
+Correo Electronico: vindicta.privata@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Capacitación., Formación, Instituto Judicatura Federal, Juicios Naturales, Justicia Penal, Recursos Ordinarios, Reforma Constitucional, Secretarios Poder Judicial, Universidad Veracruzana
+Tags Propósito: *No generado*
+
+
+## Descripción del Candidato 
+
+Jose de Jesus Gomez Hernandez es candidato a Magistratura de Tribunales Colegiados de Circuito por el Poder Legislativo Federal, representando a Veracruz. Cuenta con licenciatura y cédula profesional, además de una trayectoria académica en la Universidad Veracruzana y el Instituto de la Judicatura Federal.  Ha cursado diversas capacitaciones en materia de Amparo y justicia penal.
+
+Su motivación para el cargo público se centra en participar activamente en la impartición de justicia y fortalecer la sociedad.  En su visión, la función jurisdiccional debe tener un impacto social, tutelando derechos y abordando las causas de la injusticia estructural.  Sus propuestas incluyen coordinar esfuerzos interinstitucionales, mejorar la calidad y eficiencia de las sentencias, y proteger los derechos de grupos vulnerables, como pueblos indígenas, personas mayores y personas con discapacidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ENqeVdYSg/
+- https://x.com/Josedejesusgh?t=v8gJZyDiMvHNV0HIHuJyVA&s=09
+- https://www.instagram.com/josedejesusgomezhernandez?igsh=MW5nZnVva2FqZnhmMA==
+- https://youtube.com/@josedejesusgomezhernandez-n6j?si=wOvuk9E2BY4UqW1k
+- https://www.tiktok.com/@jose.de.jesus.gomez.hdz?_t=ZM-8v51bAZqxDL&_r=1
+
+
+## Cursos
+
+- Cuarto Curso Práctico de Amparo y de los Recursos Ordinarios en los juicios naturales
+- ,Quinto Curso Práctico de Amparo y de los Recursos Ordinarios en los juicios naturales
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Curso de Nociones Generales sobre la Reforma Constitucional en Materia de Amparo, y su ley reglamentaria
+- ,Reforma Constitucional en materia de Justicia Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53431/10
+
+
+## Trayectoria Academica
+
+- Cuento con diversos estudios realizados en la Universidad Veracruzana, y en el Instituto de la Judicatura Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo participar activamente en la impartición de justicia, y contribuir al mejoramiento y fortaleza de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Más allá de la resolución de conflictos entre particulares, y entre estos y el Estado; la función jurisdiccional debe cumplir una función social dirigida a lograr una sociedad plena, mediante la tutela de sus derechos. No se trata de aplicar mecánicamente el derecho, sino de lograr la justicia como un remedio para resolver las manifestaciones de la injusticia estructural (social, económica y política), que se presentan en el país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe dirigirse a las verdaderas causas de la injusticia; deber ser el medio institucional a través del cual, el Estado atienda los problemas colectivos que dan lugar a la estructura de aquélla. Para lo cual, el juzgador debe estar inmerso en la realidad social, e imponga el respeto del imperio de la paz y la justicia a partir del respeto de la dignidad humana, pero nunca imponer dicho imperio en menoscabo de la dignidad de las personas.
+
+
+## Propuestas
+
+- Lograr una real coordinación entre instituciones y poderes, en beneficio de la colectividad, así como llevar a cabo labores en conjunto con instituciones que coadyuven en la solución de conflictos, y que atienden, por ejemplo, a personas vulnerables. Además, es necesaria una real cooperación con los diversos poderes, en la elaboración de leyes, y así garantizar el derecho al acceso a la justicia de manera eficaz, eficiente, innovadora, responsable, transparente, pronta y expedita.
+- Mejorar la calidad de la impartición de justicia: Primordialmente, a través de la emisión de sentencias de calidad, con un estudio acucioso y profundo de los problemas jurídicos que se lleguen a presentar, así como también, evitando la dilación de los juicios, o su entorpecimiento innecesario. El rezago en la resolución de los expedientes ha sido una queja de la población, por ello es necesario ser eficaz y expedito para emitir las sentencias respectivas, sin demerito de su calidad.
+- Proteger los derechos de grupos en condiciones de vulnerabilidad. Entre los cuales, se encuentran los pueblos indígenas, los cuales encuentran diversos obstáculos para acceder a los tribunales. De igual forma, a las personas mayores, las personas con discapacidad, a los niños, niñas y adolescentes; y en general, todos los sectores que, en la mayoría de los casos, no puede velar por sí mismos, pero que deben ser protegidos, para su subsistencia y vida digna.
+

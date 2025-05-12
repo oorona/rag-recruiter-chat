@@ -1,0 +1,75 @@
+Nombre Candidato: ANESHUARELY AMARANDE RIOJAS OROZCO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5534889113
+Correo Electronico: amarande.jueza@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Ciencias Forenses, Colegio de Abogacía, Criminología, Derecho, Derechos Humanos, Gobierno, Justicia Social, Políticas Públicas, Profesionalización., Universidad Panamérican
+Tags Propósito: acceso a la justicia, control, corrupción, denuncia de corrupción, derechos, honestidad, igualdad, imparcialidad, independencia judicial, integridad, justicia, legalidad, ley, observatorio ciudadano, rendición de cuentas, responsabilidad., sistema judicial, supervisión, transparencia, ética judicial
+
+
+## Descripción del Candidato 
+
+ANESHUARELY AMARANDE RIOJOS OROZCO es candidata a Jueces/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Gobierno y Políticas Públicas, además de una licenciatura en Derecho por la Universidad Panamericana. Su trayectoria incluye participación en la Red Digna Ochoa y actividades en el Colegio de Abogacía, así como cursos en áreas como criminología y justicia social.
+
+Su motivación para buscar el cargo se centra en erradicar la corrupción, el tráfico de influencias y el derecho selectivo en el sistema judicial. Sus propuestas principales incluyen la denuncia obligatoria de actos corruptos por parte de los jueces, la estricta imparcialidad en la administración de justicia, y la creación de un Observatorio Ciudadano independiente para supervisar la labor jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573657825027
+- https://x.com/aneretto
+- https://www.tiktok.com/@amaranderover
+
+
+## Cursos
+
+- Universidad Panamericana, Facultad de Derecho,Reconstrucción Cráneo Facial en el Colegio Nacional de Criminología y Ciencias Forenses A
+- C
+- y el Colegio de Tecnología,Consejera Nacional de la Orden Mexicana Colegio de Abogacía, asociación con objetivos de impartir profesionalización,Participación en la Red Digna Ochoa, grupo de acción por los derechos humanos y la justicia social,Universidad Panamericana, Escuela de Gobierno y Economía, Gobierno y Políticas Públicas
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54825/11
+
+
+## Trayectoria Academica
+
+- Liceo Mexicano Japones, Universidad Panamericana licenciatura en Derecho, Maestría en Gobierno y Políticas Públicas
+
+
+## Motivo para buscar el Cargo Publico
+
+Para terminar la corrupción, el tráfico de influencias y el derecho selectivo. Con justicia, legalidad y honradez.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Después de la reforma, la función jurisdiccional debe ser justa, transparente y libre de corrupción. Los jueces deben actuar con imparcialidad, sin tráfico de influencias ni favoritismos. La ley debe aplicarse a todos por igual, sin excepciones. Con honestidad y responsabilidad, se podrá recuperar la confianza en la justicia. Un sistema limpio y claro garantizará que cada decisión sea tomada con lealtad, honor y respeto a los derechos de todas las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser honesta, transparente y libre de corrupción. Todos deben ser juzgados con igualdad, sin influencias ni privilegios. La ley debe aplicarse de forma clara y justa, garantizando los derechos de cada persona. Con jueces imparciales y un sistema sin tráfico de influencias, la ciudadanía recuperará la confianza en la justicia. Solo con lealtad, honor y compromiso se podrá construir un México donde la justicia sea real y accesible para todos.
+
+
+## Propuestas
+
+- Todo juez deberá denunciar cualquier acto de corrupción o ilegalidad detectado en el estudio de los asuntos. Se establecerán mecanismos seguros y anónimos para reportar irregularidades dentro del Poder Judicial, con sanciones severas para quienes encubran actos ilícitos. La impunidad dentro del sistema judicial debe erradicarse, garantizando que cada resolución se base en la ley y no en intereses externos.
+- Los jueces deberán actuar con total imparcialidad, evitando cualquier trato preferencial. Se prohibirá el contacto indebido entre partes interesadas y jueces, con estrictos mecanismos de supervisión. Se implementará un sistema de asignación de casos aleatorio y auditable para evitar manipulaciones. Cada resolución deberá ser revisada conforme a criterios legales objetivos, asegurando que la justicia se aplique sin excepciones ni privilegios.
+- Crear un Observatorio Ciudadano independiente que supervise la labor jurisdiccional. Este organismo, integrado por expertos en derecho, académicos y sociedad civil, revisará fallos judiciales, identificará patrones de posible corrupción y emitirá informes públicos. Además, tendrá facultades para presentar denuncias ante órganos de control. La supervisión externa garantizará que la justicia se imparta con transparencia, sin tráfico de influencias ni favoritismos.
+

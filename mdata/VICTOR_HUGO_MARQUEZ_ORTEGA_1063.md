@@ -1,0 +1,75 @@
+Nombre Candidato: VICTOR HUGO MARQUEZ ORTEGA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3337247767
+Correo Electronico: vhmo_85@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Amparo, Derecho Administrativo, Derecho Constitucional, Derecho Fiscal, Derecho Público, Derecho Tributario, Diplomado, Formación de Secretarios, Maestría., Poder Judicial de la Federación, SCJN, Seminario, Universidad Panamericana, Universidad de Guadalajara
+Tags Propósito: Administración de Justicia., Armonía Social, Capacitación, Derechos Humanos, Dinamismo, Discriminación, Eficiencia, Grupos Vulnerables, Igualdad, Imparcialidad, Independencia, Inteligencia Artificial, Justicia, Oralidad, Protección de Derechos, Rezagos, Servicio, Transparencia
+
+
+## Descripción del Candidato 
+
+Víctor Hugo Márquez Ortega es candidato a Magistrado de Tribunales Colegiados de Circuito en Jalisco, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Público y diversas especialidades en Derecho Administrativo, Constitucional y Amparo. Su motivación para buscar el cargo se centra en su vocación de servicio y en resolver problemas a través de la función jurisdiccional. 
+
+Su visión de la función jurisdiccional la describe como una alta responsabilidad enfocada en proteger los derechos humanos y remediar injusticias. Sus propuestas principales incluyen la transición hacia un sistema oral en la materia administrativa y el juicio de amparo, la implementación de programas de formación en inteligencia artificial y habilidades blandas para el personal judicial, y un programa de capacitación en igualdad para combatir la discriminación, especialmente hacia grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ADBFhsXGs/?mibextid=qi2Omg
+- https://x.com/vhmo1985?t=KwyXE1Dhw6i00MbsSb0TDQ&s=09
+- https://www.instagram.com/abg.victormarquez?igsh=MWE4ZGZhZTd6Nzdqcw==
+- https://youtube.com/@victormarquez-pfj?si=SjotaOPrBL76uUXb
+- https://www.tiktok.com/@abogado.victormarquez?_t=ZM-8v1OICeXtmH&_r=1
+
+
+## Cursos
+
+- ESPECIALIDAD EN DERECHO ADMINISTRATIVO, UNIVERSIDAD PANAMERICANA,ESPECIALIDAD EN DERECHO CONSTITUCIONAL Y AMPARO, CON MENCIÓN HONORÍFICA, UNIVERSIDAD PANAMERICANA,CURSO BÁSICO DE FORMACIÓN Y PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN,DIPLOMADO EN DERECHO FISCAL, SCJN POR CONDUCTO DE LA CASA DE LA CULTURA JURÍDICA, CON SEDE EN GUADALAJARA, JALISCO,SEMINARIO EN ¿DERECHO CONSTITUCIONAL TRIBUTARIO EN IBEROAMÉRICA¿, SCJN CASA DE LA CULTURA JURÍDICA EN GUADALAJARA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53649/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Público, Especialidades en Derecho Administrativo, Constitucional y Amparo, Abogado UDG
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque mi vocación es servir y ayudar a las personas a resolver sus problemas mediante la función jurisdiccional
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser vista con vocación de servicio y como la más alta responsabilidad de un abogado, ya que implica la toma de decisiones que tendrán un efecto directo e inmediato en el derecho de las personas a la salud, la libertad, a un medio ambiente sano, al libre desarrollo de la personalidad, al respeto a sus propiedades y posesiones, entre otros, lo que tienen como objetivo final remediar injusticias y, por ende, contribuir a la paz y la armonía social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Tiene como fin esencial la protección de los derechos humanos de las personas. No puede fungir como un servicio que privilegia formalismos y estadísticas de productividad, sino que debe evolucionar constantemente para adaptarse a los cambios políticos, sociales y económicos que exigen mayor dinamismo en su administración, pero se insiste, poniendo siempre en primer lugar a las personas y sus derechos, que deben ser protegidos de forma imparcial, transparente, independiente y eficiente.
+
+
+## Propuestas
+
+- Transitar hacia la oralidad. El sistema escrito es demasiado rígido, formal y provoca rezago. Por ello, tanto la materia administrativa como el juicio de amparo deben cambiar a la oralidad para que se falle en una audiencia con las pruebas que se rindan en la misma, de forma frontal a las partes, sin intermediario, hablándoles de frente y explicándoles de manera breve, clara y sencilla las razones de la sentencia, lo que logrará mayor dinamismo, abatirá el rezago y reducirá impugnaciones.
+- Programas de formación y capacitación continua del personal enfocados en inteligencias artificiales aplicadas al derecho que permitan mejorar la eficiencia de sus labores, así como en programas que otorguen habilidades de  al  que hagan su trato más cercano y cálido para la gente que requiera de los servicios de impartición de justicia.
+- Programa de actualización y capacitación en igualdad que contribuya a combatir aspectos discriminatorios de las normas y de los actos administrativos, especialmente tratándose de grupos vulnerables por género, envejecimiento, personas con discapacidad, interculturalidad, activistas de derechos humanos, periodistas, protectores del medio ambiente, entre otros.
+

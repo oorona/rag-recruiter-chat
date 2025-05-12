@@ -1,0 +1,74 @@
+Nombre Candidato: MA. CONSUELO ROSILLO GARFIAS
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 4421819610
+Correo Electronico: chelojuez@hotmail.com
+Numero de lista en boleta: 28
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Civil, Derecho Familiar, Derechos Humanos, Doctorado, Experiencia, Honestidad, Juicio de Amparo, Justicia., Licenciatura en Derecho, Maestría
+Tags Propósito: Acceso a la justicia, Apoyo psicológico, Bienestar judicial, Constitución, Derechos Humanos, Descentralización, Educación legal, Eficiencia, Equidad, Estado de derecho, Igualdad., Imparcialidad, Independencia judicial, Objetividad, Paz social, Rendición de cuentas, Resolución de conflictos, Salud mental, Servicio ciudadano, Transparencia, Vigilancia judicial
+
+
+## Descripción del Candidato 
+
+Ma. Consuelo Rosillo Garfias es candidata al Poder Legislativo Federal, con número de lista 28, actualmente Ministra/o de la Suprema Corte de Justicia de la Nación. Cuenta con estudios de Doctorado concluidos y formación en Derechos Humanos, Juicio de Amparo y Código Nacional de Procedimientos Civil y Familiar. Su motivación para buscar el cargo público se basa en su experiencia y herramientas para asegurar el respeto a la Constitución.
+
+Su visión se centra en la función jurisdiccional como piedra angular de una sociedad democrática y la importancia de la impartición de justicia para el Estado de derecho. Sus propuestas incluyen el bienestar del personal judicial, la creación de una oficina de Servicio Ciudadano integrada por los tres poderes, y la implementación de vigilancias itinerantes para el Tribunal de Disciplina, buscando una mayor transparencia, acceso a la justicia y cumplimiento de resoluciones.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/consuelorosilloabogada
+- https://x.com/consuelorosillo
+- https://www.instagram.com/consuelorosilloabogada/
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos, Diplomado en el Juicio de Amparo, y Diplomado en Código Nacional de Proc
+- civil y familia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/37/6
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestra, Doctora, basta experiencia, comprometida con la verdad, honestidad y justicia
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la experiencia y herramientas suficientes para hacer efectivo el respeto a la Constitución.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es la piedra angular que rige cualquier sociedad democrática y de derecho. Se interpreta el Derecho, se aplica la ley, y con ello se garantiza el respeto a los derechos y libertades fundamentales de los ciudadanos. Esta visión debe verse reflejada, sin lugar a dudas, en la imparcialidad y objetividad; accesibilidad y eficiencia, una adecuada protección de los Derechos Humanos, transparencia y rendición de cuentas, capacitación y experiencia, con un ejercicio adecuado de la independencia judicial
+
+
+## Vision sobre la Imparticion de Justicia
+
+Componente esencial y vital para mantener el Estado de derecho. Lo que refleja el compromiso de la nación con la equidad, la igualdad y la protección de los derechos humanos, haciendo viable el ejercicio de las garantías individuales. Es la que asegura la integridad del sistema judicial y la confianza ciudadana en sus instituciones.
+
+
+## Propuestas
+
+- Poner de relieve el bienestar del personal judicial, para una eficaz y justo desempeño, son funcionarios en constante estrés, por tanto, su bienestar físico, mental y emocional es crucial para garantizar que su desempeño sea competente y ético. Cuidar sus horas laborales y sus horas familiares, que cuenten con apoyo psicológico mediante mecanismo de desintoxicación judicial.
+- Son los 3 poderes responsables de La Paz social, por lo tanto, se propone una oficina de Servicio Ciudadano, integrada por funcionarios de los mismos que cuenten con portales de información ciudadana a fin de saber el ejercicio de cada uno, que difundan servicio comunitario, acceso a la justicia, programas de educación legal, acercar los poderes a los ciudadanos, a fin de que se permee una cultura social en el entendido que el poder es uno y que los poderes persiguen la paz social del país.
+- Por lo que ve al Tribunal de Disciplina, proponer la creación de vigilancias itinerantes a fin de que no se cuente con tribunales de vigilancia centralistas, sino que se establezcan programas para la visita de cada entidad federativa y verificar que se cumplen las resoluciones emitidas en los tiempos y forma que la legislación establece, que se escuche al impetrante de justicia.
+

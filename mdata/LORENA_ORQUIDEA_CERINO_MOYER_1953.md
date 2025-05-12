@@ -1,0 +1,80 @@
+Nombre Candidato: LORENA ORQUIDEA CERINO MOYER
+Cargo: Juezas/es de Distrito
+Entidad: CAMPECHE
+Sexo: MUJER
+Telefono: 9933063116
+Correo Electronico: cerinomoyerlorena@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Comunicación Institucional, Derecho Constitucional, Derecho Judicial, Derecho Procesal, Derecho del Trabajo, Diplomado, Especialidad., Licenciatura en Derecho, Maestría
+Tags Propósito: acceso a la justicia, bienestar social, capacitación, derechos fundamentales, eficiencia judicial, imparcialidad, justicia, servidores públicos., solución de controversias, transparencia, órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Lorena Orquidea Cerino Moyer es candidata a Jueza/es de Distrito en Campeche, postulándose para ejercer funciones en el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con Maestría en Derecho Judicial y una trayectoria académica enfocada en derecho del trabajo y derecho judicial, respaldada por diversos diplomados en áreas como derecho procesal, constitucional y comunicación institucional.
+
+Su motivación para buscar el cargo es continuar contribuyendo a la impartición de justicia y al bienestar social. Su visión se centra en garantizar el acceso equitativo a la justicia con transparencia, imparcialidad y eficiencia.  Sus propuestas incluyen la capacitación constante de servidores públicos, la apertura de más órganos jurisdiccionales y la concientización pública sobre los medios alternativos de solución de controversias.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/17nteKkq8C/
+- https://www.instagram.com/lorenacerino.moyer?igsh=MXN5ZGpwOGc4aGdrcQ==
+- https://www.tiktok.com/@juezalorenacerinomoyer?_t=ZM-8v1PZMQmY3a&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Procesal Privado
+- ,Diplomado de Actualización en Derecho Constitucional y Amparo
+- ,Diplomado del Nuevo Juicio de Amparo
+- ,Diplomado en Derecho Constitucional y Amparo
+- ,Diplomado de Calidad y Estilo en la Comunicación Institucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52881/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Especialidad en Derecho Judicial, Maestría en Derecho Judicial, Especialidad en derecho del trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo continuar en el cargo para seguir contribuyendo en la impartición de justicia y al bienestar de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar el acceso equitativo a la justicia, a la protección de derechos, actuar con transparencia, imparcialidad, eficiencia en los procesos judiciales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser transparente, imparcial, accesible y protectora de los derechos fundamentales.
+
+
+## Propuestas
+
+- Capacitación constante a los servidores públicos.
+- Apertura de más órganos jurisdiccionales.
+- Concientizar a la población de la existencia de los medios alternativos de solución de controversias.
+

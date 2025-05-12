@@ -1,0 +1,85 @@
+Nombre Candidato: VICTOR HERNANDEZ TOVAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5563176837
+Correo Electronico: victortovar4@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Constitucionalidad, Control Difuso, Convencionalidad., Derechos Humanos, Diplomado, Juicio de Amparo, Justicia Administrativa, Licenciatura en Derecho, Maestría, SCJN, Tribunal Federal de Justicia Administrativa
+Tags Propósito: acceso a la justicia, audiencia pública, cargas de trabajo, carta magna, claridad en sentencias., complejidad judicial, control jurisdiccional, depuración de expedientes, derechos humanos, grupos vulnerables, imparcialidad, justicia pronta, justicia social, libertades, magistrados, plazos judiciales, poder judicial, pronta solución, renovación, representación popular, sana práctica, transparencia, tratados internacionales
+
+
+## Descripción del Candidato 
+
+VICTOR HERNANDEZ TOVAR es candidato a Magistrado de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Justicia Administrativa, además de formación especializada en áreas como Juicio de Amparo y Derechos Humanos a través de cursos impartidos por la SCJN y el TFJA.
+
+Su motivación para buscar el cargo se centra en la necesidad de una renovación del Poder Judicial para lograr sentencias con justicia social. Propone enfocarse en la protección de los derechos humanos, especialmente para grupos vulnerables, la realización de audiencias presenciales para un mejor entendimiento de los casos, y la resolución de juicios de acuerdo con su complejidad, buscando una depuración de asuntos con antigüedad y garantizando la justicia pronta.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/victor.tovar.3152
+- https://www.x.com/@victor__tovar__
+- https://www.instagram.com/victoor.tovaar
+- https://www.tiktok.com/@victoor.tovaar
+- https://www.instagram.com/victortovar4
+
+
+## Cursos
+
+- Diplomado sobre Juicio de Amparo
+- Edición 2023¿
+- Con una Duración de 100 hrs, por la SCJN
+- ,Diplomado en Derechos Humanos: aproximaciones para su defensa, 2023
+- Con una duración de 80 hrs, por la SCJN
+- ,Sentencias de Derechos Humanos nos Juzgan a todxs
+- Seminario impartido por el Tribunal Federal de Justicia Administrativa,Juzgar para la Igualdad
+- Seminario impartido por el Tribunal Federal de Justicia Administrativa,Control Difuso de la Convencionalidad y la Constitucionalidad en el Juicio Contencioso Administrativo
+- Seminario TFJA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53478/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Especialidad en Justicia Administrativa
+- Maestría en Justicia Administrativa
+
+
+## Motivo para buscar el Cargo Publico
+
+Es necesario una renovación del poder judicial de la federación, para emitir sentencias con verdadera justicia social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Sino existe control en la función jurisdiccional, caemos en cargas de trabajo excesivas, exageradas y tardadas; de ahí que, deba renovarse, a fin de atender a una nueva dirección que disminuya las cargas de trabajo; y permita dar pronta solución de los juicios; en reciprocidad con la apertura y calificación que determine la sociedad, para hacer realidad que, aquello sometido a la ley, sea justo, equitativo y por igualdad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El impartidor de justicia, debe procurar certeza, diligencia y celeridad en la resolución de los asuntos; a fin de salvaguardar los derechos humanos de quienes reclaman justicia, libertades, y respeto a todos aquellos derechos para el desarrollo y bienestar de nuestra sociedad; y, proteger a las personas de actos de la autoridad que vayan en contra de la Constitución y la Ley.
+
+
+## Propuestas
+
+- Elaborar sentencias con protección más amplia a los derechos humanos y libertades establecidos en la carta magna y tratados internacionales, con especial atención a grupos vulnerables por factores sociales, económicos, de salud y de discriminación; a fin de otorgar la máxima publicidad de su contenido; y, alcanzar la excelencia en la impartición de justicia, con un verdadero sentido social, que dignifique la representación de elección popular del cargo de magistrado de circuito.
+- Permitir llevar a cabo audiencias presenciales, a fin de escuchar a quienes realicen manifestaciones o alegatos, e identificar plenamente las inquietudes que se adviertan del caso; con ello, se implemente la sana práctica de que los magistrados escuchen y tengan conocimiento directo de lo que está plasmado en la demanda; y, tener conciencia de lo que se resuelva en la sentencia, esta última debe ser redactada de manera clara, sencilla y de fácil comprensión para quienes no son abogados.
+- Identificar la totalidad de los juicios por el grado de complejidad; para que, en un plazo de 2 meses se resuelvan los de menor complejidad y, de manera simultánea, en un plazo de 4 meses, se resuelvan los de mayor complejidad; por ende, realizar una depuración extraordinaria y permanente de los asuntos con mayor antigüedad; a fin de privilegiar el principio de justicia pronta, completa e imparcial; y hacer realidad la obligación de no exceder el plazo de 6 meses para que se resuelva un asunto.
+

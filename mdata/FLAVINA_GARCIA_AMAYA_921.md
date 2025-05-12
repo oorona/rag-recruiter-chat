@@ -1,0 +1,77 @@
+Nombre Candidato: FLAVINA GARCIA AMAYA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: DURANGO
+Sexo: MUJER
+Telefono: 6181819155
+Correo Electronico: flavinagarciaamaya@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Curso., Derecho Constitucional, Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado, Juicio de Amparo, Licenciatura en Derecho, Seminario, Sistema de Justicia Penal, Violencia contra la Mujer
+Tags Propósito: Adultos mayores, Autonomía judicial, Bienestar social, Derechos humanos, Detenidos, Equidad, Imparcialidad, Justicia social, Legalidad, Migrantes, Minorías sexuales, Mujeres y niñas, Niños y adolescentes, Participación ciudadana, Personas con discapacidad, Perspectiva de género, Programas sociales, Pueblos originarios, Rendición de cuentas, Salud mental, Tratados internacionales., VIH/SIDA, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Flavina Garcia Amaya es candidata a Magistratura de Tribunales Colegiados de Circuito en Durango, postulándose desde el Poder Legislativo Federal. Cuenta con licenciatura y especialidad en Derecho Penal, además de una trayectoria académica reforzada con cursos y diplomados en derecho procesal penal, justicia penal, derechos humanos y violencia contra la mujer.
+
+Su motivación para buscar el cargo se centra en una administración de justicia cercana a la sociedad, con principios de legalidad e imparcialidad. Propone una justicia autónoma, enfocada en la protección de grupos vulnerables, y busca una mayor interacción entre los juzgados y la ciudadanía a través de diversos foros.  Además, plantea una rendición de cuentas cualitativa, fundamentada en leyes y tratados internacionales, en beneficio de las personas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/flavinagarciaamaya/
+- https://www.instagram.com/flavina_garcia-amaya/
+- https://www.tiktok.com/yvalfgarciagarcia
+
+
+## Cursos
+
+- CONGRESO Internacional de Derecho Procesal Penal y Derecho Constitucional
+- ,Diplomado sobre el Nuevo Sistema de Justicia Penal, desde la Perspectiva Constitucional
+- ,SEMINARIO para Servidores Públicos que atienden el tema de Violencia contra la Mujer
+- ,Diplomado en juicio de amparo,CURSO de los Derechos Humanos de las Personas en Reclusión Penitenciaria
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53226/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho y Especialidad en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Por administración de justicia cercana a la sociedad, bajo los principios de legalidad e imparcialidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una Administración de justicia que no solo se califique con números sino en la calidad de las resoluciones que representen una mayor equidad y respeto a las libertades humanas de todos los sectores, sobre todo de los sectores vulnerables como lo son Mujeres y niñas; Niños y adolescentes; Personas con discapacidad; Personas adultas mayores; Pueblos originarios; Personas con enfermedades mentales; Personas con VIH/SIDA; Trabajadores migrantes; Minorías sexuales y Personas detenidas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartición de justicia en la cual debe buscar el bienestar social, que beneficie a la mayoría y no solo a un grupo de poder, de un poder judicial cuyas resoluciones deben emitirse con perspectiva de género, habilitando los derechos otorgados a las minorías, y sobre todo basándose en nuestras leyes.
+
+
+## Propuestas
+
+- Por una justicia real y autónoma de los demás poderes de la unión o de fuerzas externas que pretendan someter los derechos de las personas mas vulnerables por las voluntades políticas o económicas.
+- Por una administración más cercana a la ciudadanía. Que la voluntad y humanismo de los nuevos juzgadores de justicia interactúen en diversos foros como son platicas de interés en programas, redes sociales o conferencias físicas en los mismos recintos de las distintas sedes del poder judicial federal, donde toda la ciudadanía se sienta escuchada.
+- Por una rendición de cuentas cualitativa en vez de ser cuantitativa, donde las resoluciones se encuentren apegados a nuestras leyes y a los tratados internacionales en lo que mas favorezca a las personas.
+

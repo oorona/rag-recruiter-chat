@@ -1,0 +1,82 @@
+Nombre Candidato: MARIZA ARELLANO POMPA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5541453458
+Correo Electronico: licmarizaarellano@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarios, Carrera Judicial, Derecho Procesal, Doctora en Derecho, Especialización Judicial, Formación Judicial, INDEPAC, Licenciatura, Maestría, PJF, Promedio 9.0, Promedio 9.8., Publicaciones, SCJN, Secretario de Juzgado, Tribunal Colegiado
+Tags Propósito: Acceso a la Justicia, Atención Ciudadana, Autoridades, Capacitación, Colaboración, Corrupción, Derechos Humanos, Digitalización, Diversidad, Eficiencia, Gratitud., Igualdad, Imparcialidad, Impunidad, Integridad, Justicia, Justicia Oportuna, Justicia Social, Jóvenes, Leyes Internacionales, Nepotismo, Requerimientos Sociales, Transparencia
+
+
+## Descripción del Candidato 
+
+Mariza Arellano Pompa es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose como candidata "En Funciones". Cuenta con estudios de Doctorado en Derecho, respaldados por una cédula profesional, y una trayectoria académica que incluye licenciatura, maestría y diversos cursos de carrera judicial.
+
+Su motivación para buscar el cargo público se centra en servir a México con imparcialidad, poniendo especial atención en las necesidades de mujeres, niños y jóvenes. Sus propuestas incluyen evitar el nepotismo, priorizar la capacitación del personal judicial, agilizar la administración de justicia, y fortalecer la comunicación con las autoridades para el cumplimiento de sentencias, todo ello con un enfoque en los derechos humanos y una aplicación de la ley tanto nacional como internacional.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Mariza Arellano Pompa
+- https://www.x.com/@MarizaArellano1
+- https://www.instagram.com/@mari.arellano_70
+- https://www.tiktok.com/@mari.arellano.p70
+
+
+## Cursos
+
+- Secretario de Juzgado, de Tribunal Colegiado y de Estudio y Cuenta de la SCJN
+- ,Especialización Judicial
+- Escuela Federal de Formación Judicial del PJF
+- ,Formación y Preparación para Actuarios
+- Escuela Federal de Formación Judicial del PJF
+- ,Maestra en Derecho Procesal, egresada del Centro de Estudios Tecnológicos y Universitarios I A M P
+- promedio 9
+- 0,Doctora en Derecho, egresada del INDEPAC, promedio 9
+- 8
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52301/11
+
+
+## Trayectoria Academica
+
+- Licenciatura, Maestría, Diplomada y Doctora en Derecho, Diversos Cursos de Carrera Judicial y diversas Publicaciones
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a México, siempre con perspectiva imparcial; cercana a las necesidades del pueblo, las mujeres, niños y jovenes.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Enaltecer derechos humanos, resolver conflictos con una total Independencia, Imparcialidad, Integridad, Corrección, Igualdad, y Gratuidad. Reiterar a la población en general el acceso amplio a las instalaciones, brindando una atención con calidez y prontitud. Buscar soluciones en menos tiempo que hagan una justicia mas pronta. Enaltecer los derechos laborales de los colaboradores. Fomentar siempre asistencia para recibir capacitación y brindar un mejor servicio acorde con los cambios nacionales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantía de aplicación permanente de derechos humanos, ponderando perspectivas actuales y sociales de los desafíos que aquejan a nuestra sociedad, combatiendo la corrupción, la impunidad y el nepotismo. Generar una óptica diferente entre los colaboradores de los juzgados para poder brindar atención pronta y de calidad a los ciudadanos que acuden a las instalaciones. Reiterar necesidad de capacitación personal constante y facilitar a quienes colaboren en el órgano jurisdiccional su asistencia.
+
+
+## Propuestas
+
+- Evitar nepotismo, otorgar nombramientos o contrataciones a jóvenes que demuestren profesionalismo y conocimiento de derechos humanos, siendo empáticos con su preparación, que implicará destinar tiempo para que conozcan y concienticen la labor desempeñada; aperturando la diversidad de preferencias y tendencias sociales para tener diversos puntos de vista que se comentarán para soluciones con óptica diversa, bajo esquemas legales actuales y aplicación legal nacional e internacional de vanguardia.
+- Evitar rezago que implica, no tener dilación en la administración de justicia, evitar que existan confusion que lleven a los gobernados a que sus juicios se hagan interminables, para esto, deberá existir una colaboración y apertura mayor con las autoridades, aunado a que la atención del personal de los órganos jurisdiccionales sea de una mejor preparación y con empatía en la busqueda de una justicia mexicana oportuna, dinámica con aplicación y conocimiento de leyes y tratados internacionales.
+- Reforzar enlaces de comunicación con las autoridades responsables para que den cumplimiento a las sentencias dictadas, manteniendo comunicaciones ágiles y optimizar en cada órgano jurisdiccional conocimientos informáticos que se apliquen desde jueces y magistrados, todo el personal, instar a las autoridaes para que igualmente lo realicen en pro de una justicia sin mayores formalismos, que brindar justicia a los gobernados en especial a las masas con mayores requerimientos y necesidades sociales.
+

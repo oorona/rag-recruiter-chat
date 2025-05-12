@@ -1,0 +1,75 @@
+Nombre Candidato: CAROL DANIELA ACEVAL CARMONA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5573397765
+Correo Electronico: juezacarolAC@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Administración Pública, Amparo, Anticorrupción., Antisoborno, Ciencias Criminales, Derecho, Dogmática Penal, ISO 37001, Innovación en Justicia, Sistema Integral de Justicia Penal Adolescentes, Sistema Penal
+Tags Propósito: acceso a la justicia, anticorrupción, decisiones justificadas, derechos, empatía, imparcialidad, integridad, justicia accesible, justicia cercana, justicia imparcial, justicia penal, lenguaje claro, no revictimización, protección a víctimas, puertas abiertas., resolución oportuna, servidor público, transparencia, trato digno, violencia de género
+
+
+## Descripción del Candidato 
+
+Carol Daniela Aceval Carmona es candidata a Jueza de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con maestría en Administración Pública y Anticorrupción, además de una sólida formación en derecho penal y sistemas de justicia, incluyendo estudios en Alemania y Nueva York. Su trayectoria académica y profesional se centra en la justicia penal, con especialización en sistemas de gestión antisoborno y atención a víctimas.
+
+Su motivación para buscar el cargo público es contribuir a una justicia cercana, imparcial y accesible para toda la población. Propone un juzgado que priorice la claridad en las sentencias, el trato digno, la protección de las víctimas (especialmente en casos de violencia de género) y la transparencia en las decisiones, buscando derribar las barreras que alejan a la ciudadanía de la justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16PfEBLbFf/?mibextid=LQQJ4d
+- https://x.com/karolaceval?s=21
+- https://www.instagram.com/carolaceval?igsh=MWpjbWQ3d3NmZHVtNg3D3D&utm_source=qr
+- https://www.tiktok.com/@carolaceval?_t=ZM-8uxRfs109X5&_r=1
+
+
+## Cursos
+
+- Escuela Alemana de Ciencias Criminales y Dogmática Penal por la  Universität de Göttingen, Alemania,Diplomado en Amparo por el Instituto Nacional de Ciencias Penales,Programa sobre Innovaciones en la Justicia en el      Court Innovation, Nueva York,Especialización Operadores del Sistema Integral de Justicia Penal para Adolescentes, ISSPE,Líder implementador de sistemas de gestión antisoborno, ISO 37001
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52179/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Especialista en Sistema Penal, Maestra en Admon
+- Pública y Maestrante en Anticorrupción y Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a mi país, contribuyendo a que la justicia sea cercana, imparcial y accesible para todas y todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Juez y Jueza, como servidor público, está para servir. Su papel es trascendental, porque es quien tiene la última palabra en la interpretación de la ley y, con ello, la responsabilidad de defender los derechos y los intereses de la población. Por ello, no debe limitarse a aplicar normas de manera mecánica ni a resguardarse en la burocracia que aleja a las personas de la justicia. Debe estar cerca de la sociedad, escuchar sus necesidades y ejercer su función con cercanía y solidaridad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México ha sido un muro que aleja a las personas de sus derechos. He vivido esa barrera y mi visión es clara: derribarla. La justicia debe ser cercana, accesible y libre de corrupción, la justicia no puede seguir siendo un privilegio. Los jueces no deben ser figuras aisladas; están obligados a conocer y comprender a quienes impactan con sus decisiones. Aspiro a ser juez penal para garantizar que la justicia sea un escudo para la ciudadanía, y no una barrera.
+
+
+## Propuestas
+
+- En mi juzgado la justicia será para todas y todos, sin distinción ni demora. Mis sentencias serán claras, oportunas y fáciles de leer, para que las personas no esperen años por una respuesta. Trato digno y sin discriminación, en mi juzgado cada persona será escuchada y tratada con respeto. Lenguaje claro, no mas términos que nadie entiende. El tiempo en que se presenta la demanda y se resuelva será el estrictamente necesario, basta de juicios largos y cansados.
+- Una Jueza íntegra es igual a justicia sin corrupción. Imparcialidad total, no aceptaré favores ni presiones, mis decisiones se basarán en la ley, en las pruebas y teniendo siempre en cuenta la justicia. Puertas abiertas, seré una juzgadora con disposición a escuchar a rodo el que así lo requiera, y transparentar como se toman las decisiones. Resoluciones justificadas, todas mis decisiones tendrán fundamento, no mas resoluciones arbitrarias o injustificadas.
+- Protección real para las victimas, justicia sin revictimización. Escucha y empatía, garantizaré un trato digno a las victimas, en especial las mujeres que han sufrido acoso o abuso, evitando la revictimización y fomentando su participación en condiciones de seguridad y privacidad. No mas impunidad en delitos de genero, aplicaré con firmeza la ley en casos de violencia de género, asegurando que no haya privilegios ni dilaciones injustificadas.
+

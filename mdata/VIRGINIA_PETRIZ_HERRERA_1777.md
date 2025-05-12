@@ -1,0 +1,77 @@
+Nombre Candidato: VIRGINIA PETRIZ HERRERA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 5543883729
+Correo Electronico: vpetriz@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Comercio Exterior, Control Constitucional, Derecho Administrativo, Derecho Fiscal, Derecho Intelectual, Derecho Judicial, Derecho Procesal Fiscal, Derechos Humanos, Función Jurisdiccional, Gestión Pública, Impuestos, Inteligencia Artificial, Licenciatura en Derecho., Mediación Administrativa, Responsabilidades Administrativas, Ética Judicial
+Tags Propósito: Apego a Derecho, Capacitación, Constitución, Derechos, Eficiencia, Honestidad, Imagen del Juzgador., Imparcialidad, Jurisdicción, Justicia, Paridad de Género, Poder Judicial, Rectitud, Responsabilidad, Tratados Internacionales, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Virginia Petriz Herrera es candidata a Magistratura de Tribunales Colegiados de Circuito en Veracruz, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Fiscal y Licenciatura en Derecho, complementada por diversas especialidades, diplomados y cursos en áreas como derecho intelectual, procesal fiscal, administrativo, ética judicial, derechos humanos, e inteligencia artificial.
+
+Su motivación para buscar el cargo se basa en su experiencia como juzgadora y sensibilidad hacia los problemas de la ciudadanía.  Su visión de la función jurisdiccional la define como un privilegio y responsabilidad para proteger los derechos constitucionales, con especial atención a los vulnerables.  Sus propuestas incluyen la capacitación constante del personal judicial, la concientización sobre la importancia de la labor jurisdiccional, y el fortalecimiento de la paridad de género y la protección de grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.hotmail.com
+
+
+## Redes Sociales
+
+- https://facebook.com/fatima.herrrera.10048
+- https://instagram.com/virginia_petriz_herrera
+
+
+## Cursos
+
+- ESPECIALIDADES en Derecho Intelectual, Sobre Derecho Procesal Fiscal, Judicial, y en Derecho Administrativo
+- ,DIPLOMADOS: Universitario en Comercio Exterior, Automatizado de Impuestos, Introducción a la Función Jurisdiccional,CURSOS
+- Ética Judicial; Sobre argumentación jurídica; El debido Proceso y la Tutela efectiva de los Derechos Humanos
+- ,CURSOS: Reforma en Derechos Humanos y Nuevo Control Constitucional; Inteligencia Artificial y Gestión Pública
+- ,Aplicación de la Ley General de Responsabilidades Administrativas,Mediación en materia Administrativa
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54047/10
+
+
+## Trayectoria Academica
+
+- MAESTRÍA en Derecho Fiscal
+- LICENCIATURA en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo capacidad y experiencia como juzgadora, así como la sensibilidad de los problemas de la ciudadanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es una función privilegiada de un juzgador porque busca la protección de los derechos y principios contemplados por la Constitución y de los Tratados Internacionales de los que México es Parte, en favor de aquellos que aciden a la solución de sus conflictos, pero también es una función de mucha responsabilidad, porque se espera que la función del juzgador sea honesta, imparcial, eficiente y expedita. y debe sensibilizarse con las personas vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia está ligada a la imagen del juzgador porque es su principal función, aunque actualmente se ha cuestionado su actuar considerándolo deshonesto y contrario a derecho, por lo que, ahora le toca a la ciudadanía elegir correctamente a los juzgadores que integraremos el Poder Judicial del Federación, y a nosotros los juzgadores, nos corresponde cambiar esa imagen negativa y demostrar que se puede actuar con rectitud, dictando los fallos apegados a derecho.
+
+
+## Propuestas
+
+- Capacitación constante de todo el personal en las distintas materias del derecho.
+- Concientización de la importancia de la labor jurisdiccional.
+- Fortalecimiento de la paridad de género y la protección de los grupos vulnerables.
+

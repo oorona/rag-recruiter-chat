@@ -1,0 +1,80 @@
+Nombre Candidato: VICTOR HUGO SOLANO VERA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5527516677
+Correo Electronico: solanoveravh@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Control de Convencionalidad, Corte Interamericana, Derecho, Derechos Humanos, Derechos de la Infancia, Diversidad Sexual, Especialista, IJF, Juicio de Amparo, Maestro, SCJN., Secretaría de Juzgado
+Tags Propósito: acceso a la justicia, claridad judicial, crédito automotriz, derechos humanos, diversidad familiar, eficiencia judicial, equidad., experiencia, formatos de sentencia, justicia, justicia financiera, poliamor, resolución de conflictos, servicio público, siglo XXI, tasas de interés, transparencia judicial, usura
+
+
+## Descripción del Candidato 
+
+Víctor Hugo Solano Vera es candidato a Magistraturas de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a cargos en el Poder Ejecutivo Federal, Poder Judicial de la Federación y Poder Legislativo Federal. Cuenta con Maestría en Derecho, licenciatura en Derecho, especialidad en Derecho de la Administración y Procuración de Justicia, y cuenta con formación en temas de Derechos Humanos, Juicio de Amparo y Diversidad Sexual.
+
+Solano Vera fundamenta su candidatura en una amplia trayectoria, vocación de servicio y compromiso con la excelencia en la administración de justicia. Su visión para la función jurisdiccional se centra en un rostro humano, agilidad y eficacia en los tribunales, promoviendo la confianza ciudadana. Propone formatos de sentencias de fácil lectura, la protección jurídica de la diversidad familiar (incluyendo el poliamor) y la reducción de tasas de interés usurarias en créditos automotrices.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EAtBGoqSP/
+- https://x.com/VictorHSolanoV?t=EorI_mArOxHFS6lf5PYVbw&s=08
+- https://www.instagram.com/victorhsolanov?igsh=MXNzMGc3bmJqZDVnZA
+- https://www.tiktok.com/@victor.hugo.solan51?_t=ZM-8ux4tw8iMje&_r=1
+- https://www.linkedin.com/in/victor-hugo-solano-vera-3a2a21354?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito, 7ª Generación, 2008, IJF, promedio: 9
+- 09,Curso: Derechos Humanos, Control de Convencionalidad, 2013, Fund
+- Konrad Adenauer,Curso sobre Derechos de la Infancia en la Impartición de Justicia, Análisis Protocolo de Actuación, 2014, IJF,Congreso Int
+- sobre Diversidad Sexual y Derechos Humanos en América Latina y el Caribe, 2020, Corte Interamericana,Diplomado: Juicio de Amparo, edición 2021, Casas de la Cultura Jurídica de la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55097/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Especialista en Derecho de la Administración y Procuración de Justicia y Maestro en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo amplia trayectoria, vocación inagotable de servicio y diario hago mi trabajo con excelencia en pro de la justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Conmigo la justicia tendrá un rostro humano, será ágil y eficaz. La gente recobrará la confianza en los tribunales, tendré las puertas siempre abiertas para recibir y escuchar a todos los que acudan a defender sus derechos. México requiere personas juzgadoras de excelencia para el siglo XXI y yo tengo el talento y la experiencia para hacerlo. Mis sentencias tendrá formatos de fácil lectura, serán claras para las personas involucradas en cada caso, no sólo para sus abogados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se impartirá justicia ágil y eficaz, porque cada expediente no es legajo de papel, conlleva los sueños, historias de vida, el patrimonio, la familia de las personas, quienes merecen una pronta solución a sus problemas y que las sentencias realmente se cumplan, sin alargar su ejecución.
+
+
+## Propuestas
+
+- Propongo avanzar hacia un reconocimiento jurídico que proteja la diversidad en las estructuras familiares, incluyendo el modelo de poliamor. Aunque la Ley Civil actual no prevé el matrimonio entre más de dos personas, es fundamental anticipar y resolver los desafíos jurídicos que emergerán en esta nueva realidad social.
+- Propongo que las sentencias por regla general tengan al inicio un formato de fácil lectura, en el que en breves enunciados simples, se explique qué se decidió, porqué y para qué. Actualmente este formato es la excepción, pues se utiliza sólo en asuntos que involucran a personas menores de edad, a personas con discapacidad y a personas adultas mayores.
+- Las personas conductoras que adquieren sus vehículos a crédito se ven a menudo afectadas por tasas de interés usurarias. Como titular de una magistratura, propongo reducir dichas tasas a los parámetros bancarios mínimos en los asuntos relacionados con créditos automotrices, asegurando una justicia financiera más equitativa.
+

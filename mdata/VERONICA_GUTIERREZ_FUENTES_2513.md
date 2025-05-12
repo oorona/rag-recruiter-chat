@@ -1,0 +1,81 @@
+Nombre Candidato: VERONICA GUTIERREZ FUENTES
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: veronica.gutierrez.fuentes.hgo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación, Crimen Organizado, Delitos Cibernéticos, Derecho Penal, Derechos Humanos, Discriminación, Identidad de género, Juicios Orales, Justicia para Adolescentes, Libertad de Expresión, OEA, Orientación sexual, Perspectiva de género, Pruebas Electrónicas, Seguridad de Periodistas, Sistema Penal Acusatorio, UAEH., UNESCO, Violencia, Vulnerabilidad
+Tags Propósito: Poder Judicial, acceso a la justicia, cero impunidad, derechos humanos, dignidad humana, eficiencia judicial, equidad, igualdad, imparcialidad, justicia, justicia social, plazos legales., pronta resolución, protección a víctimas, rendición de cuentas, reparación del daño, repositorios digitales, transparencia
+
+
+## Descripción del Candidato 
+
+Verónica Gutierrez Fuentes es candidata a Jueza/a de Distrito en Hidalgo, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría y cédula profesional, además de una trayectoria académica que incluye la Licenciatura en Derecho, especialidades en Derecho Penal y Justicia para Adolescentes, y una Maestría en Juicios Orales. Su formación se complementa con diversos cursos en temas como perspectiva de género, sistemas penales acusatorios, crimen organizado, pruebas electrónicas y libertad de expresión.
+
+Gutierrez Fuentes busca el cargo por su preparación académica y experiencia, motivada por la visión de un Poder Judicial humanista, centrado en las víctimas y en el acceso efectivo a la justicia. Sus propuestas principales incluyen la creación de un repositorio público de decisiones judiciales para promover la transparencia, el combate a la impunidad con resoluciones imparciales y respetuosas de los derechos humanos, y la eficiente administración de justicia, priorizando el cumplimiento de plazos y la reducción del rezago.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://qr-code.click/i/p/67e0df25dcda5
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16GjujZgf7/?mibextid=wwXIfr
+- https://x.com/verogutierrezf?s=11
+- https://www.instagram.com/juezaveronicagf?igsh=MWcyODM4c2xpYjFycA==
+- https://www.tiktok.com/@juezaveronicagf?_t=ZM-8v40NF5qc3a&_r=1
+- https://www.facebook.com/share/1BLXqoqG6g/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Juzgar con Perspectiva de género en casos de violencia y discriminación por orientación sexual, identidad de género
+- ,Fundamentos del Sistema Penal Acusatorio para Juzgadores en la Oficina Internacional para el Desarrollo
+- ,Capacitación en Materia de Crimen Organizado Transnacional y Grupos en Situación de Vulnerabilidad en América Latina
+- ,Taller para Jueces y Magistrados sobre Pruebas Electrónicas y Delitos Cibernéticos en la OEA
+- ,Libertad de Expresión y Seguridad de Periodistas, en el Instituto Bonavero de Derechos Humanos y la UNESCO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53370/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la UAEH; Especialidades en Derecho Penal y en Justicia para Adolescentes; Maestra en Juicios Orales
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque soy una mujer de altos valores que tiene la preparación académica y experiencia necesaria para impartir justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función principal del Poder Judicial es administrar justicia imparcialmente, garantizar y proteger los derechos humanos y lograr el equilibrio entre justicia, derechos y bienestar social; mi visión de la función jurisdiccional es humanista, centrada en las víctimas y justiciables, garantizando la dignidad humana, la justicia social y el respeto a los derechos humanos, a través de buscar soluciones que promuevan un acceso efectivo a la justicia,que ésta no solo sea un anhelo sino una realidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser imparcial, garantizando que todas las personas accedan a ella y reciban un trato igualitario, con independencia de su origen, condición social o género; bajo una óptica de protección a los derechos humanos; se debe buscar que cada resolución garantice los derechos de las víctimas, que se les reparen los daños causados y asegurando que reciban una compensación justa, si es el caso; la impartición de justicia debe contribuir a una mayor equidad en la sociedad.
+
+
+## Propuestas
+
+- Voy a trabajar arduamente en construir el nuevo Poder Judicial de la Federación que necesita México, cercano, comprometido con la transparencia y rendición de cuentas. Para ello propongo que se cree un repositorio, por materias, en donde la ciudadanía pueda tener acceso a todas las decisiones judiciales y saber el por qué se resuelve de determinada manera un asunto, generando versiones públicas de tales decisiones.
+- Cero tolerancia a la impunidad. Mi compromiso es, que cada caso que llegue a la sala de audiencias sea resuelto con completa imparcialidad y en estricto respeto a los derechos humanos.
+- Respetar los plazos y términos legales; esto es, administrar justicia de manera pronta y expedita, terminar con el rezago de asuntos, vigilando que las partes cumplan con sus obligaciones procesales.
+

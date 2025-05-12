@@ -1,0 +1,76 @@
+Nombre Candidato: LORENA MAYELA LANDEROS SOLORIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3312549462
+Correo Electronico: mayelacandidata@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Aplicación de la ley, Casas de la Cultura Jurídica, Ciudadanía., Derechos Humanos, Estado, Función Jurisdiccional, Juicio de Amparo, Justicia Administrativa, Poder Judicial de la Federación, Tribunal Federal de Justicia Administrativa
+Tags Propósito: Acceso a la justicia, Audiencias virtuales, Bienestar colectivo, Capacitación jurídica, Confianza, Derechos humanos, Dignidad humana, Eficiencia procesal, Especialización administrativa, Estado de derecho, Evaluación de desempeño, Imparcialidad, Indicadores de desempeño., Innovación tecnológica, Inteligencia artificial, Justicia administrativa, Justicia digital, Modernización, Rendición de cuentas, Transparencia, Ética profesional
+
+
+## Descripción del Candidato 
+
+Lorena Mayela Landeros Solorio es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría concluida y una trayectoria en instituciones dedicadas a la defensa de los derechos ciudadanos y la aplicación de la ley. Su motivación para buscar el cargo se centra en transformar la justicia administrativa a través de la ética profesional, la confianza, la convicción y el conocimiento.
+
+Su visión de la función jurisdiccional se enfoca en la aplicación imparcial de la ley para resolver conflictos y contribuir a un mejor país, priorizando la dignidad humana y el bienestar colectivo.  Sus propuestas incluyen la modernización de la justicia a través de herramientas digitales e inteligencia artificial, el fomento de la transparencia y rendición de cuentas mediante la publicación de indicadores y audiencias públicas, y la especialización continua de los operadores jurídicos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1H9zuoYZom/?mibextid=wwXIfr
+- https://x.com/mayelanderos?s=11&t=2xT-X40kjK_4JQln4QZidA
+- https://www.instagram.com/mayelanderos?igsh=MW1rdmp1djh4b2poeQ3D3D&utm_source=qr
+- https://youtube.com/@mayelalanderos?si=_9quNIagYWBCb_Mh
+- https://www.tiktok.com/@mayelandeross?_t=ZM-8uz4SO5vUrl&_r=1
+- https://www.linkedin.com/in/mayela-landeros-40400035?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Especialidad en Justicia Administrativa impartida por el Centro de Estudios Superiores del TFJA,Diplomado en Función Jurisdiccional impartido por el Instituto de la Judicatura del Poder Judicial de la Federación,Diplomado en Juicio de Amparo, impartido por la Dirección General de las Casas de la Cultura Jurídica de la SCJN,Diplomado  humanos; aproximaciones para su  por la Dirección de las Casas de la Cultura Jurídica SCJN,Maestrante Justicia Administrativa en el Centro de Estudios Superiores del Tribunal Federal de Justicia Administrativa
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53608/10
+
+
+## Trayectoria Academica
+
+- He servido en instituciones que defienden los derechos de la ciudadanía y en aquellas que aplican la ley desde el Estado
+
+
+## Motivo para buscar el Cargo Publico
+
+Transformar la justicia administrativa, con valores que marcaron ética profesional: confianza, convicción y conocimiento
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional administrativa es más que la interpretación de leyes, aplicarlas imparcialmente y resolver conflictos entre ciudadanos y autoridades, dicha labor contribuye a construir un mejor país, es un compromiso con valores constitucionales, éticos y humanos que transforman el Derecho abstracto en justicia concreta, completa y material para la ciudadanía convirtiéndose en pieza clave para consolidar un Estado donde la dignidad humana y el bienestar colectivo siempre prevalezcan
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es cimiento de la construcción de instituciones confiables, priorizando el respeto de los derechos humanos a través de resoluciones transparentes, comprensibles y procesos expeditos, en los que sea una constante el uso responsable de la tecnología y la inteligencia artificial a través de sentencias que además de administrar justicia identifiquen áreas de oportunidad en las relaciones entre la ciudadanía y el Estado, haciendo de México un mejor lugar para vivir
+
+
+## Propuestas
+
+- Modernización. Justicia Digital en todas sus etapas para las personas juzgadoras, a fin de reducir tiempos de respuesta y eliminar discrecionalidad, implementando inteligencia artificial como herramienta auxiliar para la clasificación y análisis preliminar de casos, detección de casos similares en procesos, casos previos y antecedentes, pero sin sustituir el criterio judicial, así como implementación de sistema de alertas tempranas para identificar rezagos procesales.
+- Transparencia y rendición de cuentas. Publicación periódica de indicadores de desempeño del tribunal, incluyendo tiempos de resolución, sentencias confirmadas/revocadas y evaluaciones ciudadanas, implementando audiencias públicas virtuales de manera trimestral para explicar criterios jurídicos relevantes con lenguaje ciudadano. Implementar las audiencias virtuales como opción permanente en casos que no requieren presencialidad.
+- Especialización administrativa. Actualización y capacitación para operadores jurídicos en nuevas disposiciones administrativas, criterios interpretativos y herramientas de inteligencia artificial para la eficacia de cada etapa procesal. Implementación de mecanismos eficaces para la evaluación de desempeño en calidad jurídica y ética profesional. Implementación de programas de diálogo con universidades y colegios de profesionistas que abonen al conocimiento y discusión de temas complejos en litis
+

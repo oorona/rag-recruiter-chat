@@ -1,0 +1,73 @@
+Nombre Candidato: LIDIETTE GIL VARGAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2222178830
+Correo Electronico: lidiettegil@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Constitucional, Derechos Humanos, Doctora en Derecho, Gestión Administrativa, Género, Igualdad, Inducción Administrativa., Judicatura, Poder Judicial de la Federación, UNAM, Órganos Jurisdiccionales Federales
+Tags Propósito: Acceso a la Justicia, Calidad en la Atención, Confianza, Derechos Humanos, Empatía, Expedite, Función Jurisdiccional, Honestidad, Humanitaria., Igualdad Sustantiva, Imparcialidad, Integral, Justicia, Lenguaje Sencillo, Paz Social, Perspectiva de Género, Sentencias Claras, Servicio Público, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+LIDETTE GIL VARGAS es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en la entidad de PUEBLA. Cuenta con estudios de Doctorado en Derecho con mención honorífica por la Universidad Nacional Autónoma de México y actualmente se desempeña como Jueza de Distrito.
+
+Su motivación para buscar el cargo se basa en su deseo de continuar sirviendo a la sociedad con dedicación, honestidad y justicia.  Entre sus propuestas destacan la emisión de sentencias claras, precisas y de fácil comprensión, mantener las puertas abiertas para la atención al público, y juzgar con perspectiva de género, buscando la igualdad sustantiva y superando prejuicios históricos. Su visión de la función jurisdiccional la define como la base del sistema de justicia, enfatizando la importancia de la empatía, honestidad y el respeto a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/profile.php?id=61574209671779
+- https://x.com/LidietteGil?t=x-RIJx9OUDUoGb9twv9z1Q&s=08
+- https://www.instagram.com/lidiettegil1?igsh=ZTZ6eG43ZHpub2Jr
+
+
+## Cursos
+
+- Debates desde la Judicatura sobre Derecho Constitucional y Derechos Humanos,Género como herramienta para la igualdad,Gestión Administrativa de los Órganos Jurisdiccionales Federales,Inducción Administrativa para juezas y jueces de reciente adscripción en el Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/61183/10
+
+
+## Trayectoria Academica
+
+- Doctora en Derecho con mención honorífica por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Actualmente soy Jueza de Distrito y es mi deseo continuar sirviendo a la sociedad con dedicación, honestidad y justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la base del sistema de justicia en nuestro país, por lo que todos los operadores jurídicos debemos ejercerla de forma empática, honesta y humanitaria. Esa función no se limita únicamente a resolver controversias, es una herramienta que garantiza la protección de los derechos humanos, promueve la paz social y fortalece la confianza en los órganos jurisdiccionales de nuestro país. ¡Seguiré contribuyendo con todas las ganas y todo mi ser!.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser impartida de forma expedita, inmediata e integral, pero también debe ser humanitaria, cercana a la gente y de fácil acceso. Es importante omitir formalismos jurídicos no previstos en ley y redactar sentencias cuyo contenido sea claro, preciso y de fácil comprensión para los justiciables. Como impartidora de justicia, en el órgano jurisdiccional a mi cargo siempre estarán abiertas las puertas para escuchar las necesidades de las personas que se acercan a pedir justicia.
+
+
+## Propuestas
+
+- Sentencias claras, precisas, integrales y digeribles. Todas las resoluciones deben ser de fácil lectura y comprensión. Es importante evitar hacer uso de lenguaje excesivamente técnico en nuestra función, pues ello provoca que los justiciables en general, generen un sentimiento de desconfianza o distancia entre ellos y los operadores jurídicos. En el órgano jurisdiccional a mi cargo se elaborarán resoluciones conforme a derecho y de fácil lectura.
+- Puertas abiertas y calidad en la atención al público. En el órgano jurisdiccional a mi cargo siempre estaremos dispuestos a escuchar las inquietudes o dudas de los justiciables respecto de los asuntos sometidos a mi consideración. Ello, a fin de generar un sentimiento de cercanía entre la sociedad y los operadores jurisdiccionales y brindar un servicio de calidad a las partes, acorde a la función que realizamos.
+- Juzgar con perspectiva de género. Ello implica interpretar y aplicar las normas jurídicas tomando en cuenta las diferencias y desigualdades entre hombres y mujeres, así como la necesidad de garantizar la igualdad sustantiva entre ambos géneros. Esta perspectiva tiene como objetivo superar los prejuicios, estereotipos y discriminaciones históricas que afectan a las mujeres y otros grupos en situación de vulnerabilidad debido a su género.
+

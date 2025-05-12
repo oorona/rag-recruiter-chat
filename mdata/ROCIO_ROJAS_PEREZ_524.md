@@ -1,0 +1,80 @@
+Nombre Candidato: ROCIO ROJAS PEREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5578986129
+Correo Electronico: rociorojasperez25@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actividad Jurisdiccional, Derecho del Trabajo, Derechos Humanos, Docencia, Juicio de Amparo, Justicia Internacional, Normas Internacionales del Trabajo, OIT, Representación Laboral, Trayectoria Sindical, Universidad de Salamanca.
+Tags Propósito: Acceso a la Justicia, Acción Afirmativa, Acoso Laboral, Brecha Salarial, Capacitación Judicial, Conciliación, Derechos Laborales., Despidos Injustificados, Digitalización, Igualdad de Género, Imparcialidad, Independencia Judicial, Justicia Laboral, Justicia Rápida, Magistratura, Mediación, Objetividad, Poder Judicial, Rendición de Cuentas, Trabajo Digno, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+ROCIO ROJAS PEREZ es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con maestría y cédula profesional, además de una trayectoria en el ámbito sindical, representación laboral, docencia y actividad jurisdiccional.
+
+La candidata busca el cargo para poner su experiencia y conocimientos al servicio de la sociedad, enfatizando la importancia de la capacitación constante, la objetividad, imparcialidad y ética en la función jurisdiccional. Sus propuestas incluyen contribuir a un sistema de justicia laboral eficiente, promover la igualdad de género en el ámbito laboral, modernizar el sistema de justicia mediante la digitalización y fortalecer la conciliación y mediación para reducir la saturación de los tribunales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1ABE12VbSS/?mibextid=wwXIfr
+- https://x.com/licdarocio/status/1226608743825072128?s=46&t=a6Va0jySvSP8Pm0Aq3sAhA
+- https://www.instagram.com/mtra.rocio.rojas.perez?igsh=d2d0MWlyMzBhZHli&utm_source=qr
+- https://www.tiktok.com/@mtra.rocio.rojas.perez?_t=ZM-8u8rzEgMcxp&_r=1
+- https://www.facebook.com/share/16TrihZub6/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Acceso a la Justicia Internacional en materia de Derechos Humanos por las Casas de la Cultura Jurídica de la SCJN, 2024
+- ,Diplomado en Juicio de Amparo, Edición 2024 por las Casas de la Cultura Jurídica de la SCJN
+- ,Academia sobre Normas Internacionales del Trabajo (América Latina) por el CIF OIT 2021
+- ,Simposio Iberoamericano sobre el Uso de las Fuentes del Derecho Internacional del Trabajo por el CIF OIT 2023
+- ,Curso de Posgrado en Derecho, Política y Criminología, Especialidad del ¿Derecho del Trabajo¿, Universidad de Salamanca
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55281/10
+
+
+## Trayectoria Academica
+
+- Mi trayectoria se basa en el ámbito sindical, representación laboral, docencia y en la actividad jurisdiccional
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco ser Magistrada para poner mis conocimientos, así como mi experiencia a disposición y en beneficio de la sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+México y sus ciudadanos por primera vez, tenemos la gran oportunidad de elegir a juzgadores del Poder Judicial que sean altamente capacitados y comprometidos. Considero que la objetividad, imparcialidad y la ética son fundamentales para la función jurisdiccional que resuelva las asimetrías en las relaciones laborales. La correcta interpretación y aplicación de la ley con verdadera honestidad, garantizará que los principios de justicia y equidad sean respetados en cada sentencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Yo sí creo que este proceso de elección de jueces, magistrados y ministros, fortalecerá la confianza en el Poder Judicial de la Federación y en todas las instituciones que participan. Tengo la filosofía de que la capacitación constante de las personas juzgadoras eleva la calidad de la impartición de justicia. La justicia laboral debe ser accesible para todos, especialmente para quienes enfrentan mayores obstáculos en la defensa de sus derechos.
+
+
+## Propuestas
+
+- Contribuir a un sistema de justicia laboral que cumpla con los principios primordiales de una relación de trabajo. Promover la justicia rápida y eficiente, reduciendo tiempos de resolución de conflictos para que trabajadores y empleadores obtengan justicia pronta y expedita. Defender la independencia judicial, evitando injerencias en la toma de decisiones. Impulsar la transparencia y la rendición de cuentas, las resoluciones judiciales deben ser accesibles y comprensibles para la ciudadanía.
+- La igualdad de género en el ámbito laboral es fundamental. Propondré medidas para eliminar la brecha salarial y garantizar la igualdad de oportunidades para mujeres y hombres. También, a través de la acción afirmativa, lucharé contra la discriminación y el acoso laboral, promoviendo un entorno de trabajo seguro y respetuoso. Modernizar y digitalizar el sistema de justicia laboral, el uso de plataformas digitales en la presentación, seguimiento de demandas y publicación de sentencias relevantes.
+- Fortalecer la conciliación y mediación permitirá reducir la saturación de los tribunales y fomentar acuerdos justos entre trabajadores y empleadores. Buscar la defensa del trabajo digno y bien remunerado, con condiciones laborales adecuadas debe ser una prioridad. Velaré por la protección a los trabajadores en despidos injustificados, mi trabajo será para que las resoluciones incluyan mecanismos efectivos que permitan a los trabajadores defender sus derechos frente a decisiones arbitrarias.
+

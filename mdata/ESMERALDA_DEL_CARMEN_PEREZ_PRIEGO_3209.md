@@ -1,0 +1,73 @@
+Nombre Candidato: ESMERALDA DEL CARMEN PEREZ PRIEGO
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9932320036
+Correo Electronico: esmeraldadelcarmenperezpriego@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Defensa Penal, Derecho Familiar, Derecho Penal Federal, Derechos Humanos, Desarrollo Profesional., Ejecución de Sanciones, Juicio de Amparo, Litigación, Procedimiento Penal, Sistema de Justicia Laboral, Suprema Corte
+Tags Propósito: acceso a la justicia, capacitación, democracia, eficacia, eficiencia, estado de derecho, gestión judicial, inclusión social, innovación tecnológica, legitimidad judicial, paz social, políticas económicas, políticas sociales, prevención del delito, profesionalización, reducción de rezago., seguridad jurídica, transparencia
+
+
+## Descripción del Candidato 
+
+ESMERALDA DEL CARMEN PEREZ PRIEGO es candidata a Jueza/es de Distrito en Tabasco, postulándose a través del Poder Legislativo Federal. Cuenta con formación de Doctorado y una trayectoria académica enfocada en especialidades de defensa penal federal, derecho familiar, juicio de amparo, derechos humanos y sistema de justicia laboral, entre otros.
+
+Su motivación para buscar el cargo público se basa en el deseo de contribuir socialmente al país y marcar una diferencia en la vida de las personas. Su visión sobre la función jurisdiccional se centra en contribuir a la seguridad jurídica, la democracia y la paz social. Sus propuestas principales incluyen la implementación de políticas sociales y económicas para disminuir la criminalidad, la creación de órganos para ampliar competencias y reducir el rezago judicial, y la capacitación integral del personal judicial en habilidades técnicas y de gestión.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1DUCZY84sD/?mibextid=wwXIfr
+- https://www.instagram.com/esmeralda_abogadaperez?igsh=MTd6eTJ1c2ozcTBtNQ==
+- https://www.tiktok.com/@esmeraldaabogada?_t=ZM-8v1WPO9jUt5&_r=1
+
+
+## Cursos
+
+- Especialidades en Defensa Penal Federal/En Formación de Personas Secretaria del PJF,Diplomados en Derecho Familiar/Juicio de Amparo/Derechos Humanos de la victimas del delito y abuso del poder,Diplomados Profesionalizante en Sistema de Justicia Laboral/La Suprema Corte y los Derechos Humanos,Cursos Ejecución de Sanciones y Medidas de Seguridad en la Defensa Penal/Técnicas de litigación y Procedimiento Especial,Técnicas de litigación en Procedimiento Abreviado/Interrogatorio y Contrainterrogatorio en juicio/Defensores Especializa
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54188/11
+
+
+## Trayectoria Academica
+
+- La formación adquirida me ha permitido construir proyectos laborales y de vida que han potencializado mi plenodesarrollo
+
+
+## Motivo para buscar el Cargo Publico
+
+Es un aporte social al país, además de una oportunidad de marcar una diferencia en la vida de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional del Poder Judicial es contribuir a la seguridad jurídica, la democracia y la paz social, brindando servicios de manera eficiente y eficaz.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Fortalecer la seguridad jurídica, brindar un servicio jurisdiccional de calidad y confianza, garantizar el estado de derecho, asegurar el acceso a la justicia, promover la inclusión social.
+
+
+## Propuestas
+
+- Incorporar medidas que no sólo prevengan, sino que también disminuyan la criminalidad, por medio de políticas sociales y económicas, en las que su construcción integre a todos los niveles de gobierno y sectores de la sociedad.
+- Crear órganos para ampliar las competencias y así evitar el incremento del rezago y la afectación de la legitimidad, esto partiendo de un diagnóstico que identifique la duración de los juicios por materias.
+- Capacitar al personal en el desarrollo de habilidades y competencias para la función jurisdiccional, en habilidades y competencias básicas para la gestión del despacho; habilidades y competencias para fomentar la confianza ciudadana; profesionalizar específica e integralmente al personal; democratizar el conocimiento jurídico e innovar tecnológicamente.
+

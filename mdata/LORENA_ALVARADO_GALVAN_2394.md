@@ -1,0 +1,78 @@
+Nombre Candidato: LORENA ALVARADO GALVAN
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5532544318
+Correo Electronico: loalga.agatan@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: CDMX, Cédula Profesional., Derecho, Derecho Administrativo, Derecho Constitucional, Derecho de acceso a la información, Maestría, Titulado
+Tags Propósito: CDMX., capacitación, constitución, derechos humanos, equidad, expedidad, honestidad, igualdad de género, inclusión, justicia, marco normativo, prontitud, reelección, rendición de cuentas, sensibilidad social, transparencia, tratados internacionales, voto popular, ética
+
+
+## Descripción del Candidato 
+
+Lorena Alvarado Galvan es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose para el Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y estudios en Derecho Administrativo. Su trayectoria académica y profesional se centra en el ámbito legal.
+
+Su motivación para buscar el cargo público es asegurar una impartición de justicia igualitaria y equitativa en la Ciudad de México. Propone sentencias concretas y concisas basadas en el marco normativo y la protección de los derechos humanos, así como la capacitación continua de los juzgadores en temas de transparencia, igualdad de género e inclusión. Además, busca garantizar la prontitud y expeditez en la administración de justicia. Su perfil y trayectoria completa pueden consultarse en: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52405/11.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/lorena.alvarado.14
+- https://www.instagram.com/lorena.alvarado.14
+- https://www.tiktok.com/@lorena.al.ga
+
+
+## Cursos
+
+- Derecho de acceso a la Información Pública impartido por el Instituto de Acceso a la Información Pública de la CDMX
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52405/11
+
+
+## Trayectoria Academica
+
+- LIC DERECHO
+- Céd Prof
+- 5131785 ESP DERECHO ADMINISTRATIVO
+- Céd Prof
+- 1052823 MAESTRIA DERECHO CONSTITUCIONAL
+- Titulada
+
+
+## Motivo para buscar el Cargo Publico
+
+Para asegurar una impartición de justicia igualitaria y equitativa en la CDMX para los ciudadanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los procesos y procedimientos legales se deben llevar acabo de manera honesta y con altos valores éticos sin importar las creencias políticas, religiosas y la idiosincracia de los juzgadores. Siempre se debe velar porque el marco normativo sea aplicable tomando en cuenta la más alta protección a los derechos humanos de los ciudadanos que vean avulnerados sus derechos, tomando en consideración la Constitución y los tratados internacionales de los que nuestro país sea parte.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al ser elegidos por voto popular, los integrantes del poder judicial se desempeñaran de una manera más honrada, honesta, transparente, ética y rindiendo cuentas a la ciudadania de manera permanente, ya que estos se podrán reelegir siempre y cuando impartan justicia bajo estos parametros. México con esta reforma garantiza que la impartición de justicia sea más cercana y sensible a las necesidades de la gente porque ahora sus juzgadores serán elegidos por ellos.
+
+
+## Propuestas
+
+- Las sentencias deben ser basadas en el marco normativo aplicable tomando en cuenta la máxima protección a los derechos humanos pero deben ser más concretas, concisas y breves.
+- El juzgador debe ser sensible a las necesidades de la sociedad por lo que debe de capacitarse permanentemente en materia de transparencia, rendición de cuentas, igualdad de género e inclusión.
+- Debe llevarse a la práctica que la justicia sea pronta y expedita, tratando en la medida de lo posible, que los autos y sentencias se dicten en el tiempo establecido en la ley para de esta manera no vulnerar los derechos.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: JOEL ISAAC RANGEL AGÜEROS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5518005430
+Correo Electronico: joelisaacrangelagueros77@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Amparo, Argumentación, Control de Convencionalidad, Derecho Fiscal, Derechos Humanos, Educación Continua, Formación Profesional., Fundación Konrad Adenauer, Instituto de la Judicatura Federal, UAM, Universidad Panamericana, Universitat Girona, Universitat Pompeu Fabra
+Tags Propósito: acceso a la justicia, acceso igualitario., asesoría legal, calidad de sentencias, defensa social, defensoría legal, derechos, desconcentración, eficiencia judicial, justicia, justicia cercana, justicia federal, justicia local, justicia social, juzgados, módulos móviles, población vulnerable, reforma judicial, resolución de conflictos, rezago judicial, tiempos de resolución, tribunales
+
+
+## Descripción del Candidato 
+
+Joel Isaac Rangel Agüeros es candidato a Magistrado de Tribunales Colegiados de Circuito en México. Cuenta con una Maestría en Derecho Fiscal y Especialización en Amparo, así como una trayectoria académica en la UAM Azcapotzalco y la Universidad Panamericana. Su formación continua incluye cursos en Derechos Humanos, prueba científica y el juicio de amparo.
+
+Su motivación para el cargo público es lograr una justicia honesta, eficiente y accesible, enfocándose en mejorar las condiciones de vida de quienes acuden al Poder Judicial. Sus propuestas incluyen acercar la justicia a las colonias mediante módulos móviles, crear defensorías profesionales a nivel nacional y aumentar el número de juzgados y tribunales en relación con la población.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Joel Isaac Rangel Agüeros
+
+
+## Cursos
+
+- Curso Cátedra de Derechos Humanos, Universitat Pompeu Fabra de Barcelona,Curso Formación y actualización sobre la prueba científica, Universitat de Girona
+- ,Curso El Juicio de Amparo en el Sistema Jurídico Mexicano, Universidad Autónoma Metropolitana,Diplomado en Argumentación Universidad Anáhuac México Norte
+- ,Curso Derechos Humanos, Control de Convencionalidad, Instituto de la Judicatura Federal y la Fundación Konrad Adenauer
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54871/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UAM Azcapotzalco) Maestro en Derecho Fiscal y Especialista en Amparo (Universidad Panamericana)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para lograr una justicia honesta, capaz, cercana a la sociedad, más pronta y sensible a las necesidades de la población.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se basa en la vocación, en el servicio y en el estudio constante. Porque requiere de horas de trabajo y de revisión de los casos que las personas te presentan para resolver sus problemas a través de una vía pacífica, cuando todos los demás caminos institucionales no han sido suficientes, los jueces y magistrados se convierten en la última esperanza para obtener una solución justa. Las personas ponen en tus manos lo más importante: su vida, su casa, su salud, su familia, todos sus derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe cambiar, no se trata ya sólo de dar a cada quien lo que corresponda (visión antigüa). Hoy el reto es mejorar las circunstancias de la vida de las personas que se acercan al Poder Judicial. Deben disminuirse los tiempos de resolución, pero sin sacrificar la calidad y validez de las sentencias, así como hacer más accesibles los juzgados y tribunales, que sean lugares en los que los ciudadanos sean escuchados y encuentren solución pronta y clara a los conflictos.
+
+
+## Propuestas
+
+- Justicia en tu colonia. Es difícil para el ciudadano común acercarse a tribunales por distintas razones. Propongo instaurar un programa que permita a las personas Juzgadoras Federales, cada cierto tiempo, instalar un módulo móvil para visitar los distintos municipios de su Estado, con el fin de que, quienes tienen asuntos en su tribunal o juzgado, puedan exponer su caso en persona, cara a cara, sin tener que trasladarse a los edificios del Poder Judicial. Unas auténticas jornadas judiciales.
+- Defensorías profesionales y suficientes en cada Estado de la República. Es muy difícil para los ciudadanos encontrar asesoría legal sin gastar cantidades de dinero que están fuera de su alcance. Propongo la creación de un órgano desconcentrado, a nivel nacional, que tenga delegaciones en toda la República y funcione como una procuraduría de defensa social, especializada por materia, que pueda orientar a las personas en TODO el proceso, desde la justicia local hasta llegar al juicio de amparo.
+- Aumentar juzgados y tribunales por cada 10,000 habitantes. Es conocido internacionalmente, que en nuestro país hay pocos juzgadores comparados con la cantidad de población. En mi adscripción (Nezahualcóyotl) únicamente somos 2 Tribunales Colegiados para casi un tercio de la extensión del Estado de México, pese a los grandes esfuerzos del personal, es humanamente imposible terminar con los rezagos. Propongo aumentar juzgados y tribunales, considerando la cantidad de población que se atiende.
+

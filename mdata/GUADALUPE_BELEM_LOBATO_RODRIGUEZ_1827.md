@@ -1,0 +1,83 @@
+Nombre Candidato: GUADALUPE BELEM LOBATO RODRIGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: guadalupe.lobato.r@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Competencias Docentes, Derecho, Derecho Procesal Laboral, Derechos Humanos, Formación Docente, Poder Judicial de la Federación, Responsabilidad Ambiental, Secretarios Judiciales., Toma de Decisiones
+Tags Propósito: Abuso de poder., Accesibilidad, Capacitación, Ciudadanía, Compromiso, Corrupción, Difusión, Dignidad, Educación jurídica, Eficiencia, Empatía, Honestidad, Imparcialidad, Inclusión, Integridad, Justicia, Lenguaje sencillo, Profesionalismo, Resolución de conflictos, Respeto, Servidores públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Guadalupe Belem Lobato Rodriguez es candidata a Magistratura de Tribunales Colegiados de Circuito en Yucatán, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Derecho Procesal Laboral y licenciatura en Derecho, ambas con altos promedios. Su trayectoria se centra en la resolución de asuntos legales durante 20 años, enfocándose en el respeto a los derechos y la dignidad de las personas.
+
+Su motivación para el cargo es continuar trabajando con compromiso y honestidad en la resolución de asuntos, priorizando la atención y protección de los ciudadanos.  Entre sus propuestas se encuentran la capacitación del personal del órgano jurisdiccional en lengua de señas y sistema braille, la apertura del tribunal a estudiantes de derecho, y la difusión semanal de resúmenes de casos relevantes en lenguaje accesible a través de medios digitales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Ev3Zt7GaM/?mibextid=wwXIfr
+- https://x.com/Lobato_gpe
+- https://www.instagram.com/guadalupe_belem_lobato?igsh=MWJidTdiNXU2OWtoMA==
+- https://www.youtube.com/channel/UCqSL3QBQQ_IZkRstqytknBg
+- https://www.tiktok.com/@lobato_guadalupe
+- https://www.facebook.com/profile.php?id=61574622009086
+
+
+## Cursos
+
+- Diplomado Argumentación Jurídica, toma de decisión y simplificación de la decisión judicial
+- IJF extensión Mérida,Curso de Capacitación en Competencias Docentes, como parte del Programa de Formación Docente
+- IJF extensión Mérida,Sensibilización en Derechos Humanos
+- Hacia la cultura del respeto a las personas
+- IJF extensión Mérida,Diplomado en Responsabilidad Ambiental
+- Instituto de la Judicatura Federal extensión Mérida,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, 2010
+- IJF, extensiónPuebla
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54235/10
+
+
+## Trayectoria Academica
+
+- Soy Maestra en Derecho Procesal Laboral y Licenciada en Derecho, titulándome con promedio de 10 y 9
+- 57, respectivamente
+
+
+## Motivo para buscar el Cargo Publico
+
+Para continuar trabajando con compromiso y honestidad en la resolución de asuntos, escuchando y protegiendo al ciudadano
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un tribunal más cercano a la gente. Con Jueces y Magistrados que escuchen con atención y trabajen de forma rápida y efectiva, siempre con profesionalismo, haciendo cumplir la ley sin corrupción ni favoritismos. Un tribunal con servidores públicos preparados y accesibles, que expliquen en un lenguaje sencillo su trabajo. Un lugar donde cada persona, sin importar su situación, es tratada con respeto y dignidad. Un espacio donde la gente encuentre soluciones y se sientan escuchados y protegidos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Durante 20 años me he dedicado con compromiso y honestidad a resolver los asuntos legales, respetando tus derechos y cuidando tu dignidad, aplicando la ley con empatía, pues creo en la impartición de justicia con sentido humano. Los ciudadanos merecen y necesitan Abogados con experiencia, que no sepan únicamente de leyes, sino que también entiendan la responsabilidad de su cargo, y la importancia de ser íntegro, pues este trabajo debe hacerse con imparcialidad, sin corrupción ni abuso de poder.
+
+
+## Propuestas
+
+- Coordinar con escuelas y/o asociaciones, la enseñanza de la lengua de señas y el sistema braille, dirigida al personal del órgano jurisdiccional, como parte de su capacitación y formación, para estar mejor preparados en la atención al público y como ciudadanos que integran la sociedad.
+- Abrir periódicamente las puertas del tribunal a estudiantes de derecho, para visitar las áreas que conforman el tribunal y poder explicar el funcionamiento del órgano jurisdiccional, desde que se recibe un expediente hasta su resolución, y sepan qué labor desempeña cada una de las categorías existentes.
+- Difundir semanalmente a través de medios digitales una síntesis clara de los asuntos más relevantes resueltos en sesión, utilizando un lenguaje sencillo.
+

@@ -1,0 +1,78 @@
+Nombre Candidato: PAULINA MARQUEZ GUTIERREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5562187447
+Correo Electronico: paulinamarquezjusticialaboral@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CONOCER, COPRED, Capacitación, Certificación, Ciudad de México, Conciliación, Conflictos Laborales, Derecho, Discriminación, Género, Laboral Colectiva., Laboral Individual, UNAM
+Tags Propósito: Acceso a la Justicia, Derechos Fundamentales, Derechos Laborales, Eficacia, Equidad, Estabilidad Laboral, Expeditez., Igualdad, Justicia Imparcial, Justicia Laboral, Perspectiva de Género, Prontitud, Resolución de Conflictos, Sectores Vulnerables, Transparencia
+
+
+## Descripción del Candidato 
+
+Paulina Márquez Gutiérrez es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulada por el Poder Ejecutivo Federal. Es licenciada en Derecho por la Universidad Nacional Autónoma de México y cuenta con cédula profesional. Su formación incluye diversas capacitaciones y certificaciones en conciliación laboral, tanto individual como colectiva, otorgadas por CONOCER, así como un curso sobre Género y Discriminación impartido por COPRED.
+
+Márquez Gutiérrez busca el cargo para garantizar el acceso efectivo a la justicia laboral. Su visión para la función jurisdiccional se centra en resolver conflictos laborales protegiendo los derechos de trabajadores y empleadores, promoviendo la justicia con un enfoque humano. Sus propuestas incluyen la construcción de un sistema judicial equitativo y transparente, la implementación de justicia con perspectiva de género y la procuración del acceso a la justicia laboral para sectores vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574916294486
+- https://x.com/PauMarquez2025
+- https://www.instagram.com/paumarquez2025/
+- https://www.tiktok.com/@paumarquez2025
+
+
+## Cursos
+
+- Capacitación en conciliación para la solución de conflictos en materia laboral individual ante el CONOCER
+- ,Capacitación en conciliación para la solución de conflictos en materia laboral colectiva ante el CONOCER
+- ,Certificación en conciliación para la solución de conflictos en materia laboral individual ante el CONOCER
+- ,Certificación en conciliación para la solución de conflictos en materia laboral colectiva ante el CONOCER
+- ,Curso de Género y discriminación en la Ciudad de México, impartido por COPRED
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54255/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho con título emitido por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar el acceso efectivo de la justicia laboral a todas las personas que le sean vulnerados sus derechos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resolver conflictos laborales, protegiendo los derechos de las y los trabajadores y empleadores, contribuyendo a la estabilidad laboral en la sociedad, promoviendo la justicia a través de un rostro humano que coadyuve en la implementación al acceso efectivo de la justicia de forma imparcial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Proteger los derechos y libertades fundamentales de las y los trabajadores y empleadores, aportando una verdadera imparcialidad, construyendo un nuevo modelo en la implementación de solución de conflictos laborales que permitan una justicia eficaz, pronta y expedita.
+
+
+## Propuestas
+
+- Construir un sistema judicial que garantice la equidad, la transparencia y la justicia para todos los ciudadanos.
+- Implementar justicia con perspectiva de género, en un marco de igualdad y equidad, promoviendo el cumplimiento de la normatividad aplicable a cada caso en particular, salvaguardando los derechos fundamentales en un ámbito laboral.
+- Procurar el acceso a la justicia laboral a los sectores vulnerables en la sociedad, garantizando sus derechos.
+

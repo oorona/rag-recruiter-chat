@@ -1,0 +1,82 @@
+Nombre Candidato: OMAR JAIMES BENITEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Alumno Especialidad, Derecho Penal, Derechos Humanos, Diplomados, Escuela Federal de Formación Judicial., Escuela Judicial, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, Prisión Preventiva, Sistema Penal Acusatorio, Suprema Corte de Justicia de la Nación, Universidad Tecnológica de México
+Tags Propósito: capacitación jurisdiccional, corrupción, delincuencia organizada, derechos humanos, feminicidio, formalismos procesales., grupos vulnerables, igualdad, impunidad, indígenas, juicio de amparo, justicia de calidad, justicia penal, justicia pronta, nepotismo, niñez, perspectiva de género, plazos razonables, prisión preventiva, proporcionalidad, reparación integral, resolución judicial, revisión penal, rezagos judiciales
+
+
+## Descripción del Candidato 
+
+Omar Jaimes Benítez es candidato a Jueces/as de Distrito, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Maestría en Derecho y ha realizado diversos diplomados en áreas como Derecho Penal, Juicio de Amparo y Derechos Humanos, así como cursos especializados a través de la Escuela Federal de Formación Judicial. 
+
+El candidato manifiesta su interés en el cargo por contar con los conocimientos y experiencia necesarios para la impartición de justicia penal. Su visión se centra en una administración de justicia conforme a la realidad social, con protección a grupos vulnerables y un enfoque en derechos humanos. Entre sus propuestas se encuentran la resolución de casos penales rezagados, la implementación de horarios de trabajo efectivos con capacitación obligatoria en temas relevantes como perspectiva de género y la restricción del uso innecesario del juicio de amparo indirecto, priorizando la solución de fondo.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/omar.jb.754
+- https://x.com/jaimes_oma7343
+
+
+## Cursos
+
+- Diplomado en Derecho Penal
+- Universidad Tecnológica de México,Diplomado en Juicio de Amparo
+- Suprema Corte de Justicia de la Nación,Diplomado en Derechos Humanos
+- Escuela Federal de Formación Judicial,Curso Conversatorios en Materia de Prisión Preventiva Oficiosa
+- Escuela Federal de Formación Judicial,Curso Sistema Penal Acusatorio, Situación Actual
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53733/11
+
+
+## Trayectoria Academica
+
+- Maestría y Lic
+- en Derecho
+- Diplomados Penal, Amparo y Derechos Humanos
+- Cursos Escuela Judicial
+- Alumno Especialidad
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo los conocimientos, experiencia y principios que el cargo requiere para la adecuada impartición de justicia penal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Administrar justicia conforme a la realidad social y el principio de igualdad; prioridad a la protección de grupos vulnerables; mayor revisión y análisis exhaustivos, razonables, de las controversias penales; emisión de resoluciones completas, congruentes, debidamente fundadas y motivadas; capacitación y actualización constante o periódica del personal jurisdiccional sujeto a revisión; cero tolerancia al nepotismo; ello en aras de una impartición de justicia de calidad, profesional y objetiva.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es necesaria la protección social con enfoque de derechos humanos; evitar la impunidad delictiva, sancionar al culpable y proteger al inocente; lograr la reparación integral del daño a víctimas u ofendidos, propiciar o garantizar su intervención y demás derechos en el proceso; realizar estudios adecuados de proporcionalidad en la imposición de medidas cautelares o penas privativas de la libertad; respetar los plazos razonables, no excesivos, para la resolución del proceso penal y amparo penal.
+
+
+## Propuestas
+
+- Debido al rezago de los anteriores procesos penales tradicionales, así como de juicios de amparo penal, en diversos órganos jurisdiccionales; se debe proceder a la brevedad a la resolución de esos casos, dentro de plazos razonables, no excesivos, sobre todo en asuntos penales especiales o de mayor volumen, pendientes de sentencia desde hace muchos años; sin dejar de atender los principios de completitud, congruencia, exhaustividad y adecuada fundamentación y motivación.
+- Horario de trabajo efectivo y de calidad. Capacitación y actualización periódica y obligatorio, principalmente para servidores públicos encargados de la propuesta y dictado de resoluciones penales y temas afines (perspectiva de género, niñez, indígenas, etc.; prisión preventiva y otras medidas cautelares; feminicido, delincuencia organiza, desaparición forzada, corrupción), con enfoque de derechos humanos, sin obstaculizar el poder punitivo del Estado para abatir la delincuencia en nuestro país.
+- Restringir el uso desmedido e innecesario del juicio de amparo indirecto, con procedimientos y determinaciones más ágiles, así como de solicitudes que sólo buscan prolongar el proceso penal, para dar atención preferente al estudio de fondo de casos que sí lo requieran; reencauzar los recursos en el juicio de amparo interpuestos de manera incorrecta, para garantizar el derecho de acceso e impartición de justicia pronta y expedita, privilegiando la solución de fondo sobre formalismos procesales.
+

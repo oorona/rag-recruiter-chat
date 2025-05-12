@@ -1,0 +1,72 @@
+Nombre Candidato: MAYDELI GALLARDO ROSADO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: maydeli.gallardo.rosado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Penal, Doctorado, Escuela Libre de Derecho, Estudios en el extranjero., Ganancias Ilícitas, Harvard, Investigación, Licenciatura en Derecho, Maestría, Posgrado, Seguridad y Derechos Fundamentales, Sistema de Justicia Penal
+Tags Propósito: Análisis Riguroso., Argumentación Jurídica, Doctorado, Especialización, Función Jurisdiccional, Honorabilidad, Imparcialidad, Impartición de Justicia, Judicatura, Legitimidad, Militancia Política, Objetividad, Posgrado, Posición Pública, Profesionistas, Reconocimiento Público, Sentencias Justas, Subjetividad, Trayectoria Académica
+
+
+## Descripción del Candidato 
+
+Maydeli Gallardo Rosado es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Doctora en Derecho Penal con estudios de posgrado en el extranjero, su trayectoria académica incluye investigaciones en España y una estancia en la Universidad de Harvard. 
+
+Su motivación para buscar el cargo se centra en la renovación de la legitimidad de la judicatura a través de la incorporación de profesionales altamente especializados y honorables. Propone elevar los requisitos de formación académica para acceder a la función jurisdiccional (exigiendo posgrados y doctorados según el cargo), así como implementar mecanismos para garantizar la imparcialidad de los juzgadores, incluyendo la prohibición de militancia política y la abstención en casos sobre los que hayan expresado públicamente una opinión.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@MaydeliGR
+
+
+## Cursos
+
+- Posgrado en Derecho Penal por la Escuela Libre de Derecho,Estancia de Investigación en la Universidad de Harvard,Participación en el proyecto de investigación «Seguridad y Derechos Fundamentales» en España,Participación en el proyecto de investigación «Ganancias ilícitas y Sistema de Justicia penal» en España
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53289/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho, Maestra y Doctora en Derecho Penal
+- Mis estudios de posgrado los realicé en el extranjero
+
+
+## Motivo para buscar el Cargo Publico
+
+La judicatura necesita nuevos integrantes con alto nivel de especialización y honorabilidad para renovar su legitimidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional sólo debe estar a cargo de profesionistas del más alto nivel, lo cual implica especialización por materia y la capacidad de llevar a cabo análisis rigurosos tanto del alcance de la Ley como de los hechos sometidos a su consideración. Resulta lamentable constatar en muchas sentencias, un bajo nivel de argumentación jurídica acompañado de meras transcripciones. Quien juzga debe conocer a fondo la teoría y los procedimientos para poder emitir sentencias justas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El eje rector de la impartición de justicia debe ser la imparcialidad, de ahí que todo juzgador debe actuar siempre objetivamente. Ello conlleva un importante desafío profesional porque implica dejar de lado creencias y prejuicios personales; sin embargo, una verdadera impartición de justicia exige que la interpretación de los derechos, se lleve a cabo sin apreciaciones subjetivas. Quien verdaderamente imparte justicia, antepone su conocimiento a cualquier condicionamiento.
+
+
+## Propuestas
+
+- Exigencia de una amplia trayectoria académica para poder acceder a la función jurisdiccional. En el caso de jueces y magistrados, implica contar con dos posgrados en la materia de su especialización, pudiendo ser especialidades, maestrías o una convinación de ellas. Tratándose de Ministros, deberán contar con al menos un Doctorado, obra escrita y reconocimiento público.
+- Exigencia pública de imparcialidad personal, lo cual implica la imposibilidad de participar en la elección si es o ha sido, militante de algún partido político.
+- Prohibición oficiosa para todo juzgador de decidir sobre casos en los que previa y públicamente, hayan expresado una posición a favor o en contra.
+

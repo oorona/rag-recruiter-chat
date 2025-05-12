@@ -1,0 +1,79 @@
+Nombre Candidato: PAOLA CORONA MARIN
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5539666440
+Correo Electronico: paolacoronamarin@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización, Derecho, Derecho Laboral, Derechos Humanos, Diplomado, Especialización, Ley Federal del Trabajo, Pensamiento Incluyente., Seguridad Social, UNAM, Universidad de Castilla
+Tags Propósito: actualización, ambiente laboral, capacitación, certeza jurídica, disposiciones legales, eficiencia, expedientes, gestión judicial, justicia, justiciables, resolución de conflictos, sensibilidad, sentencias.
+
+
+## Descripción del Candidato 
+
+Paola Corona Marín es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Licenciada en Derecho por la UNAM, cuenta con especializaciones en Derecho Laboral y Derechos Humanos, además de diversos cursos y un diplomado en la materia. Su trayectoria académica y profesional abarca 15 años de experiencia.
+
+Su motivación para buscar el cargo es aplicar su experiencia al servicio público. Su visión de la función jurisdiccional se centra en brindar certeza a los justiciables, mientras que considera que la impartición de justicia debe ser sensible a las necesidades de las personas. Sus propuestas incluyen repensar el ambiente laboral en los órganos jurisdiccionales, optimizar los procesos de gestión respetando el marco legal, y promover la capacitación constante para mejorar la resolución de juicios y el dictado de sentencias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574559276811
+- https://www.instagram.com/paola.corona.marin/
+
+
+## Cursos
+
+- Curso de Actualización en Materia Laboral Facultad de Derecho, UNAM
+- ,Curso  de Actualización: ¿Las Reformas a la Ley Federal del Trabajo¿ Pensamiento Incluyente, A
+- C
+- ,Diplomado: Derecho del Trabajo y Seguridad Social AGLA Estudios Especializados, S
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53459/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, UNAM
+- Especialista en Derecho Laboral, UNAM
+- Especialista en Derechos Humanos, U
+- de Castilla
+
+
+## Motivo para buscar el Cargo Publico
+
+Es una oportunidad para poner al servicio de las personas toda la experiencia acumulada en los últimos 15 años.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es un momento histórico en el que se puede reivindicar la función del juez como el factor que brinde certeza en la resolución de los conflictos que agobian a los justiciables y que son de su conocimiento.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser sensible. No se trata de resolver expedientes, sino de resolver las situaciones que ocupan y preocupan a los justiciables y que, en muchos de los casos, los agobian.
+
+
+## Propuestas
+
+- Repensar el ambiente laboral. Las personas que integran cada órgano jurisdiccional deben sentirse orgullosas de la función que realizan y contar con un ambiente que les permita desarrollarse a plenitud.
+- Examinar los procesos de gestión , observando en todo momento las disposiciones constitucionales y legales, pero buscando la eficiencia en la resolución de los juicios.
+- La capacitación y actualización constante resultan de gran relevancia para tener resultados favorables, tanto en la gestión de los juicios, como en el dictado de las sentencias que los resuelvan.
+

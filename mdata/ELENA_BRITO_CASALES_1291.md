@@ -1,0 +1,77 @@
+Nombre Candidato: ELENA BRITO CASALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7773441085
+Correo Electronico: brito2021abogados@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Consejo de la Judicatura Federal, Derecho Electoral, Derecho Penal, Derecho Procesal, Derecho Procesal Acusatorio, Derechos Humanos, Diplomado., Doctora en Derecho, Especialización, Materias Constitucionales, Mención Honorífica, Promedio
+Tags Propósito: Acceso a la Justicia., Confianza, Constitución, Credibilidad, Derechos Humanos, Excelencia, Experiencia, Favoritismo, Humanismo, Igualdad, Justicia Equitativa, Justicia Oportuna, Legalidad, Leyes, Mujeres, Nepotismo, Paz, Paz Social, Poder Judicial Federal, Rezago, Sensibilidad, Transparencia
+
+
+## Descripción del Candidato 
+
+Elena Brito Casales es candidata al Poder Legislativo Federal, postulándose para Magistratura de Tribunales Colegiados de Circuito en Morelos. Cuenta con doctorado en Derecho y una trayectoria académica en materias Constitucional, Amparo, Derechos Humanos y Penal, habiendo recibido menciones honoríficas por su desempeño. Su motivación para buscar el cargo público se basa en su experiencia previa en el Poder Judicial Federal (PJF) y en el Estado.
+
+Brito propone enfocarse en la impartición de justicia oportuna, equitativa y transparente, con énfasis en el respeto a los derechos humanos y la restauración de la paz social. Sus propuestas incluyen atacar el rezago en la justicia garantizando el acceso igualitario, resolver los casos con humanismo y legalidad, y evitar el nepotismo en el sistema judicial. Su perfil y curriculum vitae completo se encuentran disponibles en el enlace proporcionado por el INE.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1PQUGMaYCq
+- https://www.instagram.com/elenabritoabogados/
+- https://www.youtube.com/@britoabogados5130
+- http://www.tiktok.com/@abogadatiktok?_t=ZM-8v4Y64v8kX0&_r=1
+
+
+## Cursos
+
+- Doctora en Derecho Electoral,Maestra en Derecho Procesal,Especialización en Derecho Procesal,Curso de Especialización por el Consejo de la Judicatura Federal de Secretaria de Estudio y Cuenta,Diplomado por el INACIPE en Derecho Procesal Acusatorio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52710/10
+
+
+## Trayectoria Academica
+
+- Dra
+- en Derecho
+- Materias Constitucional y Amparo, Der
+- Humanos y Penal, Mención Honorifica, Titulo por Promedio
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la experiencia, humanismo y sensibilidad al haber ocupado cargos dentro del PJF y en el Edo. y postulante
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión del Poder Judicial Federal debe centrarse en la impartición de justicia de manera oportuna, equitativa en igualdad de condiciones y debe ser transparente, dar cumplimiento a la Constitución y a las Leyes, restaurar con esa verdadera impartición de justicia la paz social, prevaleciendo el respeto a los derechos humanos, resolver con humanismo y con cultura de legalidad, que haya credibilidad, confiabilidad y reconocimiento social a través de la excelencia en la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia tiene ahora el rostro de mujer. A través de la historia de la humanidad las mujeres hemos demostrado nuestra sensibilidad humana y capacidad de justicia como símbolo indudable de esperanza por la paz, en el caso no solo para Morelos, para México, si no para el mundo entero. No cabe duda que la justicia debe ser con la transparencia de la luz y el agua cristalina, para poder proyectar una impartición de justicia en igualdad de condiciones, sin favoritismos, ni nepotismo.
+
+
+## Propuestas
+
+- Atacar el rezago y justicia para todas y todos en igualdad de condiciones, sin importar sus condiciones económicas, políticas, sociales o cualquier otra.
+- Resolver con humanismo y legalidad
+- Evitar el nepotismo
+

@@ -1,0 +1,75 @@
+Nombre Candidato: RAUL ALBERTO FLORES ROJAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6622268569
+Correo Electronico: raul.albertoflores@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Aduanas, Comercio Exterior, Instituto Mexicano de Contadores Públicos, Juicio Contencioso Administrativo, Juicio de Amparo, Licenciatura en Derecho, Maestría en Impuestos, Seguridad Social, Suprema Corte de Justicia de la Nación, TFJA., Titulación
+Tags Propósito: Acceso a la justicia, Capacitación continua, Congruencia, Derechos ciudadanos, Exhaustividad, Formalismos jurídicos, Función jurisdiccional., Imparcialidad, Impartición de justicia, Objetividad, Resolución de conflictos, Tutela judicial efectiva, Vocación de servicio, Ética profesional
+
+
+## Descripción del Candidato 
+
+RAUL ALBERTO FLORES ROJAS es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Legislativo Federal para el estado de Baja California. Cuenta con estudios de Licenciatura en Derecho y actualmente cursa la Maestría en Impuestos. Su trayectoria académica se complementa con cursos en seguridad social, comercio exterior, juicio contencioso administrativo y actualmente un diplomado sobre juicio de amparo.
+
+El candidato basa su motivación en sus conocimientos jurídicos para impartir justicia, enfocándose en la objetividad, imparcialidad y ética profesional. Sus propuestas clave incluyen la capacitación constante de los miembros del poder judicial, evitar formalismos que dificulten el acceso a la justicia, y fomentar el conocimiento de los derechos de acceso a la justicia entre la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EMjDRy4zW/
+
+
+## Cursos
+
+- Curso de seguridad social, impartido por el Instituto Mexicano de Contadores Públicos en septiembre de 2019
+- ,Curso de Comercio Exterior y Aduanal, impartido por el Instituto Mexicano de Contadores Públicos en octubre de 2019
+- ,Puntos a considerar en el Juicio Contencioso Administrativo, impartido por el TFJA, 11 y 12 marzo 2021
+- ,Actualmente curso el Diplomado sobre Juicio de Amparo edición 2025, por la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52909/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, titulado y cédula profesional
+- Actualmente en proceso de titulación de la Maestría en Impuestos
+
+
+## Motivo para buscar el Cargo Publico
+
+Considero que cuento con los conocimientos jurídicos necesarios para la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resolver los asuntos de manera objetiva e imparcial, es por ello que en ningún momento debe perderse de vista el objetivo de la función jurisdiccional, el cual es impartir justicia, por lo que siempre se deberá tener en mente que este el principal objetivo de los órganos jurisdiccionales. para cumplir con lo anterior se debe actuar siempre con ética profesional, imparcialidad, vocación para el servicio, entre muchas otras, cualidades que se fomentarán en el equipo de trabajo que corresponda.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición d justicia debe ser siempre imparcial, por lo tanto, al resolver un caso, el Juzgador no debe mostrar preferencia por ninguna de las partes, sino que debe actuar con total objetividad. Además, debe ser exhaustiva, lo que significa que, al resolver, se debe considerar y atender cada uno de los planteamientos presentados por la persona justiciable. asimismo, debe ser congruente, lo que implica que, al resolver un caso, se debe abordar la cuestión planteada de manera coherente.
+
+
+## Propuestas
+
+- Capacitación constante. Es fundamental que los miembros de los órganos encargados de impartir justicia se capaciten de manera continua, dado que tanto el derecho como la sociedad están en constante evolución. Esto da lugar a nuevas problemáticas, por lo que las personas que buscan justicia no solo necesitan acceso a la misma, sino también que esta sea proporcionada por profesionales debidamente capacitados para hacerlo.
+- Evitar formalismos o rigorismos jurídicos que obstaculicen un real y efectivo acceso a la justicia. Es fundamental evitar el uso indiscriminado de formalismos o rigorismos jurídicos en la función jurisdiccional, ya que estos pueden obstaculizar o restringir el derecho de las personas a una tutela judicial efectiva. Por ello, es crucial que no se impongan exigencias adicionales a las establecidas por la ley, con el fin de garantizar que las personas puedan acceder a la justicia de manera adecuada
+- Es importante que los miembros de los órganos encargados de impartir justicia fomenten el derecho que tienen las personas de al acceso a la justicia, ya que muchas veces estas desconocen que poseen tal derecho. Por ejemplo, cuando una persona se ve afectada por un acto o resolución de autoridad que vulnera su esfera jurídica, puede acceder a la justicia para que su situación sea analizada. Por ello, es esencial que la ciudadanía el conocimiento de su derecho al acceso a la justicia.
+

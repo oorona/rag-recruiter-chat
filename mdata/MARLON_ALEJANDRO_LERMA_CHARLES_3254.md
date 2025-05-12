@@ -1,0 +1,83 @@
+Nombre Candidato: MARLON ALEJANDRO LERMA CHARLES
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho, Derecho Constitucional, Derecho Fiscal, Doctorado, Especialidad, Experiencia Docente, Honores., Licenciatura, Maestría, Poder Judicial, Secretario Proyectista, UNAM, Universidad La Salle, Universidad de Monterrey
+Tags Propósito: acceso a la justicia, autoridad imparcial, constitución, democracia., derechos humanos, equidad, estado de derecho, grupos vulnerables, imparcialidad, impunidad, inclusión, independencia judicial, justicia, justicia procesal, justicia social, justicia sustantiva, justicia ética, legitimidad, libertad individual, transparencia, valores democráticos
+
+
+## Descripción del Candidato 
+
+Marlon Alejandro Lerma Charles es candidato a Juez/a de Distrito en Tamaulipas, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría y estudios de Doctorado en Derecho, además de una Licenciatura en Derecho con honores por la Universidad La Salle. Su trayectoria incluye experiencia como secretario proyectista y académico, especializado en derecho constitucional.
+
+Lerma Charles motiva su candidatura al deseo de impartir justicia equitativa, proteger los derechos humanos y consolidar el estado de derecho. Su visión se centra en un juez imparcial, garante de derechos fundamentales y promotor de un sistema judicial transparente y accesible. Sus propuestas incluyen mejorar la transparencia y acceso a la justicia, reforzar la independencia judicial y promover la equidad y la inclusión ante la ley.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574296500784&locale=es_LA
+- https://x.com/mlerma94
+- https://www.instagram.com/marlonlermacharles/
+- https://www.tiktok.com/@marlonlermacharles
+- https://www.linkedin.com/in/marlon-lerma-charles-57732b337/
+
+
+## Cursos
+
+- Doctorado en Derecho por la Universidad de Monterrey
+- En curso
+- ,Maestría en Derecho Fiscal por la Universidad de Monterrey
+- Concluida
+- ,Especialidad
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación
+- ,Seminario de filosofía de Derecho y argumentación jurídica, UNAM
+- ,Licenciatura en Derecho por la Universidad La Salle
+- Graduado con honores
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53964/11
+
+
+## Trayectoria Academica
+
+- Marlon Lerma, es secretario proyectista y académico, experto en derecho constitucional con experiencia docente
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco ser Juez para impartir justicia equitativa, proteger los derechos humanos y consolidar el estado de derecho.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En mi visión, el juez debe ser más que un intérprete de la ley; debe actuar como una autoridad imparcial que proteja derechos fundamentales y garantice la equidad en cada caso. Además, debe promover un sistema judicial transparente, accesible y justo, respetando siempre el marco constitucional. En México, donde el acceso a la justicia y la confianza en las instituciones son desafíos, la función jurisdiccional debe fortalecer el estado de derecho y combatir la impunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia en México es que un juez no debe limitarse a una interpretación rígida de la ley, sino defender los valores democráticos, la libertad individual y la justicia social. Sin embargo, debe evitar un activismo judicial que desconozca las normas constitucionales aprobadas democráticamente. En un país como México, con problemas de desigualdad e impunidad, el juez debe ser garante de la justicia en sus aspectos sustantivo, procesal y ético.
+
+
+## Propuestas
+
+- Mejorar la transparencia y acceso a la justicia: Fomentar la difusión de los casos relevantes (en su versión pública) con el fin de que la sociedad conozca la importancia del poder judicial, así como de la justicia constitucional. Asimismo, mejorar la disponibilidad de información para las partes, garantizando que los procedimientos sean claros, accesibles y eficientes, especialmente para grupos vulnerables.
+- Reforzar la independencia judicial: Garantizar que en la función jurisdiccional se podrán tomar decisiones libres de presiones políticas, sociales o económicas, promoviendo la confianza pública en la imparcialidad y legitimidad de las resoluciones judiciales. En ese sentido, se propone que en toda decisión, las partes tengan igualdad de condiciones para defender su posición durante el proceso.
+- Promover la equidad y la inclusión: Asegurando que todas las personas, sin importar su condición social, económica o cultural, tengan el mismo acceso a la justicia y sean tratadas con igualdad material ante la ley.
+

@@ -1,0 +1,77 @@
+Nombre Candidato: HORACIO ARMANDO HERNANDEZ OROZCO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5523136286
+Correo Electronico: haho0319@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Ciencias Religiosas, Civil, Derecho Procesal Constitucional, Derechos Fundamentales, Garantías., Justicia Penal, Laboral, Penal, Práctica Forense, Sistema Acusatorio Adversarial, Tesis, UNAM, Universidad La Salle, Universidad Panamericana
+Tags Propósito: Administración de Justicia, Adultos en Desamparo, Constitución, Derechos Humanos, Derechos Sociales, Igualdad, Imparcialidad, Independencia, Justicia Pronta, Justicia Social, LGBTIQ+, Ley, Madres Buscadoras, Mujeres, Objetividad, Paridad de Género, Resolución Judicial, Responsabilidad, Trabajo en Equipo., Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+HORACIO ARMANDO HERNANDEZ OROZCO es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulando en la categoría de En Funciones. Cuenta con maestría en Derecho Procesal Constitucional y una trayectoria iniciada en 1984 en la administración de justicia, con especial interés en la defensa de grupos vulnerables.
+
+Su motivación para el cargo público se centra en garantizar el acceso a la justicia, especialmente para aquellos que sufren arbitrariedades.  Propone aplicar irrestricta la Constitución y las leyes, enfatizando la reivindicación de los derechos sociales, incluyendo el reconocimiento de los derechos de grupos como la comunidad LGBTIQ+, madres buscadoras y mujeres en lucha por su libertad. Se compromete a un trabajo en equipo para una justicia pronta y expedita, a la ética y responsabilidad en sus resoluciones, y a denunciar actos que violen la ética profesional.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/@MagisterHH
+- https://www.tiktok.com/@magisterhh
+
+
+## Cursos
+
+- Maestro en Derecho Procesal Constitucional, Universidad Panamericana, México Feb
+- 2006 ¿ Nov 2007,Licenciatura en Ciencias Religiosas, Universidad La Salle, México
+- Jun 2009   2010
+- ,Tercer Curso de Práctica Forense en las materias de Amparo, Laboral, Civil y Penal por la UNAM Jul
+- ¿ Sept
+- 1987,Curso Taller Protección de los Derechos Fundamentales, UNAM, Instituto de Investigaciones Jurídicas Jul 2014,Seminario Formación de Formadores en el Sistema Acusatorio Adversarial para la implementación de la Justicia Penal 2009
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53764/10
+
+
+## Trayectoria Academica
+
+- Inicie mi trayectoria en 1984, titulado con la tesis ¿La ampliación de las garantías a los derechos
+
+
+## Motivo para buscar el Cargo Publico
+
+desde estudiante he estado en la administración de justicia en pro de los grupos vulnerables y del justiciable
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+la visión de un juzgador se rige por los principios fundamentales que justifican la carrera judicial como son la excelencia, objetividad, imparcialidad, profesionalismo, independencia y paridad de género; principios que reconoce el artículo 100 de la Constitución Federal además el juzgador es un garante de la Constitución y los Derechos Humanos, siempre buscando el bien de la sociedad; lo cual se logra con el compromiso real y sustentable de conocimientos, habilidades y valores intrínsecos
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión tradicional de la impartición de justicia ha dejado de lado los Derechos Sociales, los cuales deben ser reivindicados por todo juzgador no únicamente para los grupos económicamente desvalidos sino también para aquellas agrupaciones sociales que de igual forma requieren de reconocimiento en su lucha tales como: las comunidades LGBTIQ+, madres buscadoras de hijos desaparecidos, mujeres en lucha de su libertad sexual o adultos y menores en desamparo
+
+
+## Propuestas
+
+- como aspirante a ejercer el cargo de Magistrado de Circuito me comprometo ha aplicar irrestrictamente la Constitución y la Leyes que de ella emanan así como vigilar que el derecho social no quede como simple producto humano y cultural sino hacerlo vigente a través de las actuaciones y resoluciones judiciales, a fin de que aquel que se queje con justicia sea escuchado y defendido ante las arbitrariedades del poderoso; y velar por el respeto de sus derechos fundamentales
+- me comprometo a trabajar en equipo con mis compañeros de trabajo, tanto pares como subordinados en una distribución equitativa de actividades para respetar los tiempos en la realización de las resoluciones judiciales que me sean encomendadas en pro de una justicia pronta y expedita que es un reclamo social en estos tiempos de cambio; por lo cual mi experiencia de años como juzgador me permite abonar en esas labores de impartición de justicia
+- también será un compromiso actuar con ética y responsabilidad en cada resolución emitida dentro del Tribunal en el cual tenga adscripción, lo que implica actuar fuera de cualquier presión externa por muy influyente o poderosa que pudiese ser, siempre brindar puertas abiertas al justiciable para ser escuchado; y si advierto algún acto que resulte ser violatorio de la ética y profesionalismo que debe regir a todo juzgador no dudaré en hacerlo ver ante las autoridades competentes y sancionarlo
+

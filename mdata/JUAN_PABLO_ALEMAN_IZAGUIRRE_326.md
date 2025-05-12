@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN PABLO ALEMAN IZAGUIRRE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8713467793
+Correo Electronico: jp.alemani@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, American University, Derecho internacional, Derecho internacional humanitario, Derechos humanos, Maestro, Universidad Iberoamericana, University Notre Dame.
+Tags Propósito: Acceso a la justicia, Derechos humanos, Formalidades, Juicio de amparo, Justicia, Maximizacion de derechos., Resolución de conflictos, Sentido humano
+
+
+## Descripción del Candidato 
+
+Juan Pablo Aleman Izaguirre es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal para el estado de Coahuila. Cuenta con maestría en derecho internacional de los derechos humanos por la University of Notre Dame, complementada por estudios en la American University sobre derechos humanos y derecho internacional humanitario.
+
+Su motivación para el cargo público se basa en su pasión por la defensa de los derechos humanos.  En cuanto a su visión de la función jurisdiccional, propone una justicia que atienda a las particularidades de cada caso y que priorice la resolución del fondo de los problemas sobre las formalidades. Sus propuestas centrales incluyen resolver los asuntos con sensibilidad humana y procurar la maximización de los derechos humanos, buscando un acceso a la justicia efectivo, especialmente en el ámbito del juicio de amparo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/juan.pablo.aleman.izaguirre
+- https://www.x.com/jpaleman
+- https://www.instagram.com/jp.aleman.izaguirre
+- https://www.tiktok.com/jp.aleman.izaguirre
+
+
+## Cursos
+
+- Academia de derechos humanos y derecho internacional humanitario en la American University (2009)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52146/10
+
+
+## Trayectoria Academica
+
+- Abogado   Universidad Iberoamericana Torreón
+- Maestro en derecho internacional de los DDHH   University  Notre Dame
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque siempre me ha apasionado trabajar por los derechos humanos de todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe servir a todas las personas, atendiendo a las particularidades de cada contienda.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras debemos procurar maximizar el derecho de acceso a la justicia de quienes acuden al juicio de amparo como última instancia nacional para defender sus pretensiones. Debemos buscar una justicia respetuosa de las formalidades, pero más cercana a la resolución del fondo de todos los asuntos.
+
+
+## Propuestas
+
+- Privilegiar la resolución del fondo de los problemas sobre las formalidades.
+- Resolver los problemas planteados ante los órganos jurisdiccionales con sensbilidad y sentido humano.
+- Procurar la maximización de los derechos humanos.
+

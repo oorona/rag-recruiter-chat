@@ -1,0 +1,84 @@
+Nombre Candidato: EVA BARRIENTOS ZEPEDA
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 2281210497
+Correo Electronico: eva.baze07@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Análisis de sentencias, Derechos Humanos, Derechos fundamentales, Doctorado en Derecho, Especialista en Valoración Racional de la Prueba, Licenciatura en Derecho, Metodologías litigios, Máster en Derechos Humanos., Peritaje Antropológico, Perspectiva de Género, Poder Judicial de la Federación, TEPJF, Tribunal Electoral, Universidad Castilla La Mancha, Universidad de Girona, Universidad de Xalapa, Valoración Racional de la Prueba
+Tags Propósito: LGBTIQ+, adultas mayores, antropología, comités interdisciplinarios, derechos humanos, difusión, discapacidad, honestidad, imparcialidad, inclusión, justicia de género, justicia electoral, juventudes, migrantes, mujeres, participación ciudadana, peritaje, pueblos indígenas, pueblos originarios, rendición de cuentas, resoluciones judiciales., transparencia, vinculación ciudadana
+
+
+## Descripción del Candidato 
+
+Eva Barrientos Zepeda es candidata a la Magistratura de Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación. Cuenta con un doctorado en Derecho, especialización en Valoración Racional de la Prueba y un máster en Derechos Humanos. Su trayectoria académica y profesional se centra en la impartición de justicia electoral, actividad que describe como una pasión de más de 25 años.
+
+Su visión para la función jurisdiccional se basa en la transparencia, inclusión, objetividad, independencia y honestidad, buscando una judicatura cercana a la ciudadanía. Sus propuestas incluyen fortalecer la justicia para mujeres y en pueblos originarios, apoyándose en peritos y comités interdisciplinarios, así como promover la transparencia y rendición de cuentas involucrando a la ciudadanía en el proceso judicial a través de foros y audiencias.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/EvaBarrientosZe
+- https://x.com/EvaBarrientosZe
+- https://www.instagram.com/evabarrientoszepeda
+- https://www.youtube.com/@evabarrientos8056
+- https://www.tiktok.com/@evabarrientosze
+- https://mx.linkedin.com/in/evabarrientosze
+
+
+## Cursos
+
+- Taller de análisis de sentencias 2023
+- Organizado por la Universidad de Xalapa
+- ,Máster en Derechos Humanos con Perspectiva de Género por la Universidad de Castilla   La Mancha, España
+- (2022),Curso de ¿Peritaje Antropológico? impartido por el Tribunal Electoral del Poder Judicial de la Federación
+- (2015),Seminario ¿Metodologías para resolver litigios que involucran derechos fundamentales? impartido por el TEPJF
+- (2014),Especialista en Valoración Racional de la Prueba por la Universidad de Girona, España
+- (2013)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15197/9
+
+
+## Trayectoria Academica
+
+- Licenciada y doctora en Derecho
+- Especialista en Valoración Racional de la Prueba
+- Máster en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque desde hace más de 25 años ha sido mi pasión la impartición de justicia electoral con honestidad e inclusión.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La judicatura debe ser transparente, incluyente, objetiva, imparcial, independiente y profesional; pero, sobre todo, honesta y cercana a la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero, debe ser pronta y expedita; siempre protegiendo los derechos humanos, sobre todo los de las mujeres, las juventudes, las personas LGBTIQ+, indígenas, migrantes, adultas mayores, afromexicanas o con discapacidad, sin olvidar a las infancias.
+
+
+## Propuestas
+
+- Fortalecer la impartición de justicia para las mujeres apoyada de peritos; y de comités interdisciplinarios para el análisis de casos de riesgo y la emisión de medidas de protección, tal y como se tienen en las autoridades administrativas.
+- Fortalecer la impartición de justicia electoral en nuestros pueblos originarios, con antropólogos y peritos adscritos a la Defensoría Pública Electoral con el objeto de conocer el contexto de cada una de las comunidades.
+- Promover y fortalecer los principios de transparencia y rendición de cuentas en el ámbito de la jurisdicción electoral con el objetivo de involucrar a la ciudadanía en el quehacer del Tribunal, por medio de diferentes acciones de vinculación y difusión como foros de debate sobre las resoluciones judiciales, escuchatorios y audiencias de alegatos.
+

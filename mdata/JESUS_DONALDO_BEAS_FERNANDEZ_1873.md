@@ -1,0 +1,71 @@
+Nombre Candidato: JESUS DONALDO BEAS FERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jdprofesional94@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derechos Humanos, Interseccionalidad, Justicia Penal, Mediación, Poder Judicial, Proceso Penal., Suspensión Condicional, Torta, Universidad Autónoma de Aguascalientes
+Tags Propósito: Acceso a la Justicia, Bienestar Comunitario., Capacitación, Derechos Humanos, Eficiencia Judicial, Equidad, Imparcialidad, Institucionalidad, Justicia, Mejoría Continua, Protección al Inocente, Reparación del Daño, Resolución de Problemas, Sanción al Culpable, Seguridad
+
+
+## Descripción del Candidato 
+
+JESUS DONALDO BEAS FERNANDEZ es candidato a Jueces/es de Distrito por Aguascalientes, postulándose a través del Poder Legislativo Federal. Cuenta con Licenciatura en Derecho por la Universidad Autónoma de Aguascalientes y ha realizado diversos cursos de especialización en mediación, derechos humanos y justicia penal.
+
+Su motivación para buscar el cargo público se centra en garantizar la impartición de justicia, la equidad, la dignidad humana y fortalecer la seguridad. Propone la mejora continua para aumentar la eficiencia judicial y reducir los tiempos de resolución, así como la capacitación constante.  En su visión, la función jurisdiccional debe consolidarse en la protección de los derechos humanos y la justicia debe ser accesible para todos, independientemente de su condición.  Su trayectoria profesional se orienta a la resolución efectiva de problemas legales y la mejora de procesos institucionales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Mediador certificado por el Centro de Mediación del Poder Judicial del Estado de Aguascalientes,Diplomado La Suprema Corte y los Derechos Humanos,Conferencia en La tortura y sus efectos en el proceso penal,Interseccionalidad como condición para el acceso a la justicia penal,Curso Suspensión condicional del proceso
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52436/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Autónoma de Aguascalientes
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero garantizar a la ciudadanía la imparticion de justicia, la equidad, la dignidad humana y fortalecer la seguridad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi objetivo es contribuir con mi experiencia y capacidad a la mejora de la justicia y la seguridad, considero que la funcion jurisdiccional en México debe ser consolidada en base a la protección de los derechos humanos, los juicios deben ser más equitativos y buscar un impacto positivo en la sociedad; así, jueces, fiscales, defensores, asesores y otros participes, puedan cumplir los objetivos del derecho penal: esclarecer los hechos, proteger al inocente, sancionar al culpable y reparar el daño
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es un aspecto complejo que va más allá, abarcando no solo el desarrollo de la justicia, la adaptación y aplicación imparcial de las leyes, sino también que se tenga garantía de que todas las personas independientemente de su género, condición social, raza, o circunstancia económica, pueda ejercer su derecho al acceso a la imparticion de justicia.
+
+
+## Propuestas
+
+- Nuestro país enfrenta grandes retos en cuanto a seguridad y justicia se refiere, sin limitarlo a tal ámbito, los delitos de alto impacto se han incrementado de manera sustancial, lo que ha conllevado a que institucionalmente hablando, se tenga que evolucionar con el propósito de mejorar y adaptarse a la situación que se vive, por lo que propongo la mejoría continua para aumentar la eficiencia judicial, contribuir a reducir tiempos de resolución, la capacitación y adaptación constante
+- Mi labor ha estado siempre orientada a la resolución efectiva de problemas legales, con un enfoque en la mejora de los procesos institucionales y el bienestar de la comunidad. Considero buscar siempre la excelencia en cada aspecto de mi desempeño profesional, y mi objetivo sigue siendo contribuir con mi experiencia a la mejora de la justicia y la seguridad.
+- No proporcionó
+

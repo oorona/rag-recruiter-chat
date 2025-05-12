@@ -1,0 +1,78 @@
+Nombre Candidato: VICTOR HUGO CHAVEZ CALDERON
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 4361590618
+Correo Electronico: victor.hugo.chavez@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Conferencias., Derecho Administrativo, Derecho Constitucional, Derecho Público, Desarrollo Urbano, Formación, Revistas Jurídicas, Secretarios Poder Judicial, Sistemas Anticorrupción, Talleres, Turismo
+Tags Propósito: amicus curiae, artículo 17 CPEUM., derechos ambientales, derechos culturales, derechos económicos, derechos sociales, dignidad, diligencia, erradicación denegación justicia, estado de derecho, excelencia, imparcialidad, inclusión, independencia, justicia cercana, justicia completa, justicia expedita, justicia imparcial, justicia nugatoria, justicia pronta, justicia tardía, lenguaje accesible, objetividad, paridad de género, profesionalismo, transparencia, trato respetuoso
+
+
+## Descripción del Candidato 
+
+VICTOR HUGO CHAVEZ CALDERON es candidato a Juez/a de Distrito en NAYARIT, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría y cédula profesional, además de diversos cursos y especializaciones en áreas como derecho administrativo, desarrollo urbano y derecho público, todos por la Universidad Panamérica. Su trayectoria académica incluye la publicación de ensayos jurídicos y la impartición de cursos y talleres sobre temas de derecho.
+
+Su motivación para buscar el cargo es fortalecer la impartición de justicia, enfocándose en principios de objetividad, imparcialidad y accesibilidad. Propone implementar un lenguaje accesible en las sentencias, erradicar la denegación de justicia y asegurar un trato respetuoso y diligente por parte del personal del juzgado, buscando una justicia más cercana y comprensible para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BUZza1aDZ/?mibextid=wwXIfr
+- https://www.instagram.com/vchavezcalderon?igsh=bW9qNGtubTNzczd5
+- https://www.tiktok.com/@vchavezcalderon?_t=ZM-8uzGtHche34&_r=1
+
+
+## Cursos
+
+- Diplomado en Sistemas Anticorrupción por la Universidad Panamericana y otras
+- ,Especialista en Derecho Administrativo por la Universidad Panamericana
+- ,Especialista en Desarrollo Urbano y Turístico con mención honorífica por la Universidad Panamericana
+- ,Maestro en derecho público con mención honorífica por la Universidad Panamericana
+- ,Curso básico de formación y preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52763/11
+
+
+## Trayectoria Academica
+
+- Publiqué ensayos en revistas jurídicas, impartí cursos, talleres y conferencias de derecho advo
+- ,amparo y constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Encausar mi experiencia a fortalecer una impartición de justicia pronta, completa, expedita e imparcial para el pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Atiende a que, como juzgador, al resolver o dar solución a un asunto no solo debo observar los principios que rigen dicha función, como son: objetividad, imparcialidad, independencia, profesionalismo, excelencia y paridad de género. Si no que, además, lo haré de una manera comprensible (lenguaje accesible), oportuna (artículo 17 CPEUM), transparente e inclusiva, siempre buscando una justicia cercana al pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Abonamos a construir un Estado de derecho justo, democrático, equitativo e inclusivo y a la composición del tejido social, sobre todo al tomar en consideración que la impartición de justicia trasciende al ámbito de los derechos económicos, sociales, culturales y ambientales. Para la protección de esos derechos, propondré, se implemente la figura de una justicia abierta, en donde se escuche a los sectores involucrados, lo que doctrinalmente se conoce como amicus curiae, en aras de mejorar la just
+
+
+## Propuestas
+
+- Lenguaje accesible: las sentencias que se emitan serán con un lenguaje accesible, desprovistas de tecnicismos jurídicos. Es decir, se debe tomar en consideración que el destinatario de una sentencia no siempre son personas versadas en el derecho, de donde se sigue que las sentencias deben tener un formato de redacción lo más comprensible, de manera que cualquier persona las pueda comprender.
+- Erradicar la denegación de la justicia, que sea la excepción y no la regla. En otras palabras, se debe privilegiar no solo el admitir a trámite las demandas que se promuevan, sino además estudiar la solución del fondo del conflicto, evitando sentencias para efectos. Lo anterior, sin afectar la igualdad entre las partes contendientes, ello en irrestricto apego al artículo 17, de la Constitución Política Federal. En suma, se evita una justicia tardía y nugatoria.
+- Trato respetuoso, diligente y digno por parte del personal del juzgado. Ello implica que quienes tengan la oportunidad de acudir a las oficinas del Juzgado reciban, por regla general, un trato decoroso, procurando siempre que el personal muestre un rostro más humano y empático, al tomar en cuenta que los usuarios acuden porque les aqueja un problema cuya solución atañe al Juzgado.
+

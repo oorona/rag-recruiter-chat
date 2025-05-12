@@ -1,0 +1,74 @@
+Nombre Candidato: JORGE ARTURO HERNANDEZ ROMERO
+Cargo: Juezas/es de Distrito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 5539411025
+Correo Electronico: jorgea@corporativojuridicohr.org
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Criminalística, Derecho Penal, Licenciatura en Derecho, Maestría, Perito, Posgrado., Tribunal Superior de Justicia de Hidalgo
+Tags Propósito: Administración de Justicia, Ciudadanía, Comunicación, Derechos Humanos, Eficiencia, Equidad, Imparcialidad, Innovación, Justicia, Legalidad, Liderazgo, Proceso Justo, Responsabilidad Social., Sentencias, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Jorge Arturo Hernandez Romero es candidato a Jueces/as de Distrito en Yucatán, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Penal y cédula profesional, complementada con estudios en Derecho Penal, Criminalística y una Licenciatura en Derecho. 
+
+Su motivación para buscar el cargo es contribuir a la renovación y mejora de la justicia, salvaguardando los derechos de los ciudadanos. Propone una justicia que respete los derechos humanos y se apeguen a la legalidad con perspectiva social, además de fomentar la transparencia judicial mediante la apertura de criterios y procedimientos con lenguaje ciudadano. Asimismo, busca fortalecer el uso de la tecnología para agilizar los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://corporativojuridicohr.org/
+
+
+## Redes Sociales
+
+- https://facebook.com/hernandezromerojorgearturo
+- https://x.com/hrjorgearturo
+- https://www.instagram.com/hernandez_romero_jorge_arturo
+- https://www.tiktok.com/@hernandezromeroja
+
+
+## Cursos
+
+- Posgrado en Derecho Penal Perito en Criminalística,Perito en criminalística,Licenciatura en Derecho
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53549/11
+
+
+## Trayectoria Academica
+
+- Maestria en Derecho Penal por El Tribunal Superior de Justicia del Estado de Hidalgo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para mejorar y contribuir a renovar una justicia que salve guarde los derechos de los ciudadanos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debido a mi trayectoria, la experiencia con la que cuento y a todo el sentido de responsabilidad y de vocación del servicio a la sociedad para mejorar y contribuir a renovar la administración, la impartición de justicia de manera pronta, transparente, equitativa para la ciudadanía y tener el compromiso con el Estado de mejorar mis habilidades de liderazgo, comunicación con el equipo de trabajo, todo esto me ayudaría enormemente en mi vida profesional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al tener un Poder Judicial renovado y ser la autoridad encargada de administrar, impartir justicia tomando decisiones imparciales y comprometiéndome a garantizar un proceso justo y equitativo siempre salvo guardando los derechos humanos de la ciudadanía a la cual se le explique con términos muy sencillos el resultado final de la aplicación de la ley en una sentencia.
+
+
+## Propuestas
+
+- Una justicia respetando los derechos humanos. Sentencias apegadas a la legalidad y los derechos humanos con perspectiva social.
+- Transparencia judicial. Apertura para consideración de criterios, procedimientos y sentencias con lenguaje ciudadano.
+- Tecnología para agilizar procesos. Fortalecer el uso de la tecnologías de la información para agilizar los procesos.
+

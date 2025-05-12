@@ -1,0 +1,78 @@
+Nombre Candidato: JAVIER GALVEZ DELGADO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2223526295
+Correo Electronico: gadj780505@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Acoso Sexual, Actuario, Control de Convencionalidad, Derecho Procesal Penal, Derecho del Trabajo, Derechos Humanos, Educación Continua, Formación Profesional., Hostigamiento Sexual, Justicia Laboral, Juzgadores, Notario, Reforma Laboral, Secretarias de Juzgado
+Tags Propósito: Abuso de poder, Acceso a la justicia, Administración de justicia, Capacitación, Celeridad, Derechos fundamentales, Derechos laborales, Eficiencia judicial, Equidad, Estado de derecho, Garantías constitucionales, Independencia judicial, Justicia digna, Malas prácticas, Modernización judicial, Sanciones, Selección de perfiles, Supervisión judicial, Transparencia., Vocación de servicio, Ética laboral
+
+
+## Descripción del Candidato 
+
+JAVIER GALVEZ DELGADO es candidato a Magistrado de los Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para la entidad de Puebla. Cuenta con Maestría en Derecho Procesal Penal y licenciatura en Derecho, además de diversos diplomados y cursos en áreas como Derecho del Trabajo, hostigamiento, derechos humanos y control de convencionalidad.
+
+Su motivación para buscar el cargo es brindar una administración de justicia digna, humana e igualitaria. Su visión se centra en la modernización y actualización de la función jurisdiccional y la impartición de justicia, buscando eficiencia, celeridad, equidad e imparcialidad. Propone reformas constitucionales y legislativas para fortalecer la independencia del sistema judicial, una selección rigurosa de perfiles con vocación de servicio público, y la creación de un órgano de vigilancia y sanción de conductas inapropiadas de los servidores públicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jg.814179
+- https://x.com/JavierG89019758?s=08
+- https://www.instagram.com/jgd5_5?igsh=bDU1eDY1eDYxMm9yZHK4
+- https://www.youtube.com/@javiergalvez8325
+- https://www.tiktok.com/@javogalvez05
+
+
+## Cursos
+
+- Diplomado en la Especialidad en Derecho del Trabajo y Justicia laboral
+- ,Curso de Actualización Sobre la Reforma en Materia de Justicia Laboral
+- ,Curso Herramientas para Juzgar en Casos de Hostigamiento y Acoso Sexual, 2a Edición,Curso de Inducción para personas Secretarias de Juzgado de Distrito Especializados en Materia de Trabajo   Cuarta Fase
+- ,Curso Derechos Humanos y Control de Convencionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53420/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Procesal Penal; Licenciatura de Abogado Notario y Actuario; Diplomado en la Especialidad en Trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para brindar a la ciudadanía realmente una administración de justicia, con un trato digno, humano e igualitario.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actualizar y modernizar la función jurisdiccional, para que sea eficiente, efectiva y justa, con base a criterios de celeridad y equidad en la resolución de los casos, para garantizar el orden jurídico y la protección de los derechos de la ciudadanía; interpretando y aplicando la legislación para resolver las controversias con base a las dinámicas sociales de los tiempos actuales; así como erradicar las malas prácticas en dicha función que ocasiona que los trámites sean engorrosos y tardados.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actualizar y modernizar la impartición de justicia, con base en la evolución de los derechos fundamentales y garantías constitucionales, para garantizar una real equidad e imparcialidad en la toma de decisiones judiciales para el bienestar de la ciudadanía, ya que la administración de justicia es un pilar en cualquier sociedad democrática, la cual garantiza un estado de derecho, libre de prejuicios e influyentismos de cualquier índole, que genere confiabilidad y credibilidad en la ciudadanía.
+
+
+## Propuestas
+
+- Reformas constitucionales y legislativas que busquen fortalecer la independencia y eficacia del sistema judicial, lo que conlleva a mejorar la administración de justicia y ofrecer un mayor acceso a la misma a la ciudanía.
+- Selección adecuada en los perfiles de los integrantes de cada órgano jurisdiccional, que tengan una real vocación de servicio público, y con ello erradicar las malas prácticas que conllevan a una administración de justicia lenta, cara y engorrosa; y, en su caso, fomentar o fortalecer la capacitación de los servidores públicos, tanto en la función jurisdiccional como en la ética de trabajo.
+- Un órgano jurisdiccional y administrativo que realmente vigile y en su caso, sanciones las conductas de los servidores públicos en el desempeño de sus respectivas funciones, tanto jurisdiccionales como administrativas, que erradiquen las malas prácticas tanto en la prestación del servicio público, como en los diversos ambientes laborales, que en ocasiones tiende a vulnerar los derechos laborales y personales de los servidores públicos, con motivo del abuso del cargo de muchos titulares.
+

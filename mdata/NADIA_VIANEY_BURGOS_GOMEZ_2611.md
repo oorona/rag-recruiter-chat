@@ -1,0 +1,83 @@
+Nombre Candidato: NADIA VIANEY BURGOS GOMEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 2291021436
+Correo Electronico: lic.nadburgos@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Capacitación, Conciliación, Convenios Laborales, Derecho Constitucional, Doctorado en Derecho, Especialista Laboral, Generación 2022, Generación 2024., Guías Periciales, Género Laboral, Justicia Laboral, Mediación, Seguridad Social, Seminario, Taller
+Tags Propósito: Bienestar Laboral, Calidad, Capacitación Jurídica, Compromiso, Derecho Laboral, Derechos Laborales, Empoderamiento, Equilibrio Vida-Trabajo, Estabilidad Laboral, Evaluación de Impacto, Flexibilidad Laboral, Impartición de Justicia, Obligaciones Laborales, Permiso Laboral, Productividad., Responsabilidad Social, Servicio Público, Vigilancia Judicial
+
+
+## Descripción del Candidato 
+
+NADIA VIANEY BURGOS GOMEZ es candidata a Jueces/as de Distrito en Jalisco, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo, y se encuentra en proceso de obtener el grado de Doctora en Derecho. Su trayectoria académica incluye especialización laboral y diversos cursos en temas de seguridad social, justicia laboral con perspectiva de género, y sistemas de justicia laboral.
+
+Su motivación para buscar el cargo público es su interés en servir a la sociedad y contribuir a la resolución de problemas relacionados con el Derecho Laboral. Sus propuestas incluyen la implementación de capacitación jurídica básica para el empleo, la vigilancia del impacto de las resoluciones judiciales a través de entrevistas a usuarios, y la creación de políticas institucionales para armonizar la vida profesional y laboral dentro del Poder Judicial. Considera que la función jurisdiccional y la impartición de justicia deben basarse en valores, responsabilidad, conocimiento técnico y sensibilidad hacia las necesidades sociales y el contexto de los casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/165ZLPgYJ5/?mibextid=wwXIfr
+- https://x.com/nadiaburgosgom1?s=21&t=ICOoxXSk-zJhxuPV1Ed0WQ
+- https://www.instagram.com/nadburgos/?igsh=NXdscjVkNWExdzYx&utm_source=qr#
+- https://www.tiktok.com/@nadburgos?_t=ZM-8upSd6GRYhT&_r=1
+
+
+## Cursos
+
+- Seminario de Seguridad Social
+- Generación 2024
+- ,Jornadas de Capacitación sobre Guías de Pruebas Periciales
+- 2024,Juzgar con Perspectiva de Género en Materia Laboral
+- Generación 2022
+- ,Seminario Especializado El nuevo sistema de justicia laboral
+- Generación 2022
+- ,Taller sobre Conciliación, Mediación y Elaboración de Convenios en Materia de Trabajo
+- Generación 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52326/11
+
+
+## Trayectoria Academica
+
+- Futura Doctora en Derecho, cursé la Maestría en Derecho Constitucional y Amparo, tengo el grado de Especialista Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Me apasiona servir a la sociedad y me encanta contribuir en la resolución de problemas relacionados al Derecho Laboral.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de una persona servidora pública debe ser acorde a los valores del encargo, calidad en el trato, responsabilidad y compromiso social, pues la labor que se desempaña puede impactar en la vida de las personas, incluso en su patrimonio y el de su familia, de ahí que se requiera personal capaz de atender las necesidades sociales, que tengan conocimiento técnico, práctica profesional pero también sensibilidad y, con la habilidad de expresar sus decisiones de forma sencilla.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras tiene la obligación conocer el contexto de los problemas que se le presentan, para resolver conforme a derecho y aplicar los ajustes razonables necesario en cada caso, pues más allá de un expediente, es la estabilidad laboral y económica de una persona, seguramente también la de su familia; eso es la impartición de justicia, una responsabilidad que requiere un conocimiento pleno de la materia, valor para abandonar prejuicios y sensibilidad para apreciar las causas ajenas.
+
+
+## Propuestas
+
+- Capacitación jurídica básica para el empleo. Implementar instrucción académica (obligatoria), para empoderar a las juventudes y a la sociedad en general respecto a los derechos y obligaciones que tienen en las relaciones laborales, ya sea como empleador o persona trabajadora, con el objetivo de construir un ambiente social que les permita tomar decisiones informadas sobre su actuar en el ámbito laboral y con ello evitar futuros conflictos, o bien, facilitar la resolución de los mismos.
+- Vigilancia. Incluir en las visitas programadas la entrevista de usuarios justiciables sobre la cercanía, comprensión e impacto que tuvo la participación de la persona juzgadora en la resolución de su caso, con el objetivo de tomar conciencia de los egresos, para conocer si los mismos se traducen en una solución real y directa al problema que le fue propuesto e inclusive para verificar la percepción de relevancia de la decisión adoptada aunque no haya sido reportada como tal.
+- Aspectos laborales del Poder Judicial. Implementar políticas institucionales que permitan a las personas servidoras públicas armonizar la vida profesional y laboral, conceder a las mujeres con hijos menores a 6 años un permiso para desempeñar labores a distancia, crear un turno matutino y, vespertino acorde a las cargas laborales, autorizar al personal de forma aleatoria el desempeño de labores fuera de la oficina (sujeto a productividad), porque las jornadas extenuantes son un problema real.
+

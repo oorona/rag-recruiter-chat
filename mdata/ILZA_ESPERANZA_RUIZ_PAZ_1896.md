@@ -1,0 +1,86 @@
+Nombre Candidato: ILZA ESPERANZA RUIZ PAZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6862122090
+Correo Electronico: ilzaruiz@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CEP., Capacitación en el Extranjero, Derecho Penal, Derechos Humanos, Doctorado, Género, Justicia Penal Acusatorio, Licenciatura en Derecho, Litigación, Maestría, Poder Judicial, Secretarios
+Tags Propósito: Atención a la comunidad., Confianza Ciudadana, Contexto social, Defensoría Pública, Derechos humanos, Desigualdades, Doctora en Derecho, Experiencia 20 años, Honestidad, Igualdad ante la ley, Imparcialidad, Juez Penal Federal, Justicia itinerante, Justicia pronta, Justicia social, Lenguaje claro, Objetividad, Rectitud, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+ILZA ESPERANZA RUIZ PAZ es candidata a Jueza de Distrito en Baja California, postulada por el Poder Judicial de la Federación. Cuenta con estudios de Doctorado en Derecho Penal y 20 años de experiencia laboral y académica, incluyendo trabajo en Defensoría Pública. Motiva su candidatura la convicción de ser la mejor opción para el cargo, destacando su preparación y el impacto positivo que considera puede generar en la sociedad.
+
+Su visión se centra en transformar la percepción ciudadana hacia un sistema judicial más transparente y confiable, con un actuar ético, imparcial y apegado a los principios legales. Sus propuestas incluyen simplificar los procedimientos judiciales para agilizar los tiempos y facilitar la comprensión ciudadana de las resoluciones, promover la justicia social garantizando la igualdad de derechos y oportunidades, e implementar una justicia itinerante para atender a poblaciones vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ilza.banales?mibextid=wwXIfr&mibextid=wwXIfr
+- https://www.instagram.com/ilza_esperanza_ruiz_paz?igsh=NTc4MTIwNjQ2YQ3D3D&utm_source=qr
+- https://www.tiktok.com/@ilzaruiz?_t=ZT-8uulYHF5SbT&_r=1
+
+
+## Cursos
+
+- Curso Básico de formación y preparación para secretarios del Poder Judicial de la Federación
+- Escuela Judicial
+- ,Diplomado
+- El nuevo sistema de justicia penal acusatorio, de frente a la sociedad
+- Escuela Judicial
+- ,Diplomado
+- Derechos Humanos desde la Perspectiva de Género
+- Comisión Nacional de Derechos Humanos
+- ,Capacitación en el extranjero
+- Academia de Destrezas en Litigación XXVII, California Western School Law
+- EUA,Diplomado
+- Desarrollo Integral con Perspectiva de Derechos Humanos
+- Comisión Nacional de Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54621/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho UABC, Maestría y Doctorado en Derecho Penal
+- De acuerdo con el sistema de justicia penal CEP
+
+
+## Motivo para buscar el Cargo Publico
+
+SOY LA MEJOR CANDIDATA A JUEZ PENAL FEDERAL EN BC. TENGO 20 AÑOS DE EXPERIENCIA LABORAL Y ACADÉMICA. DOCTORA EN DERECHO.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que mi desempeño haría un impacto positivo en la sociedad. Como jueza de Distrito, buscaría contribuir a la transformación de la percepción ciudadana hacia un sistema judicial más transparente y confiable. Aspiro a generar confianza en el sistema judicial. Como desafío y desarrollo personal. Considero que este cargo representaría, para mí, una oportunidad para crecer profesionalmente mientras enfrento desafíos que impacten de manera positiva en la justicia mexicana. Estoy muy preparada
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi actuar sería con ética y honestidad, quiero actuar con rectitud, transparencia y apego a los principios éticos que exige la función judicial. Quiero evitar cualquier conflicto de interés o conducta que pueda comprometer mi integridad. Como Jueza, actuaría con imparcialidad y objetividad, cuento con capacidad para resolver conflictos sin prejuicios, puedo garantizar igualdad ante la ley. Soy la mejor opción para Jueza de Distrito Penal Federal en Baja California, la candidata con más estudios.
+
+
+## Propuestas
+
+- Justicia pronta y entendible al ciudadano. Si bien es cierto las audiencias llevan requisitos y orden, en muchas ocasiones se vuelven audiencias con formalismos innecesarios y carentes de oralidad, demasiado tiempo con las partes inclusive ya dentro de la sala sin que inicien o concluyan las audiencias, simplificaría los formalismos y tiempos vacíos dentro de las salas de audiencias. Y explicaría mis resoluciones con un lenguaje claro y entendible al ciudadano.
+- Justicia social. Buscaría garantizar la igualdad de derechos y oportunidades para todos, promoviendo una sociedad justa y equitativa donde se respeten los derechos humanos y se reduzcan las desigualdades. Independientemente de su origen, género, condición socioeconómica, raza o creencias. Se requieren jueces que interpreten el texto de la ley, pero también el contexto social de las personas. 20 años de experiencia laboral en Defensoría Pública respaldan mi lucha por la justicia social.
+- Justicia itinerante. Es un servicio judicial que se brinda en lugares con pocos recursos económicos o en situación de pobreza. El objetivo es que las personas en condición de vulnerabilidad puedan ejercer sus derechos fundamentales, se requieren Jueces que tengan puertas abiertas para atender a los ciudadanos y escucharlos, que la gente sienta confianza en el sistema judicial mi principal propuesta es atender a la comunidad. Con 20 años de experiencia en Defensoría Pública, sé atender a la gente
+

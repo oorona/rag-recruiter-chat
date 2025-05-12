@@ -1,0 +1,42 @@
+# Python
+__pycache__/
+*.pyc
+*.pyo
+*.pyd
+.Python
+env/
+venv/
+ENV/
+env.bak/
+venv.bak/
+
+# Flask
+instance/
+.webassets-cache/
+
+# Environment files
+.env
+.env.*
+
+# IDEs and editors
+.idea/
+.vscode/
+*.swp
+*~
+
+# Operating System Files
+.DS_Store
+Thumbs.db
+
+# Distribution / packaging
+dist/
+build/
+*.egg-info/
+*.egg
+
+# Logs
+*.log
+
+# Other
+*.pot
+*.py[cod]

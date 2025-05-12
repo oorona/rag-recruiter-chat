@@ -1,0 +1,80 @@
+Nombre Candidato: JOSE HECTOR SANDOVAL PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3310464868
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Centros de Justicia Penal Federal, Comunicación, Especialización., Expediente Electrónico, Liderazgo, Poder Judicial de la Federación, Resolución de Conflictos, Secretaria, Sise, Sistema Penal Acusatorio, Universidad de Guadalajara
+Tags Propósito: Acceso a la justicia, Agilización de procesos, Cercanía a la sociedad, Confianza ciudadana., Derechos Humanos, Eficiencia, Eliminación de privilegios, Equidad, Estado de derecho, Igualdad, Imparcialidad, Impunidad, Justicia, Transformación del Poder Judicial, Transparencia, Trato digno, Trato justo
+
+
+## Descripción del Candidato 
+
+Jose Hector Sandoval Perez es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Es Licenciado en Derecho por la Universidad de Guadalajara, con especializaciones y cursos en temas del Sistema Penal Acusatorio y gestión judicial.
+
+Su motivación para buscar el cargo es transformar el Poder Judicial, resolviendo los casos de manera pronta y ofreciendo un servicio cercano a la ciudadanía. Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la justicia, equidad, igualdad, imparcialidad, eficiencia y accesibilidad. Sus propuestas principales son brindar un servicio cercano y de calidad, acabar con privilegios e impunidad, y agilizar los procesos y trámites para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/licjosehectorsandoval
+- https://x.com/licjosehector?s=11
+- https://www.instagram.com/lic.hectorsandoval
+- https://www.tiktok.com/@lic..jose.hector?_t=ZM-8urJS7vXYQ9&_r=1
+
+
+## Cursos
+
+- ACREDITACIÓN DEL CURSO DE FORMACIÓN Y PREPARACIÓN DE PERSONAS SECRETARIAS DEL PODER JUDICIAL DE LA FEDERACIÓN
+- ,CURSO SISTEMA PENAL ACUSATORIO
+- SITUACIÓN ACTUAL
+- ,CURSO ESPECIALIZADO PARA PERSONAS ADMINISTRADORAS DE LOS CENTROS DE JUSTICIA PENAL FEDERAL,CURSO MÓDULOS DE OPERACIÓN PARA LA INTEGRACIÓN DEL EXPEDIENTE ELECTRÓNICO EN EL SISE ¿ III
+- ,CURSO INTRODUCTORIO: ESTRATEGIAS PRÁCTICAS PARA LA RESOLUCIÓN EFECTIVA DE CONFLICTOS
+- LIDERAZGO Y COMUNICACIÓN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55026/11
+
+
+## Trayectoria Academica
+
+- Licenciatura de Abogado por la Universidad de Guadalajara
+- Especializaciones y cursos en Sistema Penal Acusatorio
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es hora de Transformar al Poder Judicial, de resolver de manera pronta y expedita y de ser un juez cercano a todo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional en México debe garantizar justicia, equidad e igualdad, asegurando que cada persona reciba un trato justo y digno. Es un servicio esencial que debe atender con imparcialidad, eficiencia y cercanía a la sociedad, protegiendo los derechos humanos y fomentando la confianza en las instituciones a través de un acceso inclusivo y transparente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México debe ser imparcial, equitativa y accesible, eliminando privilegios y distinciones que generen desigualdad. Es fundamental garantizar que todos, sin excepción, reciban un trato justo y digno, con un servicio eficiente y transparente que fortalezca la confianza ciudadana en las instituciones y promueva un verdadero estado de derecho.
+
+
+## Propuestas
+
+- Brindar un servicio cercano y de calidad a todos por igual
+- Acabar con privilegios e impunidad.
+- Agilizar los procesos y trámite para la ciudadanía
+

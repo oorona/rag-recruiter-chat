@@ -1,0 +1,76 @@
+Nombre Candidato: ALFONSO ROIZ ELIZONDO
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 8110369193
+Correo Electronico: alfonsoroiz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Constitucional, Derecho Electoral, Derechos Humanos, Experiencia Electoral, Justicia Electoral, Maestría, TEPJF, UANL, UDEM, UMM, Universidad Nacional Autónoma de México, Universidad Pablo de Olavide, Universidad de Salamanca.
+Tags Propósito: Sistema democrático, accesibilidad, certeza jurídica, consistencia, criterios judiciales, decisiones consistentes., derechos humanos, función judicial, impugnaciones, justicia accesible, plenitud de jurisdicción, precedentes, pro actione, procesos electorales, responsabilidad judicial, solución de controversias
+
+
+## Descripción del Candidato 
+
+Alfonso Roiz Elizondo es candidato a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con una Maestría en Derecho y más de 19 años de experiencia profesional en materia electoral, complementada por estudios de posgrado en Derecho Constitucional, Derechos Humanos y Justicia Electoral en diversas universidades nacionales e internacionales.
+
+Su motivación para el cargo es contribuir con el fortalecimiento del sistema democrático, enfocándose en una función jurisdiccional accesible y consistente. Sus propuestas centrales se orientan a asegurar la resolución efectiva de los juicios, maximizar el uso de la facultad de plenitud de jurisdicción, y garantizar la consistencia en las decisiones judiciales, priorizando la resolución del fondo de los asuntos y evitando evasivas o cambios injustificados de criterios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/RoizAlfonso
+- https://x.com/RoizAlfonso
+- https://www.instagram.com/roizalfonso
+- https://www.tiktok.com/@roizalfonso
+
+
+## Cursos
+
+- Maestría en Derecho, Universidad Nacional Autónoma de México,Master en Cuestiones Contemporáneas sobre Derechos Humanos, Universidad Pablo de Olavide,Especialidad en Derecho Electoral, Universidad Nacional Autónoma de México,Especialidad en Justicia Electoral, Centro de Capacitación Judicial Electoral del TEPJF,Posgrado en Derecho Constitucional, Universidad de Salamanca
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17896/9
+
+
+## Trayectoria Academica
+
+- Profesor de Derecho en la UANL, UDEM y UMM
+- Con más de 19 años de experiencia profesional en materia electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir a mi país, aportando mi esfuerzo y experiencia en pro del fortalecimiento de nuestro sistema democrático.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función judicial debe ser cercana a la ciudadanía, pero sobre todo ACCESIBLE y CONSISTENTE. 1. Las impugnaciones deben ser realmente atendidas en cuanto al fondo y reducir al máximo las evasivas como desechamientos o inoperancias. 2. Debe maximizarse el apego a los precedentes y la consistencia en las decisiones, para contar con criterios judiciales claros. Ya de por sí la ley es compleja como para que los tribunales tampoco tengan criterios claros en sus resoluciones
+
+
+## Vision sobre la Imparticion de Justicia
+
+1. La impartición de justicia tiene sentido solamente si se resuelve realmente lo que se pide, sin evasivas innecesarias. La ciudadanía tiene derecho a que le digan que tiene razón o no. Para ello, es factible usar facultades como la de plenitud de jurisdicción para resolver definitivamente las controversias. 2. Mismos casos, mismas soluciones. Debe reivindicarse la consistencia de los precedentes, evitando las variaciones interpretativas que afectan la certeza.
+
+
+## Propuestas
+
+- ERRADICAR LA POLÍTICA DE DECIDIR SIN RESOLVER. En acatamiento del artículo 17 de la Constitución y 25 de la Convención Americana sobre Derechos Humanos debe privilegiarse el principio de favorecimiento de la acción (principio pro actione). Hay que buscar la manera de darle entrada a los juicios y no darle la vuelta sin que se resuelva el fondo.
+- RECUPERAR EL USO DE LA FACULTAD DE PLENITUD DE JURISDICCIÓN. Es necesario resolver los asuntos, evitando devolver los expediente a las instancias previas. Que la llegada a la Sala Regional Monterrey implique obtener una sentencia que decida definitivamente el problema planteado y, a partir de eso, se sigan los procesos democráticos. Bajo el entendido de que eso implica la solución terminal en la mayoría de los casos, pues solo excepcionalmente procede la revisión en reconsideración.
+- CONSISTENCIA EN LAS DECISIONES. Mismo caso, misma solución, sin mirar a quién. Los tribunales deben asumir la responsabilidad de dar certeza a los procesos electorales y ejercicio de derechos con resoluciones consistentes y sin cambios de criterios injustificados. Son las circunstancias distintas las que justifican una decisión distinta, no se vale que las diferencias se den en razón de la o el promovente.
+

@@ -1,0 +1,80 @@
+Nombre Candidato: ROSA LUZ GOMEZ MARQUINA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3322542787
+Correo Electronico: luz.marquinalab@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Amparo, Derecho, Derecho Laboral, Derechos Humanos, Doctorado, Formación de Secretarios, Máster, Poder Judicial de la Federación, Seguridad Social, Sistema de Justicia Laboral, Universidad de Guadalajara.
+Tags Propósito: Accesibilidad a la justicia, Calidad del servicio, Derechos humanos, Empatía, Estado de derecho, Formación continua, Función jurisdiccional, Imparcialidad, Independencia judicial, Integridad, Justicia, Justicia social, Legalidad, Profesionalización, Protección de derechos., Resolución de conflictos, Sensibilidad social, Servicio público, Transparencia
+
+
+## Descripción del Candidato 
+
+Rosa Luz Gomez Marquina es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulada por el Poder Ejecutivo Federal. Cuenta con una formación académica en Derecho, incluyendo estudios de Doctorado en curso, una Maestría en Derecho Público y el título de Abogada por la Universidad de Guadalajara. Su trayectoria académica y profesional se complementa con diversos cursos y diplomados en materia laboral, seguridad social, amparo y derechos humanos impartidos por el Instituto de la Judicatura Federal y la Universidad Iberomericana.
+
+La candidata expresa su motivación para buscar el cargo en su convicción de que la impartición de justicia puede contribuir a la construcción de una mejor sociedad.  Sus propuestas se centran en acercar la justicia a la ciudadanía a través de sentencias de fácil comprensión, la profesionalización continua de los operadores jurídicos, y el fomento de un sentido social y empático en la administración de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://luzmarquina.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574801903161
+- https://x.com/luz_marquin?s=21&t=WT4Ocp2MaOo4eDh_CxdUeQ
+- https://www.instagram.com/luz.marquina.mx/
+- https://www.youtube.com/@Luz.Marquina
+- https://www.tiktok.com/@luz.marquina.mx
+
+
+## Cursos
+
+- Diplomado Práctico en Materia Laboral, Seguridad Social y Amparo, Instituto de la Judicatura Federal,Curso de inducción para los operadores jurídicos del nuevo sistema de justicia laboral, IJF,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, IJF
+- ,Diplomado en Derechos Humanos en el Poder Judicial de la Federación
+- Iberoamericana,Sensibilización en Derechos Humanos, hacia la Cultura del respeto a las personas
+- IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53176/10
+
+
+## Trayectoria Academica
+
+- Doctoranda en Derecho, UP
+- Máster en Derecho Público, Universitat Abat Oliba CEU
+- Abogada, Universidad de Guadalajara
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque estoy convencida de que la impartición de justicia puede trascender en la construcción de una mejor sociedad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es clave en la construcción de una sociedad democrática y en la consolidación del Estado de derecho a fin de garantizar la protección de los derechos humanos de todas y todos. Por ello, se requiere de una actualización constante y profundo sentido social. Por lo que mi compromiso, es la formación continua y la independencia en la toma de decisiones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una vocación que requiere compromiso con los principios de legalidad, justicia e independencia. Conlleva la responsabilidad de resolver conflictos de manera completa, pronta y expedita; garantizar derechos para construir una sociedad más justa y preservar el Estado de derecho, siempre con sensibilidad social. Como magistrada, mi deber sería aplicar la ley con imparcialidad, independencia, y estricto apego a los derechos humanos.
+
+
+## Propuestas
+
+- A fin de mejorar la función jurisdiccional, es importante que la justicia no se sienta lejana ni ajena, y una de las formas de acercarla a las personas, es que las sentencias dictadas sean de fácil comprensión para todas y todos, procurando siempre soluciones de fondo.
+- Tener una preparación continua y profesionalización en el servicio, de tal forma que todas las personas que se vean en la necesidad de acudir a un Tribunal, tengan la certeza de que sus conflictos serán estudiados integralmente, y resueltos a partir de la reflexión y el conocimiento pleno del derecho.
+- Ser un constante impulso en las personas colaboradoras de los órganos de justicia, para que se mantengan actualizadas, íntegras, respetuosas, y actúen siempre con empatía y respeto hacia las personas usuarias del sistema de justicia; además, de promover el sentido social, en el el entendimiento de que el servicio público requiere vocación y que la impartición de justicia es una tarea que trasciende en la vida de todas y todos.
+

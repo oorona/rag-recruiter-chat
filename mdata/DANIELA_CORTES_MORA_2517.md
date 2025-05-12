@@ -1,0 +1,86 @@
+Nombre Candidato: DANIELA CORTES MORA
+Cargo: Juezas/es de Distrito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: 7715682560
+Correo Electronico: dcortesmora@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Atención al Ciudadano, Conciliación, Consejo de la Judicatura, Derecho del Trabajo, Doctorado en Derecho Procesal Laboral, Formación Judicial, Judicatura Federal, Justicia Laboral, Licenciatura en Derecho, Maestría en Género y Derecho, Mediación, Poder Judicial de la Federación, Sector Público, Seguridad Social, Universidad Autónoma de Hidalgo.
+Tags Propósito: Acceso a la Justicia, Capacidad, Cero Tolerancia, Conciliación, Corrupción, Debido Proceso, Derechos Humanos, Digitalización, Dignidad Humana, Eficiencia, Equidad, Expediente Electrónico, Experiencia, Género, Honestidad, Imparcialidad, Inclusión., Justicia Laboral, Legalidad, Lenguaje Claro, Mediación, Medio Ambiente, Paz Social, Recursos Eficientes, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Daniela Cortes Mora es candidata a Jueza/es de Distrito en Hidalgo, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Doctorado y una trayectoria académica en Derecho, con especializaciones en Derecho del Trabajo, Género y Derecho Procesal Laboral. Su motivación para buscar el cargo público es contribuir a la impartición de justicia laboral con vocación de servicio y respeto a la dignidad humana.
+
+Su visión se centra en una labor jurisdiccional eficiente, transparente e inclusiva, y propone optimizar la duración de los procesos laborales mediante el uso de la mediación y la conciliación, así como la implementación de herramientas tecnológicas. Busca impartir justicia con principios de honestidad, perspectiva de género y respeto a los derechos humanos, priorizando un lenguaje claro y accesible. Adicionalmente, propone la utilización responsable de recursos materiales y tecnológicos, con un enfoque en la digitalización y la cero tolerancia a la corrupción.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572751962826
+- https://x.com/DaniCortes_Mora
+- https://www.instagram.com/daniela_cortes_mora/
+- https://www.tiktok.com/@daniela_cortes_mora
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral
+- Escuela Federal de Formación Judicial
+- ,Especialidad en curso básico de formación y preparación de secretarios del Poder Judicial de la Federación
+- ,Diplomado en materia de Seguridad Social
+- Instituto de la Judicatura Federal
+- ,Diplomado en Mediación y Conciliación
+- Consejo de la Judicatura del Poder Judicial del Estado de Hidalgo
+- ,Certificado de competencia laboral en atención al ciudadano en el sector público
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52916/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la Universidad Autónoma de Hidalgo
+- Mtra
+- en Género y Derecho
+- Dra
+- en Derecho Procesal Laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Para contribuir a la impartición de la justicia laboral con vocación de servicio y respeto a la dignidad humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Siempre he creído que la labor jurisdiccional debe tener como objetivo la resolución oportuna de los procesos, tomando como base el uso eficiente de los recursos materiales y tecnológicos; que se garantice la transparencia en el desempeño de los servidores públicos y se propicie la inclusión y respeto de las personas usuarias a través de un lenguaje claro, usando herramientas como la conciliación para la resolución efectiva de los conflictos y con ello fortalecer la confianza en las y los jueces
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de la justicia laboral en nuestro país ha sido percibida como sinónimo de procesos tediosos, largos y caros, por eso es importante que la sociedad encuentre en las y los jueces, a personas cercanas, honestas, capacitadas y con experiencia en el ámbito de sus competencias, que emitan decisiones prontas en el marco de la legalidad y respetando el debido proceso, la imparcialidad y los derechos humanos, lo que propicia la paz y justicia social
+
+
+## Propuestas
+
+- Optimizar el tiempo en la duración de los procesos laborales a fin de que sean ágiles y no tediosos para los usuarios, utilizando de manera efectiva la mediación y la conciliación en el tribunal o de manera itinerante, como forma alternativa en la solución de los conflictos, así como emplear las herramientas tecnológicas que faciliten la comunicación a distancia, lo que dará como resultado la garantía de procesos transparentes con apego a la Ley.
+- Impartir justicia laboral con principios y valores, implementando protocolos de atención al ciudadano, haciendo realidad la justicia social de una manera cercana, honesta, humana, equitativa, imparcial y con perspectiva de género, poniendo en el centro de cada decisión la dignidad de las personas, con respeto absoluto a sus derechos humanos y priorizando la emisión de sentencias con lenguaje claro y accesible para que las personas comprendan sus derechos y procesos.
+- Utilizar de manera responsable y eficiente los recursos materiales y tecnológicos, reducir el uso del papel para contribuir en el respeto al medio ambiente, dando prioridad al expediente electrónico y los medios digitales para agilizar los procesos e implementar las medidas que sean necesarias para lograr la inclusión de todas las personas. Propongo una justicia laboral con un enfoque de cero tolerancia a la corrupción.
+

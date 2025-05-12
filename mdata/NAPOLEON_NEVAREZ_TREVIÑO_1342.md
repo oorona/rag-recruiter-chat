@@ -1,0 +1,75 @@
+Nombre Candidato: NAPOLEON NEVAREZ TREVIÑO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8115548177
+Correo Electronico: napoleonnevarez@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Público Comparado, Derechos Humanos, Doctorado., Función Judicial, Licenciatura en Derecho, Maestría en Derecho Procesal Constitucional, Poder Judicial de la Federación, Tratados Internacionales
+Tags Propósito: acceso a la justicia, administración de justicia, beneficio, calidad moral, capacitación, claridad., derechos fundamentales, estabilidad emocional, experiencia, inclusión, justicia social, orden público, ponderación, preparación académica, respeto, simplificación, valores
+
+
+## Descripción del Candidato 
+
+NAPOLEON NEVAREZ TREVIÑO es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde NUEVO LEON para el Poder Ejecutivo Federal. Cuenta con estudios concluidos de Doctorado y una trayectoria académica en Derecho, con especialización en Derecho Procesal Constitucional. Su motivación para buscar el cargo se centra en contribuir a la justicia social y el orden público.
+
+Su visión para la función jurisdiccional enfatiza la necesidad de juzgadores con alta calidad moral y preparación académica, sensibles a las necesidades de la sociedad. Sus propuestas incluyen simplificar las sentencias para reducir el rezago, ofrecer capacitación constante en aspectos profesionales y emocionales a los integrantes de la administración de justicia, y priorizar el acceso a la justicia con un enfoque en la protección de los derechos fundamentales y el beneficio social, alejándose de formalismos excesivos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1LTD5MfTAH/?mibextid=wwXIfr
+- https://x.com/napoleonnt?s=21&t=szrGRiMhmlydPsYWByPOpw
+- https://www.instagram.com/napoleon_nevarez_t?igsh=Y3p1enhhOTQ3a2g3
+- https://www.tiktok.com/@napoleon.nevarez?_t=ZM-8uxuaBmlig2&_r=1
+
+
+## Cursos
+
+- Estándares Internacionales para la aplicación de los Derechos Humanos
+- ,Especialización sobre Aplicación de los Tratados Internacionales en Resoluciones Judiciales,Derecho Público Comparado en la Investigación Jurídica,Vacacional a la Función Judicial,Basico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54603/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, Maestro en Derecho con Orientación en Derecho Procesal Constitucional y con Doctorado concluido
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es el medio a través del cual se puede contribuir para alcanzar la justicia social y el orden público.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una doble visión. Al interior, se requiere de juzgadores con calidad moral y valores que les permitan crear una ambiente laboral inclusivo y de respeto mutuo, en tanto que al exterior, que cuenten con amplia preparación académica y laboral, así como con vasta experiencia en la materia, al igual que con sensibilidad frente a los problemas y necesidades de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe estar al alcance de cualquier persona y ser reforzada con las herramientas necesarias para que ante cualquier desventaja sea equilibrada. También, debe estar alejada de formulismos y en cambio, cercana al mayor beneficio dentro de los tiempos que permitan alcanzarla. Su fin no deber ser otro que el del reconocimiento y protección de los derechos fundamentales, así como el de su ponderación o proporción cuando interactúan con otros para que de esa manera prevalezca el orden público.
+
+
+## Propuestas
+
+- Simplificar las sentencias como medio para abatir el rezago. Con esto no quiero decir que se dejen de resolver todos y cada uno de los puntos sometidos a estudio. Por el contrario, implica su solución de una manera clara y con sustancia, sin anteponer transcripciones o resúmenes extensos de conceptos de violación o agravios en los que se pierde la causa de pedir.
+- Capacitación constante tanto en el ámbito profesional, como en el lado humano de quienes forman parte de la administración de justicia, dado que ésta no podría alcanzarse si sus integrantes adolecen de una estabilidad emocional.
+- Debe estar alejada de formulismos y en cambio, cercana al mayor beneficio. Su fin no deber ser otro que el del reconocimiento y protección de los derechos fundamentales, así como el de su ponderación o proporción cuando interactúan con otros para que de esa manera prevalezca el orden público.
+

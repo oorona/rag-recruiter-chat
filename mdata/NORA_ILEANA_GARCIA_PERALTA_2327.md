@@ -1,0 +1,78 @@
+Nombre Candidato: NORA ILEANA GARCIA PERALTA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 9512787591
+Correo Electronico: noraileanagp@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Defensa Pública Federal, Derecho, Derecho Penal, Derechos Humanos, Educación Superior, IFDP., IIJ UNAM, Investigación Social, Juicios Orales, Licenciatura, Litigación Penal, Maestría, Posgrado, Protocolo de Estambul, UNAM, Universidad Iberoamericana, Victimas de Violencia
+Tags Propósito: certeza jurídica., conflictividad social, derechos humanos, empatía, imparcialidad, justicia, justicia social, legalidad, participación ciudadana, paz social, rendición de cuentas, reparación del daño, resolución de conflictos, transparencia, víctimas
+
+
+## Descripción del Candidato 
+
+Nora Ileana García Peralta es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho por la Universidad Nacional Autónoma de México (UNAM) y cédula profesional. Su formación incluye cursos en litigación penal, derechos humanos, metodología de investigación social y juicios orales.
+
+Su motivación para buscar el cargo es servir a la sociedad con un enfoque en el trato digno y respeto a los derechos humanos.  Su visión de la función jurisdiccional se centra en la cercanía a la ciudadanía, la confianza en el sistema de justicia a través de sentencias garantistas, la transparencia y la resolución de conflictos sociales.  Sus propuestas incluyen la imparcialidad con empatía hacia las víctimas, la atención a las dimensiones colectivas de los conflictos y un compromiso para contribuir a la paz social a través de sus sentencias.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1FYgw76SfJ
+- https://x.com/NoraGarca11069?t=bwnpmQ87Uz_-8T4uWDKi2Q&s=09
+- https://www.instagram.com/noraileanagarciaperalta?igsh=MXYyamU5bXJ4d244NQ==
+- https://www.tiktok.com/@nora.garciaencdmx?_t=ZM-8uUb2uWpn7d&_r=1
+
+
+## Cursos
+
+- Curso Litigación Penal Estratégica en Audiencias Preliminares, IIJ UNAM,Curso La perspectiva psicosocial en la atención a personas víctimas de violencia y violaciones a derechos humanos,Curso autogestivo El Protocolo de Estambul y la Defensa Pública Federal
+- Sexta edición
+- IFDP,Diplomado en Metodología de la Investigación Social
+- IIJ UNAM,Curso Práctico de Juicios Orales, Universidad Iberoamericana
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53263/11
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestra en Derecho egresada de la Universidad Nacional Autónoma de México (UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para desempeñar un servicio comprometido con la sociedad, así como un trato digno y respetuoso de los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe estar cercana a las personas, no desligarse de la realidad social. Por una parte, debe generar confianza en el sistema de justicia con sentencias garantistas y protectora de derechos humanos, apegadas a las normas jurídicas, pero también debe generar mecanismos de transparencia, de rendición de cuentas, de participación de la ciudadanía, además de generar un diálogo con los otros poderes de la unión con el fin de resolver la conflictividad social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ceñirse a las normas previamente establecidas y también cumplir con las obligaciones del Estado en materia de derechos humanos. Aunque sus procesos deben ser imparciales, ello no significa actuar sin empatía o con indolencia ante el sufrimiento de las víctimas del delito y de violaciones a derechos humanos. Para abonar a una auténtica justicia es necesario escucharlas, entender sus contextos y garantizar la reparación del daño.
+
+
+## Propuestas
+
+- Imparcialidad, legalidad y certeza jurídica con empatía hacia las personas y, de manera relevante, hacia las víctimas del delito y de violaciones a derechos humanos.
+- Resolución de conflictos atendiendo no solo a la dimensión individual de los involucrados, sino también a la dimensión colectiva: comunitaria, grupal, familiar, etc.
+- Compromiso de las personas juzgadoras para atender y resolver la conflictividad social, a través de sentencias que permitan transitar al país hacia escenarios de paz social.
+

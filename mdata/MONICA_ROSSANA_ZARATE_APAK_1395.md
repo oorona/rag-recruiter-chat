@@ -1,0 +1,77 @@
+Nombre Candidato: MONICA ROSSANA ZARATE APAK
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9515471852
+Correo Electronico: mona17.18@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Capacitación Judicial Electoral, Comunicación Política, Comunicación Social, Código Nacional de Procedimientos Civiles, Defensoría Pública Federal, Derecho Administrativo, Derecho Constitucional, Derecho Familiar, Derecho Internacional Humanitario, Derecho Penal, Derechos Humanos, Doctorado en Derecho, Inglés para Abogados, Maestría en Derecho Familiar., Razonamiento Probatorio
+Tags Propósito: Argumentación jurídica., Capacitación, Certeza jurídica, Compromiso social, Código Nacional, Derechos humanos, Digitalización, Eficiencia, Empatía, Expedientes electrónicos, Humanismo, Inteligencia artificial, Juicios orales, Justicia, Justicia expedita, Justicia incluyente, Justicia pronta, Profesionalización, Proximidad, Razonamiento probatorio, Tecnología
+
+
+## Descripción del Candidato 
+
+Mónica Rossana Zárate Apak es candidata a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulada por el Poder Ejecutivo Federal. Cuenta con doctorado en derecho y cédula profesional, complementada con una extensa formación académica que incluye diversas maestrías, especialidades y diplomados en áreas como derecho constitucional, penal, familiar, derechos humanos, comunicación social y política, y justicia digital.
+
+Su motivación para buscar el cargo se basa en el servicio a su país y a la sociedad, con un enfoque en una función jurisdiccional humanista y cercana a la ciudadanía. Sus propuestas se centran en mejorar la calidad del servicio judicial a través de un trato más empático, la capacitación continua de los juzgadores en áreas clave como razonamiento probatorio y nuevas tecnologías, y la actualización en temas de justicia digital para agilizar procesos y garantizar una justicia pronta, expedita, social e incluyente.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573861640981
+- https://x.com/monicazaap
+- https://www.instagram.com/mnicazrate?igsh=MWlwY2g5YTI5ejNkMQ3D
+- https://www.tiktok.com/@monicazarateapak
+- https://mx.linkedin.com/in/mC3B3nica-zC3A1rate-apak-27541824
+
+
+## Cursos
+
+- Maestría en Derecho Constitucional y Administrativo; Maestria en Derecho penal; Especialidad en Defensoría Pública Fed
+- ,Master en el Código Nacional de Procedimientos Civiles y familiares; Master en Razonamiento probatorio,Diplomado en Derecho Familiar; Diplomado en inglés para abogados; Diplomado en Sistema Interamericano en Derechos Hum
+- ,Maestría en Comunicación Social y Política; Centro de Capacitación Judicial Electoral del Tribunal Electoral del PJF,Diplomado en Derecho Internacional de los Derechos Humanos; Diplomado en Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54740/10
+
+
+## Trayectoria Academica
+
+- Doctora en derecho , cedula profesional 14187897, curso actualmente la maestría en derecho familiar
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi mayor anhelo es servir a mi país y a la sociedad de manera eficaz y eficiente con alto compromiso social y humano.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe tener una misión humanista, empática y cercana a la sociedad, alejada de influencias externas que puedan infundirle desconfianza, esto permitirá que pueda generar mayor certeza y proximidad con la sociedad al momento de impartir justicia, para que el usuario de este sistema tenga la posibilidad de expresar sus dudas y sentir, y demás planteamientos que requiera. Debe ser acorde con la realidad social y con los cambios que demanda México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser efectiva, eficaz, eficiente, ajena a injerencias externas de cualquier índole. La Justicia debe ser pronta y expedita enfocada en abatir el rezago judicial y en tal sentido, los juicios en línea, expedientes electrónicos y demás herramientas tecnológicas deben seguir promoviéndose a la par de los expedientes impresos con el objeto que garanticen seguridad jurídica y certeza a los justiciables.
+
+
+## Propuestas
+
+- Mejorar la calidad en el servicio lo cual implica que el juzgador debe tener un trato más humano empático, con una visión integral de los problemas y demandas sociales en México.
+- El juzgador debe asumir el compromiso de seguir capacitándose y profesionalizándose para contar con más herramientas que aplicar en su quehacer jurisdiccional. Es necesario que se siga actualizando y especializando en temas de razonamiento probatorio, argumentación jurídica, valoración de la prueba, derechos humanos en el ámbito nacional e internacional, en el conocimiento de los precedentes judiciales, juicios orales en materia familiar, Código Nacional de Procedimientos Civiles y familiares.
+- El compromiso de seguir capacitándose y profesionalizándose en materias como la justicia digital, en el manejo de las herramientas de la inteligencia artificial que coadyuven en agilizar su labor como juzgadores, en los expedientes electrónicos, así como en el uso del sistema integral de seguimiento de estos expedientes electrónicos para estar en posibilidades de responder y actuar ante las demandas urgentes sobre una justicia pronta, expedita, social e incluyente que demanda la sociedad.
+

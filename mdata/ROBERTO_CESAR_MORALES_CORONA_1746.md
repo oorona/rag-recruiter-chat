@@ -1,0 +1,81 @@
+Nombre Candidato: ROBERTO CESAR MORALES CORONA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TLAXCALA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Argumentación Jurídica, Derecho Civil, Derecho Familiar, Derecho Mercantil, Derechos Humanos, Esc. Fed. de Formación Judicial., Escuela Libre de Derecho Puebla, Formación Judicial, Instituto de la Judicatura Federal, Licenciatura en Derecho, Maestría, Razonamiento Probatorio, Reforma Laboral
+Tags Propósito: Acceso a la Justicia, Apoyo Ciudadano, Comunicación, Equidad, Impacto Social., Justicia, Juzgadores, Legitimidad, Lenguaje Claro, Magistrado, Perspectivas de Justicia, Poder Judicial, Reforma Judicial, Sentencias, Tlaxcala
+
+
+## Descripción del Candidato 
+
+ROBERTO CESAR MORALES CORONA es candidato a Magistratura de Tribunales Colegiados de Circuito en Tlaxcala, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derechos Humanos y trayectoria en el ámbito jurídico, siendo Licenciado en Derecho por la Escuela Libre de Derecho Puebla. Su motivación para aspirar al cargo se basa en su conocimiento, capacidad y compromiso.
+
+En su visión sobre la función jurisdiccional y la impartición de justicia, destaca la importancia de un nuevo paradigma que incorpore el apoyo ciudadano y atienda las inquietudes de la sociedad. Sus propuestas incluyen mejorar el acceso a la justicia simplificando el lenguaje legal, establecer canales de comunicación directos con la ciudadanía, e incorporar perspectivas de justicia social en sus decisiones, buscando un equilibrio en la aplicación de la ley en beneficio de la sociedad tlaxcalteca.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/robcesarmorales?mibextid=JRoKGi
+- https://www.instagram.com/robcesarmorales?igsh=cWMyd2hhY2Zib2Zv&utm_source=qr
+- https://www.tiktok.com/@robcesarmorales?_t=ZM-8v65O6eZdtX&_r=1
+
+
+## Cursos
+
+- Diplomado de Derechos Humanos, impartido por la Universidad Iberoamericana y el Instituto de la Judicatura Federal
+- ,¿Diplomado en Argumentación Jurídica¿, impartido por el Instituto de la Judicatura Federal
+- ,¿Curso Prueba y razonamiento probatorio¿, impartido por la Escuela Federal de Formación Judicial
+- ,Jornadas de Introducción a la Reforma Laboral: Análisis de los Retos y Perspectivas, Instituto de la Judicatura Federal
+- ,de Actualización en Materias Mercantil, Civil y Familiar¿, impartido por Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54345/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Escuela Libre de Derecho Puebla
+- Maestría en Derechos Humanos Esc
+- Fed
+- de Formación Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Estimo que cuento con el conocimiento, capacidad y compromiso necesarios para presentarme ante la sociedad tlaxcalteca.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La reforma al Poder Judicial de la Federación de la que fuimos testigos en fechas pasadas, debe ponernos en perspectiva de lo que nuestro país requiere en los nuevos juzgadores. Por tanto el paradigma constitucional requiere encontrar nuevos juzgadores que, además de legitimar su quehacer jurisdiccional a través de sus sentencias, también busquen hacerlo con el apoyo ciudadano, recoger sus inquietudes, expectativas y anhelos y poder llevarlos al frente de un órgano encargado de impartir justicia
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para mí es claro que el perfil del nuevo juzgador federal es una amalgama de capacidad, conocimiento y aptitudes, que se complementará con el apoyo ciudadano. Por lo que en estos nuevos tiempos en nuestra Nación nos permite presentarnos públicamente ante la sociedad y enfrentarnos a sus carencias y preocupaciones, para entender a profundidad qué buscan los ciudadanos en un Juez de Distrito o en un Magistrado de Circuito. Aproximandonos a lo que sociedad mexicana requiere de sus juzgadores.
+
+
+## Propuestas
+
+- Acceso a la justicia: Implementaría medidas para mejorar el acceso a la justicia para todas las personas, incluyendo la simplificación del lenguaje en las sentencias y la incorporación de elementos visuales cuando sea necesario, en cada uno de los asuntos bajo mi cargo.
+- Mejora de la comunicación: Establecer canales de comunicación claros y accesibles entre mi función de magistrado y la ciudadanía. Esto podría incluir reuniones periódicas y de atención con las personas que se encuentren involucradas dentro de un proceso legal que sea de mi conocimiento.
+- Incorporar a cada uno de los asuntos puestos a mi consideración, las nuevas perspectivas de justicia y, además, ponderar qué cada decisión que se tome puede impactar a la sociedad tlaxcalteca. Buscando con ello equilibrar la balanza, para que todos sean juzgados de manera equitativa.
+

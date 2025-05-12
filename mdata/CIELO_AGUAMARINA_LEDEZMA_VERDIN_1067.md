@@ -1,0 +1,82 @@
+Nombre Candidato: CIELO AGUAMARINA LEDEZMA VERDIN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3334981290
+Correo Electronico: cieloverdin07@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Análisis de la Prueba Científica, Derecho Civil, Derecho Familiar, Derecho Mercantil, Derecho Procesal Civil, Derecho de las Obligaciones, Derecho de los Contratos, Doctorado en Derecho, Instituto Internacional del Derecho y del Estado., Universidad Panamericana, Universidad de Girona, Universidad de Guadalajara
+Tags Propósito: Accesibilidad, Certidumbre Jurídica, Congreso de la Unión, Derechos Humanos, Equidad, Herramientas Digitales, Humanismo., Imparcialidad, Independencia, Justicia, Objetividad, Progresividad, Resolución de Conflictos, Seguridad Jurídica, Transparencia, Tratados Internacionales
+
+
+## Descripción del Candidato 
+
+CIELO AGUAMARINA LEDEZMA VERDIN es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con maestría en Derecho Civil y Familiar por la Universidad de Guadalajara y actualmente es Doctorante en Derecho. Su formación incluye diversas especialidades y diplomados en áreas como Derecho Procesal Civil, Derecho de las Obligaciones y análisis de la prueba científica.
+
+La candidata describe su postulación como la culminación de una trayectoria judicial de 26 años. Su visión de la función jurisdiccional se centra en la accesibilidad, transparencia y claridad en las resoluciones, buscando un enfoque apartidista e imparcial. Sus propuestas incluyen promover la sensibilidad con la ciudadanía, actuar con transparencia y honestidad, e impulsar la actualización tecnológica para mejorar la seguridad jurídica.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://cieloledezma.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574954272476
+- https://x.com/cieloledezmav
+- https://www.instagram.com/ledezmacielo2025/
+- https://youtube.com/@cieloledezma2025
+- https://www.tiktok.com/@cieloledezma06
+
+
+## Cursos
+
+- Maestría en Derecho Civil y Familiar por la Universidad de Guadalajara
+- 2008,Diplomado en Análisis de la Prueba Científica por la Universidad de Girona, España
+- 2024,Especialidad en Derecho Procesal Civil y Mercantil por la Universidad Panamericana
+- 2021,Especialidad en Derecho de las Obligaciones y Contratos por la Universidad Panamericana
+- 2024,Doctorante en Derecho por el Instituto Internacional del Derecho y del Estado
+- 2016
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53599/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Civil y Familiar por la Universidad de Guadalajara
+- 2008
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es un proyecto de vida que inició desde hace 26 años y que sería la cúspide de una carrera judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Accesible a todo ciudadano y transparente. Redacción en términos claros y sencillos para que el justiciable comprenda el sentido de las resoluciones. Apartidista, objetiva, imparcial e independiente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con conocimiento del derecho atendiendo a la progresividad de los derechos humanos; humanista que atienda los lineamientos de los protocolos de impartición de justicia emanados de los tratados internacionales aprobados por el Congreso de la Unión y por tanto vigente al país.
+
+
+## Propuestas
+
+- Promover la apertura y sensibilidad con la ciudadanía para resolver con justicia y equidad sus demandas legales.
+- Actuar con trasparencia, honestidad y objetividad en juicios para impartir justicia pronta, expedita, completa e imparcial.
+- Impulsar la actualización permanente y el uso de herramientas digitales para brindar mayor seguridad y certidumbre jurídica a las personas.
+

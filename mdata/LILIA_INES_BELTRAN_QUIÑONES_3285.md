@@ -1,0 +1,71 @@
+Nombre Candidato: LILIA INES BELTRAN QUIÑONES
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8991011997
+Correo Electronico: liliainesbeltranquinones@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Penales, Derecho, Formación, Licenciatura., Maestría, Poder Judicial, Procesal Penal
+Tags Propósito: amparo, conciencia social, derechos fundamentales, derechos humanos, escucha, experiencia, grupos vulnerables, honestidad, humanismo, imparcialidad, justicia, justicia social., objetividad, ordenamientos legales, respeto, transparencia
+
+
+## Descripción del Candidato 
+
+Lilia Ines Beltran Quiñones es candidata a Jueza/es de Distrito en Tamaulipas, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Ciencias Penales y Procesal Penal, además de haber completado el Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo se basa en su creencia en la justicia, su experiencia y sus valores. Su visión para la función jurisdiccional se centra en el juicio de amparo como medio para garantizar los derechos fundamentales, especialmente para grupos vulnerables.  Sus propuestas principales incluyen el respeto y la aplicación justa de los derechos humanos, así como considerar la perspectiva humana en la impartición de justicia. Su currículum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/lilia_beltranq
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Ciclo Escolar 2007
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52443/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO MAESTRIA EN CIENCIAS PENALES, MAESTRIA EN PROCESAL PENAL
+
+
+## Motivo para buscar el Cargo Publico
+
+PORQUE CREO EN LA JUSTICIA, CREO EN MI EXPERIENCIA, CREO EN LOS VALORES Y EN LA PREPARACION CONSTANTE, CREO EN LA GENTE
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+COMO JUZGADORA FEDERAL, MI PRETENSION DESCANSA EN EL JUICIO DE AMPARO, MEDIO IDONEO PARA GARANTIZAR A LAS PERSONAS EL RESPECTO A SUS DERECHOS FUNDAMENTALES, IMPARTIR JUSTICIA PRINCIPALMENTE EN CUANTO SE ACTIVA EL MISMO, A GRUPOS VULNERABLES COMO LAS MUJERES, JOVENES, NIÑOS, COMUNIDADES Y PERSONAS QUE HAN LLEGADO A LA EDAD EN QUE SE NECESITA ESA PROTECCION, ENTRE OTROS, DE FORMA TRANSPARENTE Y HONESTA Y CON ALTA CONCIENCIA SOCIAL
+
+
+## Vision sobre la Imparticion de Justicia
+
+IMPARTIENDOLA DE FORMA HONESTA, ESCUCHANDO A AQUELLOS QUE LA IMPLORAN, SIENDO VERDADERAMENTE HUMANISTA PERO SIN DEJAR DE LADO QUE EN CADA CONFLICTO EXISTEN DOS PARTES, Y ADEMAS OTRAS AUTORIDADES, TOMANDO EN CUENTA EL MECANISMO LEGISLATIVO PERO TAMBIEN LA EXPERIENCIA Y SOBRE TODO SIENDO OBJETIVO.
+
+
+## Propuestas
+
+- RESPETAR LOS DERECHOS HUMANOS DE TODO EL PUEBLO
+- APLICAR ESOS DERECHOS Y LOS ORDENAMIENTOS LEGALES DE FORMA JUSTA
+- RESPETAR Y ESCUCHAR A LOS ELEMENTOS HUMANOS QUE FORMAN PARTE DE LA IMPARTICION DE LA JUSTICIA, TAMBIEN DE FORMA JUSTA
+

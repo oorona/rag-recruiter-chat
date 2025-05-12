@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE ISRAEL HERNANDEZ TIRADO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: 6624640313
+Correo Electronico: htsonora@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Amparo, Cursos, Derecho Constitucional, Derecho Mercantil, Derecho Procesal Civil, Diplomados., Especialidades, Maestría, Secretaría de Juzgado
+Tags Propósito: Atención ciudadana, Cercanía, Justicia, Personas, Problemas jurídicos, Realidad, Servicio público, Servidor público.
+
+
+## Descripción del Candidato 
+
+Jose Israel Hernandez Tirado es candidato a Magistrado de los Tribunales Colegiados de Circuito en Sonora, postulando en funciones. Cuenta con maestría y diversas especialidades en áreas como Administración de Justicia, Derecho Constitucional y Procesal.
+
+Su motivación para buscar el cargo público es servir a su país y a la gente, buscando una función jurisdiccional y una impartición de justicia con un enfoque cercano a las personas, más allá de los expedientes. Su principal propuesta es generar cercanía con los problemas jurídicos de la ciudadanía para juzgar desde la realidad y no únicamente desde el ámbito formal. Su curriculum vitae completo se encuentra disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/JosC3A9-Israel-HernC3A1ndez-Tirado/pfbid0BC9GWwv2aKVeMzw9p71GnPppDN69u8Qwn2peVDM3KCHzs4i5XNTDNmzJ7ptfcahxl/?mibextid=wwXIfr&rdid=lcWhQUyEkrG5ojp0&share_url=https3A
+- https://www.x.com/hdeztiradojosei
+- https://www.instagram.com/hdztiradojoseisrael
+- https://www.tiktok.com/hdztiradojosei
+
+
+## Cursos
+
+- Especialidad en Administración de Justicia en Juzgados de Distrito,Especialidad en Derecho Constitucional y Amparo,Especialidad en Secretaría de Juzgado de Distrito y Tribunal de Circuito,Especialidad en Derecho Procesal Civil y Mercantil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53860/10
+
+
+## Trayectoria Academica
+
+- Especialidades, maestría, cursos, diplomados
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a mi país y a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Entender que soy un servidor público y como tal debo de resolver y atender a las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con la visión de que se trata de personas y de no de simples expediente, es decir, cercana a la gente.
+
+
+## Propuestas
+
+- Generar cercanía con las personas y sus problemas jurídicos para juzgarlos desde la realidad y no solo en el escritorio.
+- No proporcionó
+- No proporcionó
+

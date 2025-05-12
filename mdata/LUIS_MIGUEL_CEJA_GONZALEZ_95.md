@@ -1,0 +1,79 @@
+Nombre Candidato: LUIS MIGUEL CEJA GONZALEZ
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 6121511753
+Correo Electronico: amigos.ceja@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho del Trabajo, Derechos Humanos, Docencia., Doctrado, Escuela Judicial, Especialidad, Formación Judicial, Instituto de la Judicatura Federal, Jurisdicción, Justicia Laboral, Licenciatura, Maestría, Sistema Penal Acusatorio, Suprema Corte de Justicia de la Nación, Universidad Iberoamericana
+Tags Propósito: Tribunal de Disciplina Judicial, acceso a la justicia, acoso laboral, burocracia, corrupción, derechos humanos, diálogo, estrés laboral, igualdad social, independencia judicial, investigación de oficio., justicia social, nepotismo, poder judicial, procedimientos ágiles, rendición de cuentas, servicio público, tecnología, terrorismo laboral, transparencia
+
+
+## Descripción del Candidato 
+
+LUIS MIGUEL CEJA GONZALEZ es candidato a la Magistratura del Tribunal de Disciplina Judicial, postulándose a través del Poder Legislativo Federal. Cuenta con un alto nivel de escolaridad en Derecho, incluyendo un doctorado, dos maestrías, tres especialidades y una licenciatura, además de experiencia como docente en la Escuela Judicial.
+
+Su motivación para el cargo público se basa en su creencia en la justicia social y la necesidad de renovar el poder judicial. Su visión de la función jurisdiccional se centra en una justicia gratuita, pronta, eficaz y respetuosa de los derechos humanos. Sus propuestas principales incluyen investigar a fondo las quejas contra servidores públicos del Poder Judicial, agilizar los procedimientos para combatir el acoso laboral, y erradicar la burocracia innecesaria en el Consejo de la Judicatura Federal, buscando un Tribunal de Disciplina Judicial calificado e independiente.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16H2r1rYih/?mibextid=wwXIfr
+- https://x.com/cejatron?t=g8LrEfs2A8Rb3VLrZjbbVw&s=08
+- https://www.instagram.com/lic.ceja/?fbclid=IwY2xjawJU-KpleHRuA2FlbQIxMAABHaWyrT0DFDf5w1m2TNnO2-OB6Kc4zVANxiF17QlciHpmu04hsozCmQwsgA_aem_O0xmGGQqjeUrEp6epfdxJg#
+- https://www.tiktok.com/@licceja?_t=ZM-8v3D02q7abu&_r=1
+- https://www.facebook.com/profile.php?id=61573379090056&mibextid=ZbWKwL
+
+
+## Cursos
+
+- Diplomado en Introducción a la Función Jurisdiccional (2009),Diplomado en Derechos Humanos, Instituto de la Judicatura Federal y Universidad Iberoamericana (octubre de 2013)
+- ,Diplomado en el Sistema Penal Acusatorio, Instituto de la Judicatura Federal (2016 y 2021)
+- ,Diplomado en Derechos Humanos, Casas de la Cultura Jurídica de la Suprema Corte de Justicia de la Nación (2022)
+- ,Diploma en Especialidad en Derecho del Trabajo y Justicia Laboral, Escuela Federal de Formación Judicial (2020)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15414/7
+
+
+## Trayectoria Academica
+
+- 1 doctorado, 2 maestrías, 3 especialidades, 1 licenciatura, todas en Derecho
+- Docente en la Escuela Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Creo firmemente en el valor de la justicia social, en la necesidad de renovar al poder judicial y en un mejor país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser gratuita, pronta, eficaz, transparente, completa, objetiva e imparcial. La solución de los conflictos de forma imparcial ante los órganos jurisdiccionales y el respeto irrestricto a los derechos humanos garantizan la paz y la justicia social. La sociedad debe tener la certeza de que cuenta con órganos jurisdiccionales con personal calificado encargado de impartir justicia, ante quienes podrá hacer valer sus derechos y obtener un servicio público de excelencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Necesitamos que la impartición de justicia sea cercana a la gente y sobre todo que dé resultados. Los órganos jurisdiccionales deben ser un factor de cambio que permita la construcción de una sociedad más equitativa, donde las diferencias sean ideológicas y no por la clase social a la que se pertenece. La falta de acceso a la justicia no puede seguir siendo causa de desigualdad social. Transparencia y rendición de cuentas como eje rector.
+
+
+## Propuestas
+
+- ¡No más complicidad! No más quejas y denuncias desechadas contra servidores públicos del poder judicial de la federación. Se deben investigar las causas a fondo. Al Consejo de la Judicatura Federal se le olvidaron sus facultades de investigación de oficio, no podemos cometer el mismo error. Se investigarán y se eliminarán definitivamente, entre otras, las conductas que atentan contra la independencia judicial, la corrupción, el acoso laboral y sexual, así como el nepotismo.
+- Procedimientos ágiles. ¡No al terrorismo laboral! El estrés laboral es sin duda una de las principales causas de los conflictos en las relaciones de trabajo. Se debe fomentar el diálogo, mesas de trabajo, incluso apoyo interdisciplinario. El Tribunal de Disciplina Judicial resolverá con independencia e imparcialidad. No habrá más favoritismos ni amiguismos en la toma de decisiones.
+- Se erradicará la burocracia dorada que integró al Consejo de la Judicatura Federal; no habrá más personal sin funciones específicas y con altos sueldos. El personal que integre al Tribunal de Disciplina Judicial debe estar calificado y conocer el funcionamiento de los órganos jurisdiccionales. Las visitas ordinarias de inspección en los órganos jurisdiccionales por regla general serán virtuales. Utilicemos la tecnología para ahorrar y mejorar el servicio.
+

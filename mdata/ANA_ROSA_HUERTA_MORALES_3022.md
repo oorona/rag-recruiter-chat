@@ -1,0 +1,71 @@
+Nombre Candidato: ANA ROSA HUERTA MORALES
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: 2281336169
+Correo Electronico: anahm76@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Operativa, Aplicación de la Ley, Asistentes Judiciales, Formación Secretarios Judiciales, Gestión de Centros de Justicia Penal Federal, INACIPE, Licenciatura en Derecho, Maestría en Derechos Humanos, Poder Judicial de la Federación, Universidad Anáhuac., Ética Judicial
+Tags Propósito: Acceso a la justicia, Bienestar laboral, Comunicación, Desempeño judicial, Diligencia, Escrutinio público, Imparcialidad, Justicia, Modernización judicial, Preparación jurisdiccional, Recursos judiciales, Rendición de cuentas., Salud emocional, Servidores públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Ana Rosa Huerta Morales es candidata a Jueza/es de Distrito en Querétaro, postulada por el Poder Judicial de la Federación. Cuenta con Maestría en Derechos Humanos e hizo su Licenciatura en Derecho en la Universidad Anáhuac. Su trayectoria académica se complementa con diversos cursos de formación en gestión de centros de justicia penal federal, ética judicial y administración operativa.
+
+Motivada por su vocación de servicio público en la impartición y administración de justicia, propone acercar el Poder Judicial a la sociedad a través de la comunicación transparente de sus actuaciones, la difusión de información sobre carga de trabajo y resultados, y la humanización de los servidores públicos mediante el acceso a herramientas académicas, tecnológicas y de bienestar. Busca un ejercicio de la función jurisdiccional transparente y una impartición de justicia imparcial, basada en la preparación constante y la libertad de presiones externas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Básico de Preparación para la Gestión y Operación de los Centros de Justicia Penal Federal para el Puesto de Notific,De Inducción para Asistentes de los Centros de Justicia Penal Federal,Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,De Nociones Generales Sobre Administración Operativa de los Centros de Justicia Penal Federal, Dirigido a Asistente,Ética Judicial en la Práctica del Juzgador y Sobre Uso de la Fuerza en la Aplicación de la Ley/mantenimiento del Orden
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53789/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Anáhuac y Maestría en Derechos Humanos por INACIPE
+
+
+## Motivo para buscar el Cargo Publico
+
+La impartición y administración de justicia desde el servicio público, ha sido siempre mi vocación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ejercicio de la función jurisdiccional debe ser transparente para la sociedad, es decir, debe comunicarse y dejarse conocer a la ciudadanía la forma en que se desarrollan los procesos, incluso los de alta complejidad, de modo que siempre exista identidad y cercanía con el poder judicial, para que así, bajo el escrutinio de aquélla, pueda corroborarse que se lleve a cabo con diligencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe impartirse sin distinción alguna, por juzgadores que estén en constante y permanente preparación, libres de prejuicios y presiones externas, para que en cada resolución que emitan, se plasmen las mejores razones posibles para sustentarla.
+
+
+## Propuestas
+
+- Acercamiento del Poder Judicial con la sociedad incrementando la comunicación de sus actuaciones por medio de redes sociales, o bien, por cualquier otro medio que permita estar bajo su escrutinio.
+- Permitir la difusión de la carga de trabajo, recurso material y humano, así como los resultados que cada juzgado o tribunal obtenga de manera periódica.
+- Humanizar a los servidores públicos que laboren en un órgano jurisdiccional, proporcionándole herramientas académicas, tecnológicas y de salud física y emocional, pues en la medida que cuenten con ello, será mejor su desempeño.
+

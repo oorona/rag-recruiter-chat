@@ -1,0 +1,77 @@
+Nombre Candidato: YESSICA LIZ HERNANDEZ LUNA
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: MUJER
+Telefono: 4811119421
+Correo Electronico: yessicaliz01@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Actuarios, Adolescentes, Defensa Penal, Licenciatura en Derecho, Perspectiva de Género, Poder Judicial de la Federación, Secretarios, Sistema Integral de Justicia Penal, Universidad Autónoma de San Luis Potosí.
+Tags Propósito: acceso a la justicia, calidad, capacitación, certeza., corrupción, derechos humanos, dignidad, eficiencia, equidad, función jurisdiccional, imparcialidad, integridad, justicia, puertas abiertas, respeto, sistema judicial, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+YESSIKA LIZ HERNANDEZ LUNA es candidata a Jueza/es de Distrito en San Luis Potosí, postulándose a través del Poder Judicial de la Federación. Es Licenciada en Derecho por la Universidad Autónoma de San Luis Potosí, Unidad Académica Multidisciplinaria, Zona Huasteca, y cuenta con diversos cursos de especialización en áreas como justicia penal para adolescentes, defensa penal, perspectiva de género y formación para el Poder Judicial.
+
+Su motivación para buscar el cargo es contribuir a un sistema de justicia transparente, imparcial y humanitario. Propone desempeñar la función jurisdiccional con imparcialidad, equidad y una visión humana, promoviendo la capacitación del personal del juzgado para una atención digna y respetuosa, y trabajando con integridad para evitar la corrupción y proteger los derechos humanos.  Su visión sobre la función jurisdiccional y la impartición de justicia se centra en la imparcialidad, accesibilidad, transparencia y el respeto a los derechos humanos, especialmente de los grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/YessiLunaH
+- https://www.instagram.com/yessilunah
+- https://www.tiktok.com/@yessilunah
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Curso para Actuarios del Poder Judicial de la Federación
+- ,Especialización en el Sistema Integral de Justicia Penal para Adolescentes
+- ,Especialización en Defensa Penal
+- ,Diplomado Impartición de Justicia con Perspectiva de Género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53800/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad Autónoma de San Luis Potosí, Unidad Académica Multidisciplinaria, Zona Huasteca
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la consolidación de un sistema de justicia transparente, imparcial y humanitario al alcance de todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser imparcial, objetiva, transparente, humana, equitativa e incorruptible y basarse en el respeto y protección de los derechos humanos. Es esencial que el sistema judicial sea un mecanismo efectivo para proteger los derechos de todos, garantizando el acceso a una justicia igualitaria y efectiva, prestando especial atención a los grupos más vulnerables de la población, asegurando que sus derechos sean protegidos y promovidos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser imparcial, equitativa y accesible para todos. Un sistema que combine eficiencia y calidad, con una profunda comprensión de las necesidades y derechos de cada persona. Un servicio público libre de corrupción y discriminación, que genere confianza y certeza en la población, asegurando que toda persona se sienta escuchada, atendida y tratada con dignidad y respeto.
+
+
+## Propuestas
+
+- Desempeñar la función jurisdiccional con imparcialidad, equidad y con visión humana, garantizando la transparencia, con un sistema de puertas abiertas, permitiendo con ello generar la certeza que cualquier persona puede tener acceso a la justicia.
+- Promover la sensibilización y capacitación del personal del juzgado para que atiendan a todos los usuarios con dignidad, respeto y calidad humana.
+- Tener el firme propósito de impartir justicia sin corrupción, con integridad, imparcialidad y respeto a los derechos humanos.
+

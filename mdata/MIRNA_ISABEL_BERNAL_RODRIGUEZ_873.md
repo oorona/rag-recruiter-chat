@@ -1,0 +1,76 @@
+Nombre Candidato: MIRNA ISABEL BERNAL RODRIGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5544678602
+Correo Electronico: mirnai.bernalrodriguez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: 2000., Comercio Exterior, FES Aragón, Instituto Tecnológico Autónomo de México, Licenciatura en Derecho, Operación Aduanera, Titulación, UNAM
+Tags Propósito: Constitucionalismo, Derechos, Empatía, Equidad, Excelencia, Función Jurisdiccional, Honestidad, Humanismo, Impacto Social, Justicia, Lealtad, Sentido Social, Servicio Público.
+
+
+## Descripción del Candidato 
+
+Mirna Isabel Bernal Rodríguez es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal. Licenciada en Derecho por la UNAM (2000) y con un Diplomado en Comercio Exterior y Operación Aduanera del ITAM, su trayectoria se centra en la función jurisdiccional.
+
+Bernal Rodríguez motiva su candidatura por la necesidad de un cambio en la impartición de justicia, abogando por un constitucionalismo humanista que priorice la equidad, el sentido social y el impacto de las decisiones judiciales en la vida de las personas. Sus propuestas centrales incluyen ejercer la función jurisdiccional con una visión humanista, dar sentido al derecho como herramienta accesible para la defensa de los derechos y mantener valores de lealtad, honestidad y excelencia en el servicio público.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16HDzsLpE6/?mibextid=wwXIfr
+- https://x.com/mirnai_bernal?s=11
+- https://www.instagram.com/mirnai_bernal?igsh=aGQ1a2UybHMyeTNh&utm_source=qr
+- https://youtube.com/@mirnai_bernal?si=BaAlhHMqv42oZBzy
+- https://www.tiktok.com/@mirnai_bernal?_t=ZM-8uiXNdg2QZq&_r=1
+
+
+## Cursos
+
+- Diplomado en Comercio Exterior y Operación Aduanera en el Instituto Tecnológico Autónomo de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52459/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la FES Aragón de la Universidad Nacional Autónoma de México (UNAM), titulada el 17 de mayo de 2000
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque soy consciente de la necesidad de generar un cambio importante en la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Nuestra sociedad necesita juzgadores que comprendan el verdadero impacto de sus decisiones para que la justicia deje de ser un ejercicio burocrático, y llegue a ser humana, empática y consciente del sufrimiento de las personas. Solo así lograremos un constitucionalismo humanista que garantice una verdadera justicia con equidad y sentido social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que la justicia verdadera es un ejercicio que va más allá de normas y reglas procesales. Ya que es indispensable que todo juzgador llegue a reflexionar en cada asunto el impacto de sus decisiones en la vida de las personas. Pues sólo de ese modo tendrán la posibilidad de emitir resoluciones que logren equilibrar las reglas y requisitos con la necesidad de justicia de quienes ponen sus problemas y conflictos en sus manos.
+
+
+## Propuestas
+
+- Mi propósito es ejercer siempre la función jurisdiccional desde una visión de constitucionalismo humanista que garantice una verdadera justicia con equidad y sentido social.
+- Mi visión es darle sentido al derecho como un medio al alcance de cualquier persona, para la defensa y pleno ejercicio de sus derechos.
+- Mi compromiso es tener siempre vigentes los valores de lealtad, honestidad y excelencia que requiere el servicio público, como una exigencia de nuestra sociedad y un agente de bien para nuestro país.
+

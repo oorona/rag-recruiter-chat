@@ -1,0 +1,90 @@
+Nombre Candidato: PAOLA STEPHANIA MUÑIZ LUPIAN
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8181788423
+Correo Electronico: paola.muniz.lupian@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Conocimiento Científico, Debido Proceso, Derecho Constitucional, Derecho Procesal, Derechos Humanos, Doctorado, Editora, Investigadora, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Ponente., Profesora, Razonamiento Probatorio, Seguridad Social, Suprema Corte de Justicia de la Nación
+Tags Propósito: acceso a la justicia, asimetrías de poder, civilidad., conciliación, constitucionalidad, convencionalidad, corrupción, debido proceso, derechos fundamentales, digitalización, eficiencia, gestión judicial, igualdad, igualdad material, imparcialidad, justicia, lealtad procesal, legalidad, mediación, procesos justos, rendición de cuentas, resoluciones justificadas, transparencia, tráfico de influencias, tutela judicial efectiva, verdad material, ética
+
+
+## Descripción del Candidato 
+
+Paola Stephania Muñiz Lupian es candidata a Jueza/a de Distrito en Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con estudios de Doctorado concluidos y una trayectoria académica como Licenciada, Maestra y Doctoranda en Derecho, además de experiencia como profesora, investigadora y editora. 
+
+Su motivación para buscar el cargo público se basa en el servicio a la comunidad y la impartición de justicia ética e independiente. Sus propuestas centrales incluyen impulsar una justicia accesible y comprensible, implementar una política de cero tolerancia a la corrupción en el juzgado a su cargo, y agilizar los procesos judiciales sin comprometer la calidad de las resoluciones. Busca una función jurisdiccional que garantice justicia sustancial, igualdad material y el acceso real a la justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.linkedin.com/in/paola-stephania-muniz-lupian/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/paola.muniz.756/
+- https://x.com/LicPaolaMuiz1
+- https://www.instagram.com/lic._paola/?hl=es
+- https://www.youtube.com/@con-ciencialegalyrazonli-ws9qu
+- https://www.tiktok.com/@mtra.paolamunizlupian?is_from_webapp=1&sender_device=pc
+- https://www.threads.net/@lic._paola
+
+
+## Cursos
+
+- Seminario Especializado sobre el Nuevo Sistema de Justicia Laboral
+- SCJN
+- Diciembre 2022
+- ,Congreso debido proceso y razonamiento probatorio
+- Universidad Autónoma de Nuevo León, noviembre 2022
+- ,Jornadas de Derechos Humanos en Línea
+- Segunda Edición 2020
+- Suprema Corte de Justicia de la Nación, noviembre 2020
+- ,Congreso Internacional de Derecho Constitucional
+- El uso del conocimiento científico en los tribunales
+- SCJN nov 2020
+- ,Jornadas de Derechos Humanos, Derechos Humanos y Seguridad Social en la Suprema Corte
+- SCJN, febrero 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54082/11
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestra en Derecho
+- Doctoranda en Derecho Procesal
+- Profesora, investigadora, editora y ponente
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir e impartir justicia cercana, ética y para todos, con independencia, valentía, verdad y equidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con imparcialidad, responsabilidad y actualización constante. El juez debe garantizar justicia sustancial, reduciendo las asimetrías de poder mediante la igualdad material y la lealtad procesal. No solo debe aplicar la ley, sino justificar sus resoluciones con racionalidad y generar legitimidad al resolver con legalidad, constitucionalidad y convencionalidad, asegurando el acceso real a la justicia y la protección exhaustiva de los derechos fundamentales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia se basa en un proceso transparente, imparcial y accesible, que garantice la igualdad sustancial y el debido proceso. Conforme al modelo o paradigma actual del derecho, debe buscarse la verdad material de los hechos y reducir las asimetrías de poder. Las decisiones deben basarse en leyes, pero también en pruebas, principios y tratados, con coherencia y lealtad, asegurando el acceso a la justicia para todos, sin distinción, y la tutela judicial efectiva.
+
+
+## Propuestas
+
+- Impulsar una justicia accesible y comprensible para la ciudadanía en general; sin sacrificar el rigor jurídico, para que cada resolución esté debidamente fundada y justificada, buscando la única razón posible para garantizar la justicia en cada caso, que las decisiones se basen en el derecho y no en intereses externos. Asimismo, me comprometo a la rendición de cuentas sobre la función, cada vez que sea solicitada tanto por los mecanismos internos del Poder Judicial como la supervisión ciudadana.
+- Cero tolerancia a prácticas corruptas en el juzgado a mi cargo, aplicando sanciones ejemplares para quienes abusen de su posición. Implementación de mecanismos para identificar y erradicar el tráfico de influencias en los procesos judiciales. No podemos permitir que quienes tengan recursos evadan la justicia, mientras los más vulnerables son perjudicados sin una defensa adecuada o desigual. Por lo que mi compromiso son los juicios justos y equitativos, sin distinciones de poder o dinero.
+- Implementaré criterios de gestión judicial para agilizar los procesos, sin sacrificar la calidad de las resoluciones, y buscare reducir las prácticas que obstaculicen el acceso y desarrollo de los juicios. Promoveré la mediación, conciliación, paz y civilidad entre las partes, así como el uso de medios digitales para la celebración de actos y respaldo de documentos, en pro de la eficiencia. También, estoy abierta para asistir a espacios de diálogo, enseñanza y atender sus dudas e inquietudes.
+

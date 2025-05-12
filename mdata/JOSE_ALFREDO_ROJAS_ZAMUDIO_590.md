@@ -1,0 +1,83 @@
+Nombre Candidato: JOSE ALFREDO ROJAS ZAMUDIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5619920657
+Correo Electronico: rojaszamudiojosealfredo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración, Derecho, Derecho Administrativo, Especialización, Fintech, Formación Judicial, Género, Licenciatura, Mención Honorífica., Procuración de Justicia, Regulación Financiera, UNAM, Violencia
+Tags Propósito: acceso a la justicia, corrupción, derechos fundamentales, eficiencia, equidad, grupos vulnerables, honestidad, humanismo, imparcialidad, independencia judicial, integridad, justicia, justicia social, patriotismo, profesionalismo, rapidez, responsabilidad social, transparencia.
+
+
+## Descripción del Candidato 
+
+José Alfredo Rojas Zamudio es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en la Ciudad de México. Cuenta con licenciatura y especialidad en Derecho, ambas por la UNAM, obteniendo mención honorífica en su especialidad en Administración y Procuración de Justicia. Su formación continua incluye cursos en áreas como Derecho Administrativo, perspectiva de género, y tecnología financiera, impartidos por la Escuela Federal de Formación Judicial y la UNAM.
+
+El candidato manifiesta su motivación para servir al país impartiendo justicia con equidad y sin corrupción. Su visión se centra en una función jurisdiccional justa e imparcial, orientada al beneficio de la población y una nueva generación de juzgadores comprometidos con la justicia social y la protección de grupos vulnerables. Sus propuestas incluyen agilizar la resolución de casos (máximo 6 meses), garantizar el acceso a la justicia para todos, y desempeñarse con principios de honorabilidad, excelencia e independencia, alejándose de actos de corrupción.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/JoseAlfredoRojasZamudio/
+- https://www.x.com/@josealfredorojaszamudio
+- https://www.instagram.com/josealfredorojaszamudio/
+- https://www.tiktok.com/@josealfredorojaszamudio
+- https://www.linkedin.com/in/josealfredorojaszamudio/
+
+
+## Cursos
+
+- Especialista en Derecho en la Administración y Procuración de la Justicia por la UNAM con Mención Honorífica,Curso Fintech: Regulación y Tecnología Financiera 2024
+- Escuela Federal de Formación Judicial
+- ,Curso Juzgar con Perspectiva de Género en Materia Administrativa 2023
+- Escuela Federal de Formación Judicial
+- ,Curso de Actualización en Derecho Administrativo 2022
+- Escuela Federal de Formación Judicial
+- ,Curso para Generar Espacios Libres de Violencia IV 2022
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54724/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho y Especialidad en Derecho en Administración y Procuración de Justicia por la UNAM (Mención honorífica)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a mi país impartiendo justicia sin actos de corrupción y bajo los principios de equidad y justicia social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se debe de garantizar la aplicación justa de la ley de manera imparcial en beneficio del pueblo de México y no bajo los intereses de unos cuentos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que los titulares de los órganos jurisdiccionales corresponda a una nueva generación de juzgadores que se encuentren comprometidos con la impartición de justicia con equidad y con sentido de justicia social, alejados de participar en cualquier acto de corrupción y garantizando siempre la protección de los grupos vulnerables bajo criterios mas humanistas en el desempeño de la función.
+
+
+## Propuestas
+
+- Rapidez en la resolución de los asuntos con un tiempo máximo de 6 meses y garantizando el respeto absoluto de los derechos fundamentales de los justiciables.
+- Garantizaré el acceso a la justicia de todas las personas, sin importar su estatus social o si pertenece a un grupo vulnerable, de tal manera que la justicia sea accesible para todos.
+- Desempeñaré la labor jurisdiccional en estricta observancia a los principios que rigen la labor judicial como honorabilidad, excelencia, objetividad, imparcialidad, profesionalismo, equidad, justicia social e independencia y desarrollando las virtudes tales como humanismo, justicia, prudencia, responsabilidad, fortaleza, patriotismo, compromiso social, lealtad, orden, respeto, decoro, laboriosidad, perseverancia, humildad, sencillez, sobriedad y honestidad, alejado de actos de corrupción.
+

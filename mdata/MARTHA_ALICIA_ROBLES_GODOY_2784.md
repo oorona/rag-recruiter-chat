@@ -1,0 +1,74 @@
+Nombre Candidato: MARTHA ALICIA ROBLES GODOY
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: MUJER
+Telefono: 7779981515
+Correo Electronico: martharoblesgodoy@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Conciliación., Derecho Laboral, Derecho Penal, Derechos Humanos, Enfoque Humano, Especialización, Juicio de Amparo, Jurisprudencia, Perspectiva de Género, Psicología
+Tags Propósito: Accesibilidad, Agilidad, Burocracia, Capacitación, Conciliación, Derecho Laboral, Digitalización, Dignidad, Eficiencia, Empatía, Equidad, Humanización, Justicia, Mediación, Poder Judicial, Psicología, Realidades humanas, Resolución de conflictos, Tecnología., Transparencia
+
+
+## Descripción del Candidato 
+
+Martha Alicia Robles Godoy es candidata a Jueza/es de Distrito en Morelos, postulándose al Poder Legislativo Federal. Licenciada en Derecho y estudiante de Psicología, cuenta con especialización en Derecho Laboral con enfoque humano y conciliador. 
+
+Su motivación para buscar el cargo público se centra en lograr un Poder Judicial justo y humano, proponiendo un sistema accesible, transparente y empático que integre el derecho y la psicología. Sus principales propuestas incluyen la agilización de procesos judiciales mediante la simplificación de tecnologías, el fortalecimiento de la fase de conciliación y la capacitación continua y multidisciplinaria para los integrantes del Poder Judicial, enfocándose en el entendimiento de las realidades humanas detrás de cada conflicto.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1B1zSgHNtV/?mibextid=wwXIfr
+- https://www.instagram.com/martharoblesgodoy?igsh=MWN1N3hnajE2cXNl
+- https://www.tiktok.com/@marthaaliciarobles?_t=ZS-8uxwSGcXXc2&_r=1
+
+
+## Cursos
+
+- Juicio de amparo, derecho Laboral, Jurisprudencia, derechos humanos, perspectiva de género, penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54653/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, estudiante de Psicología
+- Especialización en Derecho Laboral con enfoque humano y conciliador
+
+
+## Motivo para buscar el Cargo Publico
+
+Lograr un Poder Judicial justo y humano. Con mi visión, haré la justicia accesible y real para quienes más la necesitan.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una función jurisdiccional cercana y con sentido humano, donde la justicia no sea fría ni burocrática, sino accesible y empática. Propongo agilizar los procesos, priorizar la conciliación justa y garantizar que cada resolución respete la dignidad de trabajadores y empleadores. Mi enfoque integra el derecho y la psicología para comprender las realidades humanas detrás de cada conflicto, asegurando un Poder Judicial más equitativo y comprometido con la gente. ¡La justicia debe ser para todos!
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es un sistema accesible, transparente y humano. La justicia debe entenderse desde la realidad de cada persona, respetando su dignidad. Propongo una impartición ágil, centrada en la conciliación y en soluciones justas que respeten los derechos de todos los involucrados. Mi enfoque integrará el derecho y la psicología, promoviendo la comprensión de los contextos personales y laborales para decisiones más equitativas y humanas.
+
+
+## Propuestas
+
+- Agilizar los procesos judiciales simplificando el uso de tecnologías, que si bien ya existen, a menudo resultan complicadas y poco accesibles tanto para litigantes como para la ciudadanía. Esto genera demoras y frustraciones. Propongo hacer estas herramientas más intuitivas, reduciendo la burocracia digital y los tiempos de espera. La digitalización debe ir acompañada de capacitación efectiva para jueces y personal judicial, asegurando un sistema más ágil, cercano y eficiente para todos.
+- Fortalecer la fase de conciliación en las audiencias preliminares, asegurando que las partes cuenten con mediadores capacitados que faciliten el entendimiento mutuo y la resolución de conflictos de manera efectiva y justa. Esto permitirá reducir la sobrecarga de casos, evitando sentencias prolongadas y desgastantes. Fomentar acuerdos rápidos y satisfactorios que respeten las realidades humanas, logrando un sistema más ágil, eficiente y justo. ¡Es hora de cambiar y mejorar la justicia para todos!
+- Garantizar una capacitación continua y multidisciplinaria para todos los integrantes del Poder Judicial, integrando conocimientos de derecho laboral, psicología y mediación. Esto permitirá comprender mejor las realidades humanas detrás de cada conflicto, promoviendo una justicia más empática, equitativa y respetuosa de los derechos de todos los involucrados, fortaleciendo la confianza de la ciudadanía en el sistema judicial. ¡Para una justicia que transforme, vamos juntos, lo lograremos!
+

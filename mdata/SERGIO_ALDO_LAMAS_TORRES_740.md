@@ -1,0 +1,81 @@
+Nombre Candidato: SERGIO ALDO LAMAS TORRES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5543632427
+Correo Electronico: sergiolamas_6944@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Bachillerato, Derecho Administrativo, Derecho Constitucional, Educación Pública, Especialidad Federal., Formación, Inconstitucionalidad, Juicio de Amparo, Jurisprudencia, Licenciatura, Maestría, Poder Judicial, Protocolo de Investigación, Secretarios, UNAM
+Tags Propósito: administración de justicia, calidad de vida, derechos humanos, discapacidad, eficiencia, equidad, impunidad., infancia, justicia, justicia civil, justicia familiar, poder judicial, re-victimización, soluciones rápidas, transformación social, transparencia, violencia de género
+
+
+## Descripción del Candidato 
+
+SERGIO ALDO LAMAS TORRES es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con maestría y estudios de licenciatura y bachillerato en la UNAM, además de una especialidad a nivel federal y diversos cursos de formación en áreas del Poder Judicial.
+
+Su motivación para buscar el cargo se centra en transformar la realidad social a través de sus sentencias, promoviendo una justicia cercana a la gente, especialmente para grupos vulnerables como mujeres, niños y personas con discapacidad. Sus propuestas incluyen la mejora de la calidad de vida a través de la administración de justicia, la erradicación de la violencia institucional y la resolución de casos en un tiempo menor sin comprometer la calidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BSaGWW5jB/?mibextid=wwXIfr
+- https://x.com/checolamas1?s=11&t=Jx0U6r-Xar7tLikAZ0tT8A
+- https://www.instagram.com/checo_lamas_pj?igsh=eDV6dnRtNjhsdWQw&utm_sou
+- https://www.tiktok.com/@checo.lamas.pj?_t=ZM-8tvdjPyw42R&_r=1
+
+
+## Cursos
+
+- Especialidad ¿Curso de Formación y Preparación de Secretarios del Poder Judicial de la Federación 2018¿
+- Promedio 9
+- 74,Curso sobre ¿Jurisprudencia¿
+- ,Curso ¿El Juicio de Amparo y Acción de Inconstitucionalidad¿
+- ,Curso sobre ¿Elaboración del Protocolo de Investigación¿
+- ,Curso sobre ¿Conceptos básicos de Derecho Administrativo, Derecho Constitucional y Argumentación Jurídica¿
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53520/10
+
+
+## Trayectoria Academica
+
+- Estudios en escuelas públicas
+- Maestría, licenciatura y bachillerato por la UNAM
+- Más una especialidad a nivel federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque a través de las sentencias voy transformar favorablemente la realidad de las personas y sus familias.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El nuevo modelo de justicia requiere de una transición e implementación efectiva por personas eficientes y creativas capaces de transformar la realidad social de quienes más lo necesitan.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En materia civil y familiar existe una sed de justicia desde las infancias, las personas con discapacidad y las mujeres que no solo son violentadas en sus casas, trabajos y espacios públicos, sino desde las propias instituciones que casi siempre las revictimizan. La justicia debe ser cercana a la gente y con la capacidad de mejorar su calidad de vida, tanto en lo social, en lo familiar y en lo económico, debe ser un instrumento para mejorar la calidad de vida del pueblo de México.
+
+
+## Propuestas
+
+- Transformar realidades sociales a través de las sentencias. La justicia debe ser un instrumento para mejorar la calidad de vida del pueblo de México, desde el aspecto social, familiar, educacional, laboral y económico.
+- No más violencia institucional en contra de las personas que sufren cualquier otro tipo de violencia. Basta de minimizar y normalizar la violencia contra mujeres, niñas, niños, adolescentes y personas vulnerables, especialmente desde la base elitista del Poder Judicial Federal. Desde mi posición no será tolerado ningún tipo de violencia y tampoco se provocará revictimización.
+- Solución de asuntos en la mitad del tiempo promedio y con mejor calidad. Siempre se ha podido hacer más con menos y las personas esperan que sus impuestos sean eficientes en el servicio de administración de justicia.
+

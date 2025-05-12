@@ -1,0 +1,75 @@
+Nombre Candidato: ADOLFO CHRISTIAN CASTRO SOLIS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5588102832
+Correo Electronico: adolfocastrosolis10@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: criminología, derecho, doctorado, estudios de posgrado, licenciatura, reformas constitucionales
+Tags Propósito: Acceso a la justicia, Capacitación continua, Cercanía a la ciudadanía, Confianza ciudadana, Derecho penal, Derechos humanos, Eficiencia, Equidad, Estado democrático, Función jurisdiccional, Imparcialidad, Independencia judicial, Justicia social, Jóvenes estudiantes de derecho., Legalidad, Nuevas tendencias jurídicas, Orden social, Paz social, Perspectiva de género, Transparencia, Violencia de género
+
+
+## Descripción del Candidato 
+
+Adolfo Christian Castro Solis es candidato a Juez de Distrito en la Ciudad de México, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Criminología y estudios de doctorado en Derecho, además de haber cursado reformas constitucionales. Su motivación para buscar el cargo es desempeñar una función judicial responsable y legal, garantizando imparcialidad y justicia social.
+
+Su visión se centra en consolidar un sistema judicial confiable y en fortalecer la impartición de justicia con perspectiva de género y derechos humanos. Sus propuestas incluyen un desempeño judicial transparente y cercano a la ciudadanía, capacitación continua en materia penal y derechos humanos, involucrando a estudiantes de derecho, y garantizar el acceso a una defensa justa para todos. Su curriculum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BFshbf7Si/
+- https://x.com/Chris_Castro_S?t=xddDnq5jNEx6QItymImYQw&s=09
+- https://www.instagram.com/christian_castro_solis_?igsh=ZGlmMXdjeTlyY2Z3
+- https://www.tiktok.com/@christian_castro_solis_?_t=ZM-8uxnFKbIb4h&_r=1
+
+
+## Cursos
+
+- Curso en reformas constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52511/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho Maestro en Criminología Estudios de doctorado en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para desempeñar función judicial con responsabilidad y legalidad para garantizar imparcialidad y justicia social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Consolidar un sistema judicial que refuerce la confianza de la sociedad y actúe con responsabilidad, garantizando la paz y el orden social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Construcción de un sistema más accesible, confiable y efectivo, en el que prevalezca el respeto a la legalidad y la protección de los derechos humanos, contribuyendo así a la consolidación de un Estado democrático y justo.
+
+
+## Propuestas
+
+- Un Juez penal que su desempeño judicial será Transparente, Eficiente y Cercano a la Ciudadanía. Se debe recuperar la confianza de la ciudadanía, es fundamental garantizar la imparcialidad e independencia judicial para una impartición de justicia equitativa y eficiente. Garantizar que todas las personas, sin importar su condición económica, social o cultural, puedan acceder a una defensa justa
+- Fortalecer la impartición de Justicia con Perspectiva de Género y Derechos Humanos. Es fundamental garantizar que las víctimas de violencia de género reciban justicia de manera rápida y sin revictimización, asegurando una aplicación de la ley equitativa y con sensibilidad social.
+- Capacitación Continua en Materia Penal y Derechos Humanos para lograr una justicia social. Promover programas de actualización y especialización para jueces en temas de derecho penal, derechos humanos y nuevas tendencias jurídicas y sociales. Involucrar a Jovenes estudiantes de la licenciaturas en Derecho en la función jurisdiccional.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: CYNTHIA CRISTINA LEAL GARZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8211110808
+Correo Electronico: magistradacynthialeal@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Ciencia Política, Derecho, Derecho Internacional, Doctorado., Gobernanza, ITESM, Licenciatura, Maestría, Nuevo León, Seminario
+Tags Propósito: Causas sociales, Especialización ambiental, Foros de discusión, Función jurisdiccional, Imparcialidad, Impartición de justicia, Modernización legislativa, México, Poder Judicial, Políticas públicas, Profesionalización, Servicio público, Servidores públicos.
+
+
+## Descripción del Candidato 
+
+Cynthia Cristina Leal Garza es candidata a las Magistraturas de Tribunales Colegiados de Circuito, postulándose desde Nuevo León a los poderes Judicial y Legislativo Federal. Cuenta con estudios de Licenciatura en Derecho y Ciencia Política, Maestría en Administración Pública y Derecho Internacional, y Doctorado en Gobernanza.
+
+Su motivación para buscar el cargo público se basa en un "ánimo de servicio a México" y en la experiencia y conocimientos adquiridos.  Su visión de la función jurisdiccional se centra en la participación activa en la modernización de legislaciones y políticas públicas, promoviendo una justicia cercana a la gente, imparcial y con continua profesionalización del Poder Judicial. Sus propuestas incluyen la asistencia a foros de discusión para modernizar leyes, analizar la inclusión de la materia ambiental en las especializaciones del Poder Judicial Federal, y promover la profesionalización continua del personal del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=569831419
+- https://www.instagram.com/cynthiaclealg?igsh=MWV6eWNtODd3MGhucA3D3D&utm_source=qr
+- https://www.youtube.com/@cynthialeal1557
+- https://www.tiktok.com/@cynthia.leal18/
+
+
+## Cursos
+
+- Asistente al Seminario sobre la Nueva Constitución del Estado de Nuevo León, ITESM, Monterrey, México, diciembre de 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53814/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho y en Ciencia Política, Maestra en Administración Pública y Derecho Internacional, y Doctora en Gobernan
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo un ánimo de servicio a México, y tengo los conocimientos y la experiencia para llevarlo a cabo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional en nuestro país debe no solamente estar detrás de un escritorio, sino también escuchar las causas sociales. Las personas juzgadoras deben asistir a Universidades, a las Barras de Abogados, a los Medios de Comunicación, a Congresos, Foros, Seminarios, a los Congresos de los Estados y Federal, y en general a todos los foros de discusión, para participar en la modernización de las legislaciones y las políticas públicas del país que tienen una resolución judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es una que escucha a las personas, que es cercana a la gente; y asimismo, la función jurisdiccional debe respetar a todas las personas por igual, ejercer la justicia con total imparcialidad, y debe asimismo buscar una continua profesionalización de todos los servidores públicos que laboran en el Poder Judicial.
+
+
+## Propuestas
+
+- Asistir continuamente a Mesas de Trabajo y Foros de discusión convocadas por todos los distintos actores sociales, para participar en la modernización de las legislaciones y las políticas públicas del país que tienen una resolución judicial.
+- Analizar la idoneidad de establecer, y en su caso promover, la materia ambiental dentro de las materias de especialización del Poder Judicial Federal.
+- Promover la profesionalización del Poder Judicial.
+

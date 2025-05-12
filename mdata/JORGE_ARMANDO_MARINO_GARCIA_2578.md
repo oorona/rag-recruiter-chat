@@ -1,0 +1,76 @@
+Nombre Candidato: JORGE ARMANDO MARINO GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3310478825
+Correo Electronico: ja.marinogarcia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Juicio de Amparo, Juicios Orales, Maestría en Derecho., Redacción Jurídica, Sistema Penal Adversarial, Suprema Corte de Justicia de la Nación, Universidad de Guadalajara
+Tags Propósito: Accesibilidad, Corrupción, Derechos Fundamentales, Eficiencia, Estado de Derecho, Evaluación Judicial, Fortalecimiento Institucional., Imparcialidad, Impunidad, Justicia, Rendición de Cuentas, Seguridad Jurídica, Simplificación de Trámites, Supervisión Judicial, Tecnologías, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Jorge Armando Marino García es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Abogado egresado de la Universidad de Guadalajara con Maestría en Derecho por la misma institución, cuenta con diversos diplomados en áreas como Juicios Orales, Sistema Penal Adversarial y Juicio de Amparo, impartidos por instituciones como la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo se basa en su capacidad para transformar la impartición de justicia en México. Propone un sistema judicial imparcial, transparente y accesible, enfocándose en erradicar la corrupción e impunidad, mejorar la accesibilidad a la justicia para todos los sectores de la población, y fortalecer la transparencia y rendición de cuentas a través de la publicación de decisiones y evaluación del desempeño judicial. Su currículum vitae completo está disponible en la página web del INE: [https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53646/11](https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53646/11).
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jorgemarino
+- https://www.x.com/JORGE_MARINO
+- https://www.instagram.com/marino_jorge
+- https://www.tiktok.com/jorgearmandomarino
+
+
+## Cursos
+
+- 1
+- Seminario de Redacción Jurídica Junio 2013 Agosto 2013,Diplomado Juicios Orales y el Sistema Penal Adversarial impartido por el Dr
+- Daniel Espinoza Licon,Diplomado Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación 2023,Diplomado Juicio de Amparo impartido por la Suprema Corte de Justicia de la Nación 2021
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53646/11
+
+
+## Trayectoria Academica
+
+- Abogado Egresado por la Universidad de Guadalajara; con Maestría en Derecho en la Universidad de Guadalajara
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque sé que tengo la capacidad para transformar la impartición de justicia en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Implementar un sistema de Justicia imparcial, trasparente y accesible que garantice la emisión de resoluciones de manera eficiente y equitativa; lo anterior, garantizando la protección de los Derechos fundamentales y la seguridad jurídica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El sistema de Justicia es un pilar fundamental para garantizar el Estado de Derecho y la Seguridad Jurídica; sin embargo, enfrenta retos cómo demora en los procesos, la corrupción, la impunidad y la falta de acceso a la justicia para sectores vulnerables. Por lo que resulta necesario implementar mecanismos para erradicar la corrupción, la impunidad, pero sobre todo la falta de empatía e indolencia de parte de los Juzgadores.
+
+
+## Propuestas
+
+- Erradicar la corrupción e impunidad dentro de la función jurisdiccional: 1. Implementar mecanismos de supervisión sobre el desempeño de Jueces y Tribunales. 2. Publicar la información sobre resoluciones y estadísticas judiciales para que la ciudadania evalúe la eficiencia y legalidad del sistema 3. Luchar por el fortalecimiento de los órganos de control y disciplina para la evaluación de los impartidores de justcia.
+- Accesibilidad e inclusión: 1. Eliminar barreras económicas, geográficas y sociales para que todas las personas, sin distinción alguna, puedan acceder a la Justicia. 2. Impulsar el uso de tecnologías para agilizar los procesos y reducir costos. 3. Simplificación de trámites judiciales para personas sin conocimientos legales.
+- Transparencia y rendición de cuentas: Fortalecer la confianza en el sistema judicial mediante publicación de decisiones y evaluación del desempeño de los nuevos operados de justicia.
+

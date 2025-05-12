@@ -1,0 +1,78 @@
+Nombre Candidato: CARLOS ALBERTO VELASCO GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: COLIMA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: carlos.velasco.gonzalez@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, Administración de Justicia Penal Federal, Derecho de Ejecución Penal, Espacios Libres de Violencia, Formación Judicial, Formación Profesional., Judicatura Federal, Secretarios Poder Judicial de la Federación, Servicio Nacional
+Tags Propósito: Acceso a la Justicia, Actualización Profesional., Beneficios Alternativos, Capacitación, Comunicación Institucional, Delitos, Derechos, Ejecución Penal, Estado de Derecho, Honestidad, Igualdad, Imparcialidad, Justicia, Normativa Legal, Problemas Sociales, Rehabilitación, Rendición de Cuentas, Resolución de Conflictos, Seguridad Jurídica, Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Velasco González es candidato a Juez/a de Distrito en Colima, postulándose a través del Poder Legislativo Federal. Cuenta con especialidad y cédula profesional, además de diversos cursos de formación en el ámbito de la administración de justicia penal, derechos humanos y ejecución penal, ofrecidos por instituciones del Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo se basa en su perfil profesional y su deseo de servir a la nación con honestidad, imparcialidad y una visión de cambio. Propone fortalecer la comunicación institucional con la ciudadanía a través de la difusión de resoluciones y la apertura de audiencias, rendir cuentas de su trabajo a través de un plan de trabajo anual y considerar factores sociales relevantes al momento de otorgar beneficios sustitutivos en procesos penales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BnNWDCBm9/?mibextid=wwXIfr
+- https://x.com/gonzalezca52233?s=21&t=WBgBqwQzhgORMT3DbHf_5A
+- https://www.instagram.com/carlos.velasco95?igsh=MTk1bnFxb2k1M203Ng3D3D&utm_source=qr
+- https://www.tiktok.com/@carlos_velasco95?_t=ZM-8v178tIhs7J&_r=1
+
+
+## Cursos
+
+- Curso de inducción a los puestos de la Administración de los Centros de Justicia Penal Federal
+- ,Curso de Formación para Actuarios del entonces Instituto de la Judicatura Federal
+- ,Curso para generar espacios Libres de Violencia de la Escuela Federal de Formación Judicial
+- ,Curso Fundamentos del Derecho de Ejecución Penal 2025 de la Escuela Federal de Formación Judicial
+- ,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación Ciclo 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54744/11
+
+
+## Trayectoria Academica
+
+- Realmente interesante, algo que despertó en mi la semilla del servicio a mi nación
+
+
+## Motivo para buscar el Cargo Publico
+
+Por ser un gran profesionista y patriota con las virtudes humanas de ser honesto, imparcial, justo y visión de cambio.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El deber de realizar la pronta y correcta impartición de justicia, que se traduce en seguridad jurídica para los gobernados, que permite la validación del Estado de Derecho, respeto a los derechos de los gobernados y ejercer la coercitividad de la normas, todo ello con la finalidad de tener una vida en sociedad pacifica y de respeto a cada uno de sus individuos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El Juzgador debe emitir resoluciones apegadas a la norma, sin ninguna otra intervención, garantizando el ejercicio de los derechos de las personas en un plano de igualdad, evitando caer en formalismos que impidan la resolución del fondo o motivo del asunto sometido a potestad; creando mecanismos que permitan al ciudadano acceder y tener conocimiento íntegro de su asunto, con lo que se dota a las partes de certeza jurídica, pues todo será resuelto con estricto apego a la Ley.
+
+
+## Propuestas
+
+- Comunicación Institucional con la ciudadanía, es decir, la realización y difusión de comunicados oficiales sobre resoluciones relevantes, acercamiento con los medios de comunicación a fin de convocar previamente a los ciudadanos a las audiencias públicas de asuntos de interés; así como difundir las versiones públicas de las resoluciones que se emitan.
+- Hacer público esquema y plan de trabajo de forma anual, como forma de rendición de cuentas a la sociedad; ello, respecto al conocimiento de asuntos que sean sometidos a la potestad judicial, así como de las resoluciones que se emitan en ellos, agregando las capacitaciones y cursos que en forma de actualización y preparación constante se reciban, todo con la finalidad de que se enteren de la labor realizada con recurso público.
+- La inclusión de los problemas sociales que inciden en delitos para la imposición de condiciones en salidas alternas (acuerdos reparatorios y suspensión condicional del proceso) y de beneficios sustitutivos, suspensivos o preliberaciones en el procedimiento de ejecución; ello, con la finalidad de que la sociedad se vea beneficiada con el cumplimiento que se de por las personas sujetas a proceso y, en su caso, condenadas, a dichas salidas y beneficios.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: LUCERO GRISEL MARTINEZ ENCARNACION
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: luceromartinezen@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Control Constitucional, Curso, Derecho, Derecho Procesal Constitucional, Derecho TIC, Derechos Humanos, Diplomado, Inteligencia Artificial, Licenciatura, Maestría., Radiodifusión, Seminario, Telecomunicaciones
+Tags Propósito: Accesibilidad, Cercanía ciudadana, Comunicación, Derechos humanos, Eficiencia jurisdiccional, Impacto social, Imparcialidad, Innovación, Inteligencia Artificial, Interacción social., Justicia pronta, Lenguaje ciudadano, Objetividad, Redes sociales, Resolución de conflictos, Sentencias claras, Servicio público, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+LUCERO GRISEL MARTINEZ ENCARNACION es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Procesal Constitucional y cédula profesional, habiendo realizado cursos en áreas como telecomunicaciones, derechos humanos y el uso de la Inteligencia Artificial en el ámbito jurídico. 
+
+Su motivación para buscar el cargo público es servir a la sociedad y tener un impacto positivo en el país. Su visión se centra en una función jurisdiccional transparente y cercana a la población, así como en la protección de los derechos humanos y la resolución pronta de controversias. Sus propuestas incluyen el uso de lenguaje ciudadano en las sentencias, la integración de herramientas tecnológicas como la Inteligencia Artificial para mejorar la eficiencia judicial, y el fomento de la transparencia a través de la divulgación de sentencias en redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573091557189
+- https://x.com/lucerogriselmtz
+- https://www.instagram.com/luceromartinezencarnacion/
+- https://www.youtube.com/channel/UCJdUlafe3PSNyrWBkDYN01g
+- https://www.tiktok.com/@lucerogriselmartinez
+
+
+## Cursos
+
+- Seminario de Telecomunicaciones,Seminario de Radiodifusión,Diplomado Derecho de las Tecnologías de la Información y las Comunicaciones,Curso Los derechos fundamentales del hombre, poderes públicos y tutela judicial efectiva en la perspectiva multinivel,Curso El Control constitucional y la interpretación con inteligencia artificial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53749/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestra en Derecho Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es la forma más pura de servir a la sociedad y representarla, permitiéndome tener un impacto positivo en el país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un referente de transparencia y cercanía a la población al ejercer la función jurisdiccional, siendo reconocida por implementar estrategias novedosas y creativas que coadyuven en eficientar la actividad jurisdiccional y logre que la población esté informada sobre el sentido de las sentencias emitidas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un referente en la protección de derechos humanos y en la resolución pronta de las controversias que sometan a su conocimiento con un enfoque imparcial y objetivo, siendo reconocida por el impacto positivo que tendrán las sentencias emitidas en la población ya sea como usuario, audiencia o consumidor.
+
+
+## Propuestas
+
+- Fomentar la emisión de sentencias con lenguaje ciudadano que permita que a través de una redacción clara y sencilla su lectura pueda ser accesible y entendible, lo cual propiciará que cualquier persona que tenga interés en conocer el quehacer jurisdiccional pueda comprender el sentido y trascendencia del fallo, lo que se traducirá en brindar mayor transparencia.
+- Integrar herramientas tecnológicas para mejorar la eficiencia del sistema judicial como el uso de la Inteligencia Artificial para realizar tareas administrativas, síntesis, búsqueda de precedentes judiciales, corrección de sintaxis y ortografía, lo cual permitirá la reducción de tiempo en la emisión de las actuaciones jurisdiccionales que, a su vez, propiciará la impartición de justicia pronta y expedita.
+- Fomentar la transparencia de las sentencias a través de la publicación de contenido en redes sociales con lenguaje sencillo y gráfico que permita dar a conocer a la población las razones que motivaron el sentido de esos fallos, así como la transcendencia y el impacto que estos tienen en la sociedad, propiciando con ello una interacción constante y cercana con la sociedad.
+

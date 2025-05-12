@@ -1,0 +1,75 @@
+Nombre Candidato: ABEL PEREZ GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: drperezgonzalezabel@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Penales, Derecho, Derecho Penal, Derechos Humanos, Doctorado, Especialidad, Género, Justicia Alternativa, Justicia Integral, Licenciatura., Maestría, Procuración de Justicia, Sistema Penal Acusatorio
+Tags Propósito: acceso a la justicia, acercamiento a la ciudadanía, carrera judicial, consejos consultivos, corrupción, credibilidad, derechos humanos, elección popular, honestidad, igualdad, igualdad de género, imparcialidad, impunidad, inclusión, independencia, innovación, integridad, justicia, medios tradicionales, nepotismo, participación ciudadana, población vulnerable., profesionalismo, redes sociales, sentencias públicas, transparencia
+
+
+## Descripción del Candidato 
+
+Abel Perez Gonzalez es candidato a Juez/a de Distrito en Jalisco, postulándose desde el Poder Judicial de la Federación. Cuenta con doctorado en Derecho, así como diversas especializaciones y diplomados en áreas como justicia integral para adolescentes, justicia alternativa, perspectiva de género y derechos humanos en la procuración de justicia.
+
+Su motivación para buscar el cargo es impartir justicia con honestidad, imparcialidad y sin corrupción. Su visión se centra en recuperar la credibilidad del poder judicial federal a través de la elección popular, garantizando acceso a una justicia eficaz e igualitaria. Sus propuestas incluyen un sistema mixto de selección de jueces (carrera judicial ratificada por elección popular), la creación de consejos consultivos con participación ciudadana y la implementación de campañas de acercamiento a la ciudadanía, especialmente a grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/abel.perez.gonzalez.13/
+- https://www.x.com/AbelPerezGon13
+- https://www.instagram.com/abel.perez.gonzalez.13/
+- https://youtube.com/@abelperezgonzalez-k2r
+- https://www.tiktok.com/@abelperezgonzalez
+
+
+## Cursos
+
+- Diplomado de Justicia Integral para adolescentes,Diplomado en Justicia Alternativa,Diplomado en impartición de Justicia con Perspectiva de Género,Diplomado en Derecho Penal: Sistema Penal Acusatorio Mexicano,Diplomado en enfoque de Derechos Humanos en la Procuración de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54032/11
+
+
+## Trayectoria Academica
+
+- Doctorado en Derecho, Maestría en Ciencias Penales, Especialidad en Derecho Penal, Licenciatura en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con honestidad, imparcialidad y sin corrupción.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es que el poder judicial federal recupere la credibilidad de la ciudadanía, a través de la elección popular de las personas juzgadoras, garantizando que el pueblo mexicano pueda acceder a una justicia eficaz y eficiente en igualdad de condiciones, con lo cual se evitará la impunidad, el nepotismo y los actos de corrupción, convirtiéndose en un modelo innovador de impartición de justicia, que sirva como referente a nivel internacional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Las personas juzgadoras que sean electas por el voto popular aplicarán e interpretarán la Constitución, las leyes que de ella emanan y los tratados internacionales, buscando el bien común, bajo los valores de independencia, transparencia, profesionalismo, honestidad, integridad y lealtad, que garantiza que los ciudadanos mexicanos tengan paz social, pues tienen la certeza de que la impartición de justicia está alineada con los derechos humanos, la igualdad de género y la inclusión.
+
+
+## Propuestas
+
+- Proceso de selección de personas juzgadoras: sistema mixto mediante el cual exista una carrera judicial basada en la formación académica y experiencia profesional, ratificándose después mediante una elección popular.
+- Participación ciudadana: creación de consejos consultivos para el poder judicial en los que participen por ejemplo, colegios de abogados y académicos, para emitir recomendaciones no vinculantes para el poder judicial federal, que se emitan versiones públicas de todas las sentencias emitidas por las personas juzgadoras para que la ciudadanía tenga acceso a su contenido.
+- Campañas permanentes de acercamiento a la ciudadanía: Implementar campañas permanentes en medios tradicionales y redes sociales, para que la ciudadanía comprenda el funcionamiento del poder judicial federal, especialmente la población de escasos recursos, indígenas y mujeres.
+

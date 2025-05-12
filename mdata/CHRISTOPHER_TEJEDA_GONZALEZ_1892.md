@@ -1,0 +1,81 @@
+Nombre Candidato: CHRISTOPHER TEJEDA GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6863216252
+Correo Electronico: ganamoscontejedagonzalez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Defensa Pública Federal, Derecho Penal, Ejecución Penal, Espacios Libres de Violencia, Formación Judicial, Juzgado de Distrito, Licenciatura en Derecho, Maestría en Derecho Procesal Constitucional., Maestría en Derecho Procesal Penal, Perspectiva de Género, Protocolo de Estambul, UNAM
+Tags Propósito: Acercamiento Social, Audiencias Orales, Derechos Humanos, Enfoque Diferencial, Estado, Función Juzgadora, Grupos Vulnerables, Ilegalidades, Imparcialidad, Integralidad, Justicia, Justicia Social, Paridad, Pensamiento Crítico, Perspectiva de Género, Resoluciones., Tejido Social, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+CHRISTOPHER TEJEDA GONZALEZ es candidato a Jueces/as de Distrito en Baja California, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal y Constitucional, siendo egresado de la UNAM. Ha realizado diversos cursos de especialización en ejecución penal, perspectiva de género, protocolos de defensa pública y prevención de violencia.
+
+Su motivación para buscar el cargo es contribuir a la impartición de justicia para personas en situación de vulnerabilidad. Su visión de la función jurisdiccional se centra en la figura del juzgador como un elemento clave del tejido social y garante de derechos humanos. Sus propuestas se enfocan en un enfoque diferencial y socialmente sensible en la impartición de justicia, con énfasis en la perspectiva de género y la mejora de la interpretación legal para beneficiar a los grupos vulnerables y a la sociedad en general.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.facebook.com/share/16Bb4BTppK/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/156M7vg341/
+- https://x.com/Tejeda49628003?t=pWPGbW1L323qViePT-FaGQ&s=08
+- https://www.instagram.com/tejedagonzalez79?utm_source=qr&igsh=c3N4eWxrd3JrZGk0
+- https://www.tiktok.com/@ctejeda79?_t=ZM-8uz3dzsXTN7&_r=1
+
+
+## Cursos
+
+- Curso Especializado en Ejecución Penal
+- Escuela Federal de Formación Judicial
+- ,Curso de recertificación, para el cargo de secretario de Juzgado de Distrito y secretario de Tribunal
+- ,Juzgar con perspectiva de género en materia penal
+- ,Curso Autogestivo Sobre el Protocolo de Estambul y la Defensa Pública Federal
+- ,Curso para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54751/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO (UNAM)
+- MAESTRÍA EN DERECHO PROCESAL PENAL
+- MAESTRÍA EN DERECHO PROCESAL CONSTITUCIONAL
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir en la impartición de justicia de aquellas personas que se encuentran en un grado de vulnerabilidad crítico.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La persona juzgadora es, sin duda, el tejido social, con el que se tiene una enorme deuda en la que el Estado debe posicionarse como un garante de derechos humanos, y protector de los valores más preciados de las personas tales como la vida, la libertad, la propiedad, el libre desarrollo de la personalidad Entre otros.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad mexicana, requiere de una función más integral de la persona juzgadora y eso se entiende como un acercamiento social más lineal dado que ello definirá sustancialmente cómo combatir las ilegalidades cometidas en contra de los grupos vulnerables y sociedad en general de México, incluso los argumentos interpretativos equivocados cometidas hasta por las personas Juzgadoras en sus resoluciones pueden mejorar con ese termómetro social.
+
+
+## Propuestas
+
+- Los estándares sociales, de justicia, procedimentales y de paridad y perspectiva de género me permiten construir un enfoque diferencial de pensamiento en donde por supuesto, he identificado las diversas concepciones de los participantes en un tema o discusión constructiva sus sentidos y atavíos de la vida, incluyendo el pensamiento crítico, colectivo y/o personal, que nos lleva a materializar en el goce efectivo de nuestros derechos como ciudadanos y ciudadanas de México.
+- La sociedad mexicana, requiere de una función más integral de la persona juzgadora, y eso se entiende como un acercamiento social más lineal dado que ello definirá sustancialmente cómo combatir las ilegalidades cometidas en contra de los grupos vulnerables y sociedad en general de México.
+- Realizar argumentos interpretativos idóneos por las personas Juzgadoras en un México carente de Justicia Social, en sus resoluciones para mejorar con ese termómetro social, a todo ciudadano, teniendo como termómetro las audiencias orales. Los estándares sociales de justicia, procedimentales y de paridad y perspectiva de género me permiten construir un enfoque diferencial de pensamiento, con la finalidad de impartir Justicia en este País necesitado de buenos Juzgadores imparciales,.
+

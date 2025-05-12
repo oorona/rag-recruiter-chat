@@ -1,0 +1,75 @@
+Nombre Candidato: ALEXIS RIVERO PONCE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5510127689
+Correo Electronico: riverop.alexis@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Indirecto, Argumentación Jurídica, Derecho Constitucional, Derecho Regulatorio, Diplomado., Licenciatura, Poder Judicial de la Federación, Responsabilidad de Servidores Públicos, Secretaría de Juzgado, Sistema Nacional Anticorrupción, UNAM, Universidad Panamericana, Universidad de Alicante
+Tags Propósito: Acceso a la justicia, Apertura institucional, Competencia económica, Conciencia de clase, Conectividad incluyente., Democracia, Derechos humanos, Desarrollo sostenible, Dignidad humana, Estado de derecho, Función jurisdiccional, Igualdad sustantiva, Inclusión, Interseccionalidad, Justicia accesible, Justicia social, Lenguaje claro, Perspectiva de género, Poder Judicial, Seguridad jurídica, Telecomunicaciones, Transparencia
+
+
+## Descripción del Candidato 
+
+Alexis Rivero Ponce es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con cédula profesional de Especialidad y ha realizado diversos diplomados en áreas como Sistema Nacional Anticorrupción, Amparo Indirecto, Derecho Regulatorio y Argumentación Jurídica, además de estudios de Licenciatura en Derecho, Especialidad en Responsabilidad de Servidores Públicos y Maestría en Derecho Constitucional por la UNAM.
+
+Su motivación para el cargo es fortalecer la justicia con un enfoque social y de perspectiva de género. Propone fortalecer la argumentación de sentencias con enfoque en derechos humanos, consolidar criterios jurisprudenciales claros y promover una mayor apertura institucional a través del lenguaje claro, acceso a la información y vinculación con la ciudadanía. Su visión de la función jurisdiccional y la impartición de justicia se centra en la dignidad humana, los derechos humanos, la igualdad sustantiva y la reducción de desigualdades.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alexis.rivero.3557/
+- https://x.com/AlexisRivPon
+- https://www.instagram.com/alexis_rivpon/
+- https://www.tiktok.com/@alexisrivero670?_t=ZM-8uzOBiF9GvF&_r=1
+
+
+## Cursos
+
+- Habilitación para el cargo de Secretaria y Secretario de Juzgado o de Tribunal del Poder Judicial de la Federación,DIPLOMADO en Sistema Nacional Anticorrupción y Responsabilidades Escuela Federal de Formación Judicial,DIPLOMADO en Amparo Indirecto Centro de Estudios Jonia,DIPLOMADO en Derecho Regulatorio Escuela Federal de Formación Judicial,Diplomado en Argumentación Jurídica Instituto de la Judicatura Federal, Universidad Panamericana,Universidad de Alicante
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54365/10
+
+
+## Trayectoria Academica
+
+- Licenciatura, Especialidad en Responsabilidad de Servidores Públicos y Maestría en Derecho Constitucional por la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado para fortalecer la justicia con enfoque social, perspectiva de género y compromiso con el país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como una tarea técnica y profundamente humana. Mi visión es la de una justicia con enfoque en derechos humanos e igualdad sustantiva, que sea pronta, completa y efectiva; que actúe como motor de justicia social, desarrollo sostenible e inclusión. Creo en un Poder Judicial cercano a la ciudadanía, que rinda cuentas y garantice un entorno democrático, plural y libre de violencia, en el que se respeten los derechos de todas las personas, sin distinción de género.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desde mi perspectiva, la impartición de justicia como una función del Estado que debe ejercerse con conciencia de clase. Una justicia comprometida con la dignidad humana, que coloque los derechos humanos y la igualdad sustantiva en el centro de todas sus decisiones. Aspiro a impartir una justicia accesible, cercana, transparente y transformadora, que contribuya a reducir desigualdades y que sea digna para quienes acuden a un órgano jurisdiccional para solucionar una controversia.
+
+
+## Propuestas
+
+- Fortalecer la argumentación de las sentencias con enfoque en derechos humanos y perspectiva de género, especialmente en sectores como telecomunicaciones y competencia económica, para garantizar decisiones sensibles al interés público, al bienestar colectivo y a la igualdad sustantiva.
+- Impulsar la consolidación de criterios jurisprudenciales claros, predecibles y con enfoque interseccional que aporten seguridad jurídica a los actores del mercado y a la ciudadanía, promoviendo una competencia económica equitativa y una conectividad incluyente.
+- Fomentar una mayor apertura institucional, promoviendo el uso de lenguaje claro, no sexista ni excluyente en las resoluciones, el acceso público a la información jurisdiccional y la vinculación con usuarias, usuarios y especialistas, con el fin de hacer más accesible y comprensible la justicia especializada para todas las personas.
+

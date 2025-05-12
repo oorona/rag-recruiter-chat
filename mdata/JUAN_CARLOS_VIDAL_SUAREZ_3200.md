@@ -1,0 +1,75 @@
+Nombre Candidato: JUAN CARLOS VIDAL SUAREZ
+Cargo: Juezas/es de Distrito
+Entidad: TABASCO
+Sexo: HOMBRE
+Telefono: 9932070525
+Correo Electronico: CCOBYY@HOTMAIL.COM
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Equipos, Calidad Integral, Cnpp, Correspondencia, Derecho Internacional Humanitario, Derecho Penal, Formación, Licenciatura en Derecho, Poder Judicial de la Federación, Secretarios, Titulación., UAT, UNAM
+Tags Propósito: accesibilidad, actos de autoridad., control constitucional, derechos humanos, estado de derecho, estándares de justicia, función jurisdiccional, imparcialidad, justicia, orden jurídico, protección de derechos, resolución de conflictos, transparencia
+
+
+## Descripción del Candidato 
+
+JUAN CARLOS VIDAL SUAREZ es candidato a Jueces/es de Distrito en Tabasco, postulándose para el Poder Legislativo Federal. Cuenta con Licenciatura en Derecho, obtenida en 2004 por la Universidad Juárez Autónoma de Tabasco, y cédula profesional. Su formación continua incluye cursos en áreas como formación para secretarios del Poder Judicial, desarrollo de equipos de trabajo, derecho internacional humanitario, calidad integral en el Poder Judicial y sistemas de correspondencia.
+
+Su motivación para buscar el cargo es emitir resoluciones justas y atender las problemáticas ciudadanas.  Su visión de la función jurisdiccional se centra en proteger el orden jurídico, declarar derechos y resolver conflictos. Sus propuestas incluyen impartir justicia reconociendo los derechos de cada individuo, preservar el orden jurídico y constitucional, y juzgar atendiendo a los nuevos estándares de justicia en México, velando por el apego a la ley.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Ciclo Escolar 2010,Desarrollo de Equipos de Trabajo, Administracion para Equipos de Trabajo
+- ,Primer Seminario de Derecho Internacional Humanitario y Sobre Dogmática Jurídica Penal Desde la Perspectiva del Cnpp,Calidad Integral en el Poder Judicial de la Federación, Universidad Nacional Autónoma de México
+- ,Sistema de Correspondencia Común 2
+- 3
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55201/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Universidad Juárez Autónoma de Tabasco, (2016)
+- Fecha de titulación: 17 de junio de 2004
+
+
+## Motivo para buscar el Cargo Publico
+
+PARA EMITIR RESOLUCIONES DE MANERA JUSTA, ATENDIENDO LA PROBLEMATICA DE LA GENTE
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la actividad que realiza el Estado para resolver conflictos entre particulares o entre ellos y el Estado. Se ejerce a través de los tribunales y jueces, y se basa en el orden jurídico. Visión: Proteger el orden jurídico, Declarar la existencia de un derecho o deber, Resolver conflictos de intereses, Comprobar una regla de derecho o una situación de hecho, Adoptar una solución adecuada.
+
+
+## Vision sobre la Imparticion de Justicia
+
+impartir justicia de manera pronta, completa, imparcial, transparente, accesible y con rostro humano. Esto se logra a través de la innovación, la excelencia y el respeto a los derechos humanos.
+
+
+## Propuestas
+
+- Dar y reconocer a cada cual su derecho, impartiendo justicia resolviendo los inevitables conflictos que se dan en la sociedad
+- Preservar el orden jurídico y constitucional, llevando a cabo una función de control de los actos de órganos del Estado que pudieran violar o contravenir a la Constitución misma.
+- Juzgar atendiendo a los nuevos estándares de justicia que existen en México, siempre velando porque los actos de autoridad sean apegados a derecho
+

@@ -1,0 +1,73 @@
+Nombre Candidato: OCTAVIO ASENCIO FERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9831242100
+Correo Electronico: octavioasencio@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Procesal Civil, Derechos Humanos, Diligencias Civiles, Gestión Judicial., Juicio de Amparo, Licenciatura en Derecho, Litigio Estratégico, Materia Civil, Materia Familiar, Materia Laboral, Naciones Unidas, Perspectiva de Género, Suprema Corte
+Tags Propósito: Acceso a la justicia, Capacitación, Compromiso social, Control y confianza, Derechos, Digitalización, Estado de derecho, Función judicial, Igualdad, Imparcialidad, Independencia, Inteligencia artificial, Justicia social, Modernización, Plazos procesales, Profesionalismo, Responsabilidad, Seguridad jurídica, Tecnología, Transparencia., Trato digno, Ética
+
+
+## Descripción del Candidato 
+
+OCTAVIO ASCENCIO FERNANDEZ es candidato a Juez/a de Distrito en Quintana Roo, postulándose a través del Poder Judicial de la Federación. Cuenta con estudios de Maestría en Derecho Procesal Civil y Gestión Judicial, además de diversas certificaciones y diplomados en áreas como litigio estratégico en derechos humanos y juicio de amparo. 
+
+Su motivación para buscar el cargo es contribuir a una mejor atención con ética y profesionalismo. Su visión de la función jurisdiccional se centra en un compromiso social y humano, mejor capacitación y acceso a la justicia sin distinción. Sus propuestas incluyen la modernización tecnológica del sistema judicial, la mejora continua de la capacitación de funcionarios judiciales (tanto jurídica como en habilidades humanas), y la implementación de exámenes de control y confianza para asegurar la ética y responsabilidad de los trabajadores del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Certificación en Litigio Estratégico de Protección Internacional de Derechos Humanos,Certificado en Litigio Estratégico Internacional en Derechos Humanos, sistema de Naciones Unidas
+- ,Diplomado en Juicio de Amparo por la Suprema Corte de Justicia de la Nación
+- ,Taller Práctico de las Diligencias Actuales en Materia Civil,La aplicación de la perspectiva de Género, en casos concretos de la Materia Familiar, Civil y Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52368/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, maestría en Derecho Procesal Civil y maestría en Gestión Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Es una responsabilidad que asumí con el propósito de contribuir a una mejor atención con ética y profesionalismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una justicia diferente, con verdadero compromiso social y humano, mejor capacitación, comunicación, confianza y empatía de los impartidores de justicia hacia la ciudadanía, que garantice la seguridad jurídica y el acceso a la justicia sin distinción para construir un Estado democrático
+
+
+## Vision sobre la Imparticion de Justicia
+
+Con imparcialidad e independencia, pero sobre todo con justicia social, garantizando en todo momento el respeto a los derechos y los plazos procesales, para poder tener una justicia sin desigualdades, asegurando el cumplimiento de las leyes.
+
+
+## Propuestas
+
+- Un proceso de modernización, todos los juzgadores debemos tener una visión a futuro, se requiere de una mejor tecnología, inteligencia artificial y enfoques de la digitalización de las labores jurisdiccionales, para cumplir con nuestro compromiso de tener una justicia pronta y cercana a la sociedad.
+- Mejorar la capacitación de todos los funcionarios judiciales, la que debería de ser obligatoria anualmente tanto en los aspectos jurídicos como en los humanos, para garantizar a la ciudadanía un trato digno, respetuoso, que aclare sus dudas y sean asesorados debidamente.
+- Realizar de forma continua exámenes de control y confianza a los trabajadores del poder judicial, que garanticen que todos los funcionarios judiciales sean aptos para ejercer sus labores, y actúen con ética y responsabilidad en su vida privada y en la pública.
+

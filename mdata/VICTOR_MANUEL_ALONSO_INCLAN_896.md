@@ -1,0 +1,74 @@
+Nombre Candidato: VICTOR MANUEL ALONSO INCLAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: rebeldeamparo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Argumentación Jurídica, Catedrático Universitario, Derecho, Derechos Humanos, Escuela Libre de Derecho, Especialista, La Salle, Maestro., Mención Honorífica, Nuevo Marco Constitucional, Posgrado, Secretarios Poder Judicial, UNAM, Universidad Panamericana, Universidad Salamanca
+Tags Propósito: Acceso a la justicia, Compromiso social, Confianza, Derechos humanos, Dignidad, Empatía, Escucha activa, Humanidad, Igualdad ante la ley, Imparcialidad, Justicia accesible., Justicia humana, Proximidad, Rapidez, Resolución de conflictos, Respeto, Sentencias claras, Transformación
+
+
+## Descripción del Candidato 
+
+Víctor Manuel Alonso Inclán es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y una trayectoria académica de 14 años como catedrático, complementada con especializaciones y diplomados en áreas como argumentación jurídica, derechos humanos y el nuevo marco constitucional.
+
+Su motivación para aspirar al cargo es transformar la justicia en una fuente de esperanza, priorizando un servicio público honesto y empático. Su visión se centra en una función jurisdiccional comprometida con las personas y sus historias, proponiendo una impartición de justicia humana, accesible y transformadora. Sus propuestas incluyen una atención respetuosa y accesible a los justiciables, resoluciones claras y fundadas con perspectiva de derechos humanos, y un trato equitativo sin importar la condición socioeconómica de las partes involucradas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1GN1jkLsmr/?mibextid=wwXIfr
+- https://www.instagram.com/victormanuelalonsoinclan?igsh=MXFqcjk5MzJpMHA3aA==
+- https://youtube.com/@rebeldeamparo?si=GrbxOeZWpqhveEaO
+- https://www.tiktok.com/@victormanuelalonsoinclan?_t=ZM-8uuuMQhQZIl&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho por la División de Estudios de Posgrado de la UNAM (Mención Honorífica),Curso Básico de Secretarios del Poder Judicial de la Federación,Diplomado de Argumentación Jurídica en la Universidad Panamericana (Mención Honorífica),Estancia de Investigación sobre Derechos Humanos en la Universidad de Salamanca España,Diplomado sobre el Nuevo Marco Constitucional en Derechos Humanos y Amparo en la Escuela Libre de Derecho
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52273/10
+
+
+## Trayectoria Academica
+
+- Licenciado por La Salle, Especialista y Maestro en Derecho UNAM, 14 años interrumpidos cómo catedrático universitario
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser magistrado para que la justicia sea esperanza, no miedo. Para servir con el corazón, no con privilegios.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Veo la función jurisdiccional como un compromiso profundo con las personas y sus historias. Ser juez (magistrado) consiste, entre otras cosas, en escuchar con empatía, ponerse en los zapatos del otro, decidir con justicia y servir con humildad para entender el dolor y la firmeza para aplicar la ley con dignidad y respeto. Aspiro a que cada sentencia sea un acto de humanidad que devuelva esperanza y confianza en la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una impartición de justicia humana, accesible y transformadora. Una justicia que no se limite a aplicar normas, sino que escuche, comprenda y repare. Una justicia que no vea a las personas como expedientes, sino cómo seres humanos con derechos, con dignidad y con esperanza. Aspiro a que la justicia sea un puente entre la ley y la verdad. No una barrera que aleje al pueblo de sus derechos.
+
+
+## Propuestas
+
+- Justicia cercana y con rostro humano. Promover una atención respetuosa, empática y accesible para que quienes acudan a la ponencia se sientan escuchados, comprendidos y tratados con dignidad.
+- Resoluciones claras, fundadas y con perspectiva de derechos humanos. Si bien hay que emitir sentencias técnicamente sólidas, también hay que construirlas con lenguaje sencillo y comprensible para todas las personas, no sólo para los abogados. Sentencias que además sean mucho más cortas bajo un nuevo enfoque en el que la impartición de la justicia tenga como eje rector la rapidez y contundencia.
+- Justicia sin mirar de dónde viene la gente, ni cuánto tiene. Tratar cada asunto con el mismo compromiso, sin importar si la representa un gran despacho, o si acude sola con sus papeles en la mano. La ley debería valer lo mismo para todos. Nadie debería sentir que por no tener poder, tiene menos derechos.
+

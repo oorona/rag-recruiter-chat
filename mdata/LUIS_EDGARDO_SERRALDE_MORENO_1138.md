@@ -1,0 +1,74 @@
+Nombre Candidato: LUIS EDGARDO SERRALDE MORENO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5539692997
+Correo Electronico: semolued@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Corporativo, Derecho de Seguridad Social, EFFJ, Especialización Laboral., Formación Secretarios, ITAM, Jurista Laboral, Poder Judicial de la Federación, Reforma Laboral 2023
+Tags Propósito: acceso a la justicia, amparo directo, autonomía judicial, cercanía ciudadana, defensoría pública, derechos humanos, desarrollo académico, imparcialidad, justicia laboral, justicia material, justicia real, justicia social, no discriminación, plazos judiciales, requisitos innecesarios., tribunales laborales
+
+
+## Descripción del Candidato 
+
+LUIS EDGARDO SERRALDE MORENO es un jurista especializado en materia laboral, con cédula profesional y formación en el Poder Judicial de la Federación. Postula a una Magistratura de Tribunales Colegiados de Circuito, buscando aportar su experiencia como defensor público para modernizar la perspectiva en la resolución de asuntos laborales.
+
+Su visión para la función jurisdiccional se centra en el desarrollo académico continuo de los tribunales, la imparcialidad, la autonomía y la cercanía con la población. Propone agilizar los juicios laborales y de amparo directo, estableciendo plazos máximos de resolución, y enfatiza la necesidad de que los tribunales sean empáticos con la urgencia de justicia social, evitando requisitos innecesarios que dificultan el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/edgardo.serralde
+
+
+## Cursos
+
+- Actualización sobre la Reforma Laboral 2023 EFFJ,Diplomado Derecho de Seguridad Social EFFJ 2023,Jornadas de Sensibilización Sobre la Reforma en Materia de Justicia Laboral EFFJ,Diplomado en Derecho Corporativo ITAM,Especialidad Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación  14508698
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55043/10
+
+
+## Trayectoria Academica
+
+- Jurista especializado en materia laboral con especialidad de curso básico de formación de secretaros de P
+- J
+- F
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero aportar mi experiencia como defensor público para construir la nueva perspectiva de juzgar asuntos laborales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Propongo continuar con el desarrollo académico de las personas que integran los tribunales del Poder Judicial Federal, fomentar la imparcialidad, autonomía de la función jurisdiccional y lograr la cercanía con la población sin discriminación alguna
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe seguir siendo autónoma, la resolución de los conflictos deben atender el fondo respecto a las formalidades no esenciales, garantizando en todo caso los derechos humanos de las personas a fin de garantizar una justicia real y material.
+
+
+## Propuestas
+
+- Que todos los juicios laborales terminen en breve término
+- Que los juicios de amparo directo no duren más de 6 meses
+- Que los tribunales laborales sean empáticos con la urgencia de justicia social de los trabajadores y eviten solicitar requisitos innecesarios que obstaculicen el acceso efectivo e inmediato a la justicia plena.
+

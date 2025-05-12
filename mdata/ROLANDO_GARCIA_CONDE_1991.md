@@ -1,0 +1,79 @@
+Nombre Candidato: ROLANDO GARCIA CONDE
+Cargo: Juezas/es de Distrito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8143211832
+Correo Electronico: rolando_conde@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación para Jueces, Centros de Justicia Penal Federal, Derechos Humanos, Diplomado., Juicio de Amparo, Justicia Penal Acusatoria, Licenciatura en Derecho, Maestría en Derecho Constitucional, Secretarios del Poder Judicial Federal, Sistema Oral
+Tags Propósito: abusos, acceso a la justicia, elección popular, equilibrio judicial, experiencia., imparcialidad, impunidad, justicia, modernización judicial, renovación judicial, resolución de conflictos, sociedad, transformación judicial, vulnerables
+
+
+## Descripción del Candidato 
+
+Rolando Garcia Conde es candidato a Jueces/es de Distrito en Coahuila, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Constitucional, Especialidad de Secretarios del Poder Judicial Federal y cédula profesional. Su trayectoria incluye capacitación en el Nuevo Sistema de Justicia Penal Acusatorio y Oral, Derechos Humanos, Proceso Penal Acusatorio, y Juicio de Amparo, así como un curso de inducción para asistentes de Centros de Justicia Penal Federal.
+
+Garcia Conde busca el cargo con 10 años de experiencia, motivado por la necesidad de impartir justicia a la ciudadanía. Su visión para el Poder Judicial es un sistema renovado y elegido por la sociedad, con acceso universal a la justicia. Sus propuestas clave son una justicia cercana y útil, un equilibrio que evite impunidad y abusos, y una transformación judicial que modernice sin romper con lo establecido.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1GsnfURSh2/
+- https://x.com/RolandoConde?t=lKcWIavyFs_1UP-ZVUZqQg&s=09
+- https://www.instagram.com/rolando_conde?igsh=c2hjMDB1eHhodnRy&utm_source=ig_contact_invite
+- https://www.tiktok.com/@rolando_conde?_t=ZM-8v5stHX67E5&_r=1
+- https://www.threads.net/@rolando_conde
+
+
+## Cursos
+
+- Capacitación para Jueces en el Nuevo Sistema de Justicia Penal Acusatorio y Oral
+- ,Diplomado sobre ¿Acceso a la Justicia en materia de Derechos Humanos¿
+- ,Diplomado sobre ¿Proceso Penal Acusatorio y Oral¿
+- ,Diplomado sobre ¿Juicio de Amparo¿
+- ,Curso de Inducción para Asistentes de los Centros de Justicia Penal Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53239/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA en Derecho; MAESTRÍA en Derecho Constitucional; y ESPECIALIDAD de Secretarios del Poder Judicial Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir la justicia que la ciudadania necesita y requiere, aplicando la experiencia adquirida en 10 años.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Poder Judicial renovado, elegido por la sociedad, que funcione para el pueblo, con acceso a la justicia en general, sin obstaculos, que impidan que puedan acceder para que sean defendidos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia imparcial, sin interses de por medio y defiendo a los más vulnerables, sirviendo a la sociedad.
+
+
+## Propuestas
+
+- 1. Justicia cercana y útil: Resolución de conflictos de todos los grupos de la sociedad.
+- 2. Equilibrio judicial: Ni impunidad ni abusos.
+- 3. Transformación judicial: Modernización sin ruptura.
+

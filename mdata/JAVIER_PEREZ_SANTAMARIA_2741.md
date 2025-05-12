@@ -1,0 +1,80 @@
+Nombre Candidato: JAVIER PEREZ SANTAMARIA
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4432259256
+Correo Electronico: javierpersa7@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Derecho del Trabajo, Derechos Humanos, Discapacidad, Doctorado, Especializaciones., Formación Judicial, Jurisprudencia, Justicia Administrativa, Justicia Laboral, Maestro en Derecho, Suprema Corte, Violencia
+Tags Propósito: Agentes de paz, Capacitación continua, Desarrollo comunitario, Diálogo social, Eficiencia judicial, Excelencia académica, Formación de equipos, Impartición de justicia., Innovación tecnológica, Justicia ciudadana, Justicia clara, Justicia humanizada, Justicia ágil, Lenguaje accesible, Liderazgo, Michoacán, Puertas abiertas, Reparación social, Sectores obreros y patronales, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+Javier Pérez Santamaría es candidato a Juez de Distrito en Michoacán, postulando por el Poder Legislativo Federal. Cuenta con un doctorado concluido y especializaciones en Justicia Administrativa y Derecho del Trabajo, complementadas con diversos cursos en la Escuela Federal de Formación Judicial y la Suprema Corte de Justicia de la Nación.
+
+Su motivación para buscar el cargo se basa en un sentido de vocación de servicio a la comunidad y al país. Su visión de la función jurisdiccional se centra en un enfoque humanista, buscando la resolución de conflictos y la reparación del tejido social. Propone una justicia ágil y tecnificada, clara en su lenguaje para facilitar la comprensión ciudadana, y cercana a la comunidad a través de la apertura del juzgado y el diálogo constante con los sectores obreros y patronales de Michoacán.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AngbpFbXT/?mibextid=wwXIfr
+- https://x.com/santamarxista?s=11
+- https://www.instagram.com/javierperezsantamaria?igsh=Z3hsejg5a3pwaGFz
+- https://youtube.com/@javierperezsantamaria?si=LLv1LwYRxjW60uEQ
+- https://www.tiktok.com/@javierperezsantamaria?_t=ZM-8v5uBEQVBtH&_r=1
+
+
+## Cursos
+
+- Especialidad en Justicia Administrativa por el Tribunal de Justicia Administrativa
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral (año 2020), en la Escuela Federal de Formación Judicial
+- ,Curso Actualización Intensiva en 10 años de Jurisprudencia, en la Suprema Corte de Justicia de la Nación
+- ,Curso para Generar EspaciosLibres de Violencia I, en la Escuela Federal de Formación Judicial
+- ,Taller de Sensibilización y toma de Conciencia sobre los Derechos de las Personas con Discapacidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54038/11
+
+
+## Trayectoria Academica
+
+- Soy abogado, maestro en derecho, con doctorado concluido y dos especializaciones acreditadas
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque siento un fuerte sentido de vocación de servir a mi comunidad y contribuir en el desarrollo de mi país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mirar más allá de la ley; pensar y tratar a las personas como seres humanos y no como expedientes. Los juicios existen para resolver problemas entre las personas, no para acrecentarlos, por eso estoy convencido que los jueces somos agentes de paz y tenemos responsabilidad de reparar el tejido social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Trabajar con rapidez, eficiencia y excelencia; para ello, el juez debe estar altamente preparado y, además, ser líder y formador de equipos de trabajo de alto rendimiento para una impartición de justicia pronta, expedita y de calidez.
+
+
+## Propuestas
+
+- Justicia ágil y de vanguardia. Los juicios laborales federales durarán en tramitarse solo el tiempo establecido en la ley. Para ello, aprovecharé al máximo la tecnología y seguiré contribuyendo para que la formación académica continúe siendo el motor de la excelencia de las resoluciones de mi Tribunal, puesto que todos los integrantes seguiremos en capacitación constante para seguir logrando una justicia de calidad.
+- Justicia clara. Garantizo que las audiencias que lleve a cabo y las resoluciones que emita, se harán utilizando un lenguaje más simple, evitando tecnicismos legales e incluyendo en ellas ejemplos cotidianos que ilustren los motivos de por qué se tomó esa decisión, lo que permitirá que cualquier persona, incluso sin conocimientos jurídicos, pueda entender mejor el desarrollo y resolución de juicios.
+- Justicia ciudadana. Con el fin de propiciar un lazo de identificación más fuerte entre el pueblo y sus impartidores de justicia, así como de hacerlos sentir más cercanos a la función jurisdiccional, mi juzgado seguirá siendo un tribunal de puertas abiertas; continuaré visitando los 113 municipios de Michoacán para sostener un diálogo permanente y abierto con los sectores obrero y patronal, mirando de frente a los justiciables.
+

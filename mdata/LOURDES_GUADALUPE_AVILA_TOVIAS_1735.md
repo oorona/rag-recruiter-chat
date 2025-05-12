@@ -1,0 +1,75 @@
+Nombre Candidato: LOURDES GUADALUPE AVILA TOVIAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: 8343013722
+Correo Electronico: lugu73@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho Constitucional, Derecho Procesal Penal, Derecho del Trabajo, Desarrollo Humano, Diplomado, Formación Judicial, Función Jurisdiccional, Interpretación Jurídica, Juicios Orales, Justicia Social, Licenciatura en Derecho, Maestría, Norma Jurídica, Retórica Jurídica, Universidad Autónoma de Tamulipas.
+Tags Propósito: Accesibilidad, Acceso a la justicia, Calidad., Certeza, Comprensibilidad, Comunicación, Confianza, Derechos, Dilación procesal, Eficiencia, Equidad, Imparcialidad, Justicia, Legalidad, Plazos razonables, Recursos, Sentido humano, Transparencia
+
+
+## Descripción del Candidato 
+
+LOURDES GUADALUPE AVILA TOVIAS es candidata a Magistratura de Tribunales Colegiados de Circuito en Tamaulipas, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Derecho Procesal Penal Juicios Orales y una licenciatura en Derecho de la Universidad Autónoma de Tamulipas. Ha realizado diversas especializaciones en áreas como Derecho del Trabajo, argumentación jurídica y desarrollo del factor humano para la función jurisdiccional.
+
+Su motivación para buscar el cargo es contribuir a la justicia en el país. Su visión de la función jurisdiccional se centra en garantizar el acceso a la justicia de manera imparcial, expedita y con apego a la legalidad, priorizando el sentido humano. Sus propuestas incluyen eficientar recursos para reducir plazos procesales, mejorar la comunicación con las partes y asegurar que las resoluciones sean claras y comprensibles para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Dtfo6tEHq/?mibeextid=wwXlfr
+- https://x.com/lugu733?s=11
+- https://www.instagram.com/lourdesavilatovi?igsh=MTM4NXc40XNxdXpmNA3D3D&utm_source=qr
+- https://youtube.com/@lourdesavi?si=1WAmBdA9DdiEZBUl
+- https://www.tiktok.com/@lourdesavila373?_t=ZS-8v50vatdxwY&_r=1
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Social por la Escuela Federal de Formación Judicial,Diplomado en Interpretación y aplicación de la norma jurídica,Diplomado en Argumentación y Retórica Jurídica,Diplomado en desarrollo del factor humano y organizacional para la función jurisdiccional,Maestría en Derecho Procesal Penal Juicios Orales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52385/10
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho con maestría en Derecho Constitucional por la Universidad Autónoma de Tamaulipas
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona comprometida con la justicia y quiero contribuir para que sea un valor constante y vigente en mi país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe garantizar el acceso a la justicia mediante la tutela efectiva de los derechos, ello de una manera imparcial, expeditamente y con apego a la legalidad. Jamás debe perder su sentido humano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi propuesta implica la impartición de justicia con un sentido humano, garantizando los procesos equitativos, eficientes y accesibles para todos los ciudadanos.
+
+
+## Propuestas
+
+- Eficientar los recursos materiales y humanos a fin de que los procesos concluyan en plazos verdaderamente razonables y mejorar los mecanismos de seguimiento para evitar dilaciones procesales.
+- Hacer eficientes las vías de comunicación con las partes dentro de los procesos jurisdiccionales para brindar certeza y confianza en los procesos, ello implica estar abierto para solventar dudas oportunamente.
+- Lograr que las actuaciones procesales y sentencias sean claras, sencillas y comprensibles para el común de las personas, sin hacer a un lado la calidad y completitud que deben poseer.
+

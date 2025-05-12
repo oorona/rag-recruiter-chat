@@ -1,0 +1,78 @@
+Nombre Candidato: JORGE ANTONIO GARCIA SOTOMAYOR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: HOMBRE
+Telefono: 8715174629
+Correo Electronico: jsotomayor19@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adjudicación Judicial, Derechos Ambientales, Derechos Culturales, Derechos Económicos, Derechos Sociales, Impartición de Justicia, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Constitucional, Perspectiva de Género, Poder Judicial Federal, Política Judicial, Secretarias Proyectistas, Universidad Iberoamericana.
+Tags Propósito: Abusos, Acceso a la Justicia, Cercanía Ciudadana, Conversatorio Judicial, Decoro, Eficacia, Eficiencia, Expeditez, Imparcialidad, Justicia, Leyes, Litigantes, Pluralidad, Poder Judicial Federal., Profesionalismo, Prontitud, Respeto, Sensibilidad Social, Servidores Judiciales, Transparencia
+
+
+## Descripción del Candidato 
+
+Jorge Antonio García Sotomayor es candidato a Magistrado de Tribunales Colegiados de Circuito en Coahuila, postulado por el Poder Ejecutivo Federal. Licenciado en Derecho y Maestro en Derecho Constitucional y Amparo por la Universidad Iberoamericana, cuenta con formación especializada en áreas como juicio de amparo, derechos sociales y perspectiva de género, avalada por la Suprema Corte de Justicia de la Nación y otras instituciones.
+
+Su motivación para el cargo se basa en la creencia en un sistema de justicia imparcial, honesto y accesible. Propone medidas como facilitar el acceso a los recintos judiciales, capacitar a los servidores públicos en sensibilidad social y establecer conversatorios anuales con abogados para mejorar la función jurisdiccional. Su visión de la impartición de justicia se centra en la eficiencia, prontitud, transparencia y calidad en la resolución de los asuntos jurídicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1JJAd5sSNh/
+- https://x.com/garciasotomayo
+- https://www.instagram.com/garciasotomayo?igsh=dXB3bmpraXZiY3Y2
+- https://www.tiktok.com/@garciasotomayo?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- DIPLOMADO EN JUICIO DE AMPARO POR LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN
+- ,DIPLOMADO DE LA PROTECCIÓN JUDICIAL A LOS DERECHOS SOCIALES, ECÓNOMICOS, CULTURALES Y AMBIENTALES (DESCA)
+- ,DIPLOMADO EN PERSPECTIVAS DE GÉNERO Y ADJUDICACIÓN JUDICIAL
+- ,DIPLOMADO EN POLÍTICA E IMPARTICIÓN DE JUSTICIA
+- ,CURSO DE FORMACIÓN PARA PERSONAS SECRETARIAS PROYECTISTAS DEL PODER JUDICIAL FEDERAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53260/10
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO Y MAESTRO EN DERECHO CONSTITUCIONAL Y AMPARO, AMBOS POR LA UNIVERSIDAD IBEROAMERICANA
+
+
+## Motivo para buscar el Cargo Publico
+
+PORQUE CREO EN UN MÉXICO DONDE LA IMPARTICIÓN DE JUSTICIA SEA IMPARCIAL, HONESTA, PROFESIONAL Y CERCANA A LA GENTE.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+DE SER ELECTO MAGISTRADO FEDERAL, ME COMPROMETO A EJERCER EL CARGO CON PROFESIONALIDAD, DECORO Y CERCANÍA HACIA LOS CIUDADANOS Y LITIGANTES, ASÍ COMO A RESOLVER LOS PROBLEMAS JURÍDICOS QUE SE ME PRESENTEN DE MANERA PRONTA Y EXPEDITA Y SIN MAYORES FORMALISMOS, EN LOS QUE EN TODO MOMENTO SE BRINDE EL ESPACIO A LAS PARTES PARA SER OÍDAS DE VIVA VOZ, TRATÁNDOLES CON RESPETO Y QUE EN NINGÚN CASO UN FUNCIONARIO EJERZA ACTOS ABUSIVOS EN CONTRA DE SUS COMPAÑEROS Y PÚBLICO EN GENERAL.
+
+
+## Vision sobre la Imparticion de Justicia
+
+CREO DE MANERA FIRME EN QUE LA IMPARTICIÓN DE JUSTICIA DEBE DE SER NO SOLO IMPARCIAL, SINO ADEMÁS EFICAZ, EFICIENTE, COMPLETA, PRONTA, EXPEDITA, TRANSPARENTE Y DE CALIDAD. EL COMPROMISO DE UN SERVIDOR ES EL RESOLVER TODOS LOS ASUNTOS PUESTOS A MI DISPOSICIÓN DENTRO DE LOS PLAZOS PREVISTOS Y CON APEGO A LAS LEYES CORRESPONDIENTES, PREPONDERANDO EN TODO MOMENTO EL SIGNIFICADO DE JUSTICIA Y SENSIBILIDAD SOCIAL.
+
+
+## Propuestas
+
+- PUERTAS ABIERTAS: CONVERTIR LOS RECINTOS JUDICIALES EN VERDADEROS EDIFICIOS PÚBLICOS, DE FÁCIL ACCESO Y PARA TODOS, EN LOS CUALES LOS CIUDADANOS Y LITIGANTES PUEDAN COMPARECER A SER OÍDOS EN TODO MOMENTO POR LOS SERVIDORES JUDICIALES.
+- SENSIBILIDAD SOCIAL: CAPACITAR A TODOS LOS SERVIDORES PÚBLICOS JUDICIALES A EFECTO DE QUE SEAN MÁS RECEPTIVOS ANTE LAS VERDADERAS NECESIDADES Y PROBLEMÁTICAS DE LOS MILES DE CIUDADANOS QUE DEPOSITAN EN NOSOTROS LA CONFIANZA DE RESOLVER CON APEGO A LAS LEYES, ESTO CON LA FINALIDAD DE QUE AL RESOLVER EL JUICIO, SE TENGA UN VERDADERO PANORAMA DEL ASUNTO JURÍDICO, ASÍ COMO DE LA RELEVANCIA Y TRASCENDENCIA QUE REPRESENTA PARA LOS JUSTICIABLES.
+- CONVERSATORIOS JUDICIALES: ES SABIDO QUE LA PLURALIDAD DE IDEAS SIEMPRE ES BENEFICIOSA, POR ELLO, SE PROPONE REALIZAR ANUALMENTE UN ACERCAMIENTO CON TODOS LOS ABOGADOS DE LA REGIÓN A EFECTO DE CONOCER SUS INQUIETUDES CON LA IMPARTICIÓN DE JUSTICIA, ASÍ COMO CONOCER DESDE OTRO PUNTO DE VISTA LAS NECESIDADES Y ASPECTOS A MEJORAR EN LA FUNCIÓN DE NUESTRAS LABORES, ESTO CON LA FINALIDAD DE TENER MEJORES JUZGADORES, ASÍ COMO UN MEJOR PODER JUDICIAL FEDERAL.
+

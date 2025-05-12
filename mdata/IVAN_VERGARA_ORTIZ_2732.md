@@ -1,0 +1,76 @@
+Nombre Candidato: IVAN VERGARA ORTIZ
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 7221312371
+Correo Electronico: ivan_ver15@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuario, Escuela Judicial, Formación, Justicia Laboral, Licenciatura en Derecho, Poder Judicial de la Federación, Reforma., Secretario de Juzgado, Secretario de Tribunal, Titulación, Universidad Michoacana de San Nicolás de Hidalgo
+Tags Propósito: acceso a la justicia, bienestar social, derechos humanos, eficiencia, equidad, equilibrio de poderes, estado de derecho, humanidad, imparcialidad, independencia judicial, integridad, juristas, justicia, justicia pronta, mérito, nepotismo, paz social, sectores vulnerables, seguridad jurídica, servicio público., transparencia
+
+
+## Descripción del Candidato 
+
+IVAN VERGARA ORTIZ es candidato a Juez/a de Distrito en Michoacán, postulado por el Poder Ejecutivo Federal. Es Licenciado en Derecho por la Universidad Michoacana de San Nicolás de Hidalgo y cuenta con cédula profesional. Su formación incluye cursos en el Poder Judicial de la Federación, incluyendo exámenes de acceso a categorías específicas y especializaciones en justicia laboral y formación de secretarios.
+
+Vergara Ortiz motiva su candidatura en la posibilidad de transformar el sistema judicial para promover la equidad y el progreso social. Su visión de la función jurisdiccional se centra en la importancia de un Poder Judicial independiente, eficaz, transparente y garante de los derechos humanos y el orden democrático. Sus propuestas incluyen resolver conflictos con imparcialidad y humanidad, garantizar el acceso a la justicia para sectores vulnerables y combatir el nepotismo en el sistema judicial, priorizando el talento y la capacidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573966198912&mibextid=kFxxJD
+- https://www.instagram.com/ortizivanvergara?igsh=NHp1cXJtMzRqdTdn
+- http://tiktok.com/@ivn.vergara.ortiz
+
+
+## Cursos
+
+- Examen para acceder a la categoría de Actuario del Poder Judicial de la Federación, 29 de mayo de 2015
+- ,Examen para acceder a la categoría de Secretario de Tribunal o Juzgado de Distrito de 23 de noviembre de 201,Especialidad en Curso Básico de Formación y Preparación de Secretarios del PJF
+- Titulación: 12 de diciembre de 2019
+- ,Jornadas de Sensibilización Sobre la Reforma en Materia de Justicia Laboral,Espacios Libres de Violencia III, impartido por la Escuela Judicial del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54958/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad Michoacana de San Nicolás de Hidalgo
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo posibilidad de cambiar el sistema judicial en un verdadero motor de equidad y progreso en beneficio de la sociedad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que el rol de las personas juzgadoras determina la eficacia de los mecanismos que garantizan la protección de los derechos humanos, así como el mantenimiento del orden democrático y equilibrio entre poderes. De ahí que el Poder Judicial Federal debe ser independiente, eficaz y eficiente, a fin de resolver los conflictos que se sometan a su consideración, de manera oportuna, con equidad y transparencia, con miras a restaurar la paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo firmemente en la importancia de un Poder Judicial independiente, eficiente, transparente y cercano a la sociedad, siempre con el objetivo de consolidar y afianzar los derechos humanos y la confianza en la justicia. De ahí que se debe buscar garantizar el estado de derecho, la seguridad jurídica y el bienestar social.
+
+
+## Propuestas
+
+- La justicia no es solo una cuestión de normas, sino también de personas, por lo que me comprometo a resolver los conflictos con imparcialidad y humanidad, así como comprender el impacto de las decisiones judiciales que emita. Considero que un juez debe ser un ejemplo de integridad, por lo que de asumir el cargo, me comprometo a actuar con transparencia y resistir presiones internas y externas que puedan comprometer la equidad de los fallos y motivar adecuadamente las decisiones.
+- Garantizaré que los sectores vulnerables, entre otros, niñas, niños y adolescentes, adultos mayores, comuneros o ejidatarios, a fin de que tengan acceso a una justicia efectiva. Para ello, como juzgador asumiré un papel proactivo en la defensa de sus derechos humanos, haciendo realidad los principios de justicia pronta, completa e imparcial.
+- Combatiré el nepotismo en el sistema judicial, el cual debe ser erradicado de forma definitiva. Para ello, garantizaré el acceso a quienes busquen desarrollarse laboralmente en la Institución, otorgando trabajo a quien demuestre capacidad y talento para desempeñar el cargo al que aspira. Tenemos que hacer realidad que dentro del Poder Judicial de la Federación se encuentren los mejores juristas a fin de ofrecer un mejor servicio a la Sociedad.
+

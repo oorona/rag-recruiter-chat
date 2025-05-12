@@ -1,0 +1,76 @@
+Nombre Candidato: FLORA MIJARES VAZQUEZ
+Cargo: Juezas/es de Distrito
+Entidad: DURANGO
+Sexo: MUJER
+Telefono: 6181198004
+Correo Electronico: fmijares@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Información, Derechos Humanos, Especialización Judicial, Género e Igualdad, Juicio de Amparo, Licenciatura en Derecho, Maestría en Amparo., Prevención de Violencia, Protección de Datos Personales, Sistema de Justicia Penal, Transparencia
+Tags Propósito: acceso a la justicia, asistencia jurídica, celeridad, certeza jurídica, comunicación, confianza ciudadana, derechos humanos, igualdad, imparcialidad, justicia, marginación, medios digitales, menores, mujeres, pobreza, procesos judiciales, programas permanentes., servicio comunitario, transparencia, tutela judicial, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Flora Mijares Vázquez es candidata a Jueza/es de Distrito en Durango, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho, maestría en Amparo y especialización judicial, complementada por formación en derechos humanos y temas de transparencia y violencia de género. 
+
+Su motivación para el cargo es escuchar a la comunidad, proteger sus derechos y promover un futuro más justo. Su visión para la función jurisdiccional se centra en mejorar la comunicación entre el Poder Judicial y la sociedad, garantizar la igualdad en el acceso a la justicia y fortalecer la transparencia. Sus propuestas incluyen el uso de medios digitales para informar a la ciudadanía sobre sus derechos, la reducción de tiempos de resolución de procesos judiciales y la implementación de programas de asistencia jurídica gratuita para personas vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/licenciadafloramijaresvazquez
+- http://www.x.com/flora25783181
+- https://instagram.com/floramv77
+
+
+## Cursos
+
+- Curso El Juicio de Amparo Indirecto en el Nuevo Sistema de Justicia Penal, Retos y Perspectivas
+- ,Curso para Generar Espacios Libres de Violencia,Curso Genero como Herramienta para la Igualdad
+- ,Curso de Especialización Judicial
+- ,Diplomado en Transparencia, Elaboración de Versiones Públicas, Acceso a la Información y Protección de Datos Personales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54004/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, con Especialización Judicial y Maestría en Amparo, formación en protección de derechos humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para escuchar a las personas, proteger sus derechos y trabajar por un futuro mas justo y equitativo para la comunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ante el actual contexto que vive el sistema de justicia en el País, se debe de efectuar un reenfoque en la función jurisdiccional, lo cual es reto complejo que requiere de acciones coordinadas, como son, el mejoramiento de la comunicación y acercamiento de la justicia con la sociedad para generar certeza jurídica, a la par que debemos avanzar hacia la impartición de justicia en iguales condiciones para todos, siempre comprometidos con la transparencia, imparcialidad y servicio a la comunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los juzgadores deben garantizar la tutela de los derechos humanos, así como el acceso a la justicia en condiciones de igualdad y no discriminación. De igual manera, deben velar por la pronta impartición de justicia, puesto que la falta de celeridad, es uno de los principales motivos que mina la confianza de la ciudadanía en la capacidad de las instituciones judiciales en la resolución de las controversias; asimismo, deben observarse los principios de objetividad, imparcialidad y transparencia.
+
+
+## Propuestas
+
+- Un primer punto que considero debe de ser abordado es la falta de comunicación efectiva con la sociedad, la cual debe debe crear la percepción de confianza y accesibilidad en la impartición de justicia, para que entre ambos (poder judicial y comunidad) se establezca una relación de cercanía. Lo anterior puede lograrse a través de los medios digitales, radio y televisión, como vías de acceso a la información de los derechos de la gente, así como los procedimientos para garantizarlos.
+- Reducir los tiempos de resolución de los procesos judiciales, lo que podría ser evaluado de forma anual, a fin de mejorar la satisfacción de las personas que acceden al sistema de justicia.
+- Por último, propongo que se establezcan programas permanentes de asistencia jurídica gratuita para personas vulnerables, como son los menores, las mujeres, así como quienes se encuentren en situaciones de extrema pobreza o marginación.
+

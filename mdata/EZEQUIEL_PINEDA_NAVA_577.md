@@ -1,0 +1,80 @@
+Nombre Candidato: EZEQUIEL PINEDA NAVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5525877225
+Correo Electronico: ezequiel.pineda@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Ciencia política, Corrupción, Crimen organizado, Criminalidad corporativa, Derecho internacional del trabajo, Derecho., Derechos humanos, Posdoctorado, Terrorismo, Universidad de Salamanca, Violencia de género
+Tags Propósito: Capacitación, Corrupción, Derechos humanos, Equidad, Estado de derecho, Formación humanista, Imparcialidad, Imparcialidad judicial, Justicia, Motivación jurídica., Poder Judicial, Profesionalismo, Protección a los vulnerables, Protección laboral, Resolución fundada, Seguridad social, Transparencia, Tutela jurídica, Ética
+
+
+## Descripción del Candidato 
+
+EZEQUIEL PINEDA NAVA es candidato a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con un doctorado concluido y ha realizado diversos cursos de especialización en áreas como violencia de género, crimen organizado, ciencia política, criminalidad corporativa y derecho internacional del trabajo en la Universidad de Salamanca, España, e instituciones nacionales.
+
+Su motivación para buscar el cargo público es contribuir a la construcción de un México limpio, seguro y justo. Propone fortalecer la integridad del Poder Judicial sancionando la corrupción, capacitando permanentemente a sus integrantes y generando empatía hacia los sectores más desprotegidos de la sociedad, buscando una impartición de justicia accesible y equitativa para todos.  Su perfil y trayectoria completa se encuentran disponibles en el enlace proporcionado a su curriculum vitae.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ezequielopineda/?locale=es_LA
+- https://x.com/epinedamx
+- https://www.instagram.com/ezequielopineda/
+- https://www.youtube.com/@epinedamx
+- https://www.tiktok.com/@ezequielopineda?lang=es
+
+
+## Cursos
+
+- VIOLENCIA DE GENERO: PRACTICA PENAL Y PROCESAL
+- UNIVERSIDAD DE SALAMANCA (ESPANA)
+- ,CRIMEN ORGANIZADO, CORRUPCION Y TERRORISMO UNIVERSIDAD DE SALAMANCA (ESPAÑA)
+- ,CIENCIA POLITICA UNIVERSIDAD DE SALAMANCA (ESPANA)
+- ,CRIMINALIDAD CORPORATIVA Y DERECHOS HUMANOS UNIVERSIDAD DE SALAMANCA (ESPAÑA)
+- ,PRIMER CURSO NACIONAL DE POSDOCTORADO EN DERECHO INTERNACIONAL DEL TRABAJO INSTITUTO POSGRADO EN DERECHO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54873/10
+
+
+## Trayectoria Academica
+
+- He tenido la oportunidad de estudiar Derecho y otras materias a fines a Nivel Nacional e Internacional con excelencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero apoyar y contribuir para la continuación de la construcción de un México limpio, seguro, justo, fuerte y unido.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Aspiro a contribuir y apoyar en la construcción de un México en donde la justicia alcance y sea accesible para todos y no solamente para unos cuantos. Un México en donde se acaben los privilegios, la corrupción y el influyentísimo. Seré un Juzgador imparcial, me conduciré por solidos principios y valores, en el tribunal que me corresponda y en mi ponencia no se permitirán, ni admitirán ningún acto, ni tipo de corrupción. Se debe juzgar con imparcialidad, decisión y razón en base al conocimiento.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los Juzgadores deben de ser profesionales preparados, formados con una estructura humanista, los cuales cuenten con altos principios éticos y prácticos, con capacidad y experiencia probada, que cuenten con el conocimiento y criterio real y suficiente a fin de emitir y dictar resoluciones apegadas a Derecho, respetando el sentido más amplio de justicia y concediendo tutela, así como la protección a las partes más desfavorecidas, respetando los ordenamientos jurídicos Nacionales e Internacionales.
+
+
+## Propuestas
+
+- Sancionado con toda la fuerza de la Ley y con todo rigor cualquier acto de corrupción. No se debe de permitir que los Juzgadores dicten resoluciones y sentencias injustas, desleales, infundadas e ilegales. Soy un convencido, de que juntos y unidos podemos tener la fuerza para acabar con el lastre de corrupcón que impera dentro del Poder Judicial de la Federación.
+- Capacitar y concientizar permanentemente a los integrantes del Poder Judicial de la Federación para que emitan y dicten resoluciones debidamente fundadas y motivadas, las cuales estén apegadas a Justicia, Equidad y a Derecho.
+- Generar empatía por parte de los Juzgadores en los asuntos en los cuales sean parte los sectores más desprotegidos de nuestra sociedad, con el fin de proteger y tutelar sus derechos para que no sean violados y vulnerados sus derechos en caso de tener una contraparte más poderosa y fuerte. Generar una verdadera tutela y protección a los derechos de las trabajadoras y de los trabajadores en el ámbito laboral y de seguridad social. Una Justicia que alcance para todos, y no solo a unos cuantos.
+

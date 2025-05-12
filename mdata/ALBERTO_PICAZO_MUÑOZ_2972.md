@@ -1,0 +1,75 @@
+Nombre Candidato: ALBERTO PICAZO MUÑOZ
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 7712725617
+Correo Electronico: lic.apm.99@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Asesor Académico., Casa de la Cultura Jurídica, Derecho Contractual, Derecho Notarial, Derecho Privado, Derecho Registral, Escuela Federal de Formación Judicial, Maestría en Derecho Contractual, Oficial Judicial
+Tags Propósito: accesibilidad, agilidad, audiencia justa., capacitación judicial, cohesión social, corrupción, derechos humanos, eficiencia procesal, equidad, estabilidad social, grupos vulnerables, imparcialidad, independencia judicial, justicia, justicia social, legalidad, modernización, perspectiva de género, resolución de conflictos, sistema judicial mexicano, tecnología, transparencia, vocación de servicio, ética judicial
+
+
+## Descripción del Candidato 
+
+Alberto Picazo Muñoz es candidato a Juez de Distrito en Puebla, postulándose a través del Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y cédula profesional, estando actualmente cursando una maestría en Derecho Contractual, Notarial y Registral. Su trayectoria se centra en el ámbito académico y profesional del derecho privado, con enfoque patronal, trabajando también como asesor académico privado.
+
+Picazo motiva su candidatura por una vocación de servicio, pasión por la justicia y compromiso con la imparcialidad. Su visión para la función jurisdiccional y la impartición de justicia se basa en consolidar un modelo ágil, transparente, imparcial y accesible, con enfoque en derechos humanos, modernización tecnológica y erradicación de la corrupción. Sus propuestas incluyen la optimización de procesos judiciales, el uso de tecnologías digitales, la garantía de imparcialidad en las resoluciones y la promoción de la justicia social, especialmente en favor de grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1AJjDE5ZiV/
+- https://www.instagram.com/alberto_picazo_m?igsh=eW45ZnZjazFxcWR4
+- https://www.tiktok.com/@alberto.picazo.mu?_t=ZM-8v2Gszxpu9n&_r=1
+- https://www.linkedin.com/in/alberto-picazo-muC3B1oz-0407902bb?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+
+## Cursos
+
+- Ingreso a la Escuela Federal de Formación Judicial y acreditación de Curso de oficial judicial
+- ,Participante en actividades de la Casa de la Cultura Jurídica  día en la,Cursando actualmente la maestría en Derecho Contractual, Notarial y Registral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54049/11
+
+
+## Trayectoria Academica
+
+- Académico y profesional en derecho, dedicado al área de derecho privado y enfoque patronal, asesor académico privado
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo vocación de servicio, pasión por la justicia y el compromiso de aplicar el derecho con imparcialidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional en el nuevo sistema judicial mexicano es consolidar un modelo ágil, transparente e imparcial, donde la aplicación del derecho garantice certeza, equidad y protección efectiva de los derechos humanos. Promoveré el uso de tecnología, la capacitación constante y la ética judicial para fortalecer la confianza ciudadana. Además, impulsaré una justicia accesible, libre de corrupción y con perspectiva de género, contribuyendo a la estabilidad y paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en el nuevo sistema judicial mexicano debe ser un pilar de legitimidad y equilibrio social. Es fundamental garantizar que cada resolución refleje principios de legalidad, equidad y respeto a los derechos humanos. Se debe privilegiar la proximidad con la ciudadanía, la modernización de procesos y la erradicación de prácticas corruptas. La independencia judicial y la capacitación continua asegurarán una justicia eficaz, confiable y verdaderamente accesible para todos.
+
+
+## Propuestas
+
+- Como Juez de Distrito, garantizaré una función jurisdiccional ágil mediante la optimización de procesos, el uso de tecnologías digitales y la implementación de mecanismos alternativos de solución de controversias. Priorizaré la reducción de tiempos procesales sin comprometer la calidad de las resoluciones, fomentando una gestión eficiente de los expedientes. Además, impulsaré la capacitación constante del personal judicial para mejorar la atención y respuesta a las necesidades de la sociedad.
+- Como Juez de Distrito, garantizaré la imparcialidad en todas mis resoluciones mediante un análisis objetivo de los hechos y el derecho aplicable, sin influencias externas ni prejuicios. Aseguraré que cada parte tenga acceso a una audiencia justa, escuchando a todas las partes involucradas y aplicando la ley con base en principios de equidad. Además, me comprometeré a mantener la transparencia en los procesos judiciales, cumpliendo con los estándares éticos propios del ejercicio de la actividad.
+- Como Juez de Distrito, promoveré la justicia social mediante la protección efectiva de los derechos humanos y la equidad en la aplicación de la ley. Garantizaré que las decisiones judiciales favorezcan la igualdad, atendiendo especialmente a grupos vulnerables. Impulsaré el acceso a la justicia para todos, sin distinción, asegurando que la ley sea un instrumento para la reparación de desigualdades y el fortalecimiento de la cohesión social, contribuyendo a una sociedad más justa.
+

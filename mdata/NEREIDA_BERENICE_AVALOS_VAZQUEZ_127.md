@@ -1,0 +1,72 @@
+Nombre Candidato: NEREIDA BERENICE AVALOS VAZQUEZ
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: licda.nereavalos@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Candidaturas Independientes, Derecho Electoral, Derechos Humanos, Licenciatura en Derecho, Maestría en Derecho Electoral, Régimen Sancionador Electoral, Suprema Corte de Justicia, Tribunal Electoral del Poder Judicial de la Federación., Violencia Política de Género
+Tags Propósito: Accesibilidad, Autoridad Electoral, Cercanía Ciudadana, Confianza Ciudadana, Fortalecimiento Institucional, Función Electoral, Impartición de Justicia, Información Relevante, Justicia Electoral, Legitimidad, Participación Ciudadana, Resolución de Conflictos, Sala Regional., Sentencias Claras, Transparencia, Tribunales Electorales
+
+
+## Descripción del Candidato 
+
+Nereida Berenice Avalos Vazquez es candidata a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Electoral y cédula profesional, además de diversos diplomados en materia de Derechos Humanos y Derecho Electoral, incluyendo cursos especializados en violencia política y régimen sancionador electoral impartidos por la Suprema Corte de Justicia de la Nación y el Tribunal Electoral.
+
+Su motivación para buscar el cargo es colaborar en la restauración de la confianza ciudadana en las autoridades electorales, visibilizando su función. Propone fortalecer la función jurisdiccional a través de la transparencia y el acercamiento con los Tribunales Electorales de la V Circunscripción. Adicionalmente, busca facilitar la comprensión de las sentencias a través de una redacción clara y accesible, así como incentivar la participación ciudadana y el conocimiento de la función de las Salas Regionales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15Dpza77BD/?mibextid=wwXIfr
+- https://www.instagram.com/nereidaberenice_/?igsh=Y2tzZmFhNHZscGYz#
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos, por la Suprema Corte de Justicia de la Nación,Diplomado en Derecho Electoral, por el Tribunal Electoral del Poder Judicial de la Federación,Taller de Aplicación de Protocolo para la Atención de la Violencia Política contra las Mujeres en Razón de Género,Curso Candidaturas Independientes en México, por el Tribunal Electoral del Poder Judicial de la Federación,Curso Régimen Sancionador Electoral POS y PES, por el Tribunal Electoral del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/14753/9
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Maestra en Derecho Electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+Para colaborar en la restauración de la confianza ciudadana en sus autoridades, visibilizando la función electoral.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resulta necesario transparentar, aún más, la función jurisdiccional, de cara al nuevo sistema de justicia electoral, coadyuvando en aumentar el sentido de pertenencia de las y los ciudadanos con sus autoridades, a fin de legitimarnos en nuestro actuar y consolidarnos como autoridad electoral.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Juzgar de una manera progresista, sin perder de vista el garantizar la resolución justa, congruente y neutral, de los conflictos, a través de una impartición de justicia abierta.
+
+
+## Propuestas
+
+- Trabajar, de manera muy cercana, con los Tribunales Electorales pertenecientes a la V Circunscripción (Colima, Estado de México, Michoacán y Querétaro), a fin de detectar áreas de oportunidad, en pro del fortalecimiento de nuestra función. De esta manera, trabajando en los aspectos que nos debilitan, nos fortaleceremos y nos consolidaremos como autoridades electorales al servicio de la ciudadanía.
+- Continuar trabajando en la elaboración de sentencias con una redacción clara, sencilla y concreta, comprensible para todos, no solo para los profesionistas del derecho, pues en la medida en la que un ciudadano no necesite de intermediarios para saber qué fue lo que resolvió el Tribunal, acrecentará la confianza en su autoridad y la legitimará en su actuar.
+- Se deberá trabajar en incentivar la curiosidad de la ciudadanía, a fin de que conozcan quiénes son los profesionistas qué integran la Sala, cuál es la función que desempeñan y cuáles son los servicios que se ofertan como Sala Regional, en su beneficio. Así, al dotarlos con información que le resulte relevante, se fortalecerá la Sala, en la medida en la que la ciudadanía se sienta cercana a ella y conozca a plenitud la manera en la puede hacer uso de las herramientas que se ponen a su disposición
+

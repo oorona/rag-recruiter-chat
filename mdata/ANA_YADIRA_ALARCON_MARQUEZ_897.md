@@ -1,0 +1,81 @@
+Nombre Candidato: ANA YADIRA ALARCON MARQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5578632483
+Correo Electronico: ryadiralarcon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Complutense Madrid, Cooperación Procesal, Departamento de Justicia USA, Derechos Humanos, Doctorado en Derecho, IIJUNAM, Interpretación Constitucional, Licenciatura en Derecho, Maestría en Derecho, Relaciones Exteriores, Sistema Penal Acusatorio, Tribunales de Justicia Administrativa, UNAM., Universidad La Salle, Universidad Sorbona
+Tags Propósito: Accesibilidad, Agilización de procesos, Ambiente laboral, Automatización, Colaboración, Comunicación, Equidad procesal, Excelencia, Gestión de expedientes, Gestión pública, Grupos vulnerables, Honradez, Humildad, Imparcialidad, Inclusión, Indicadores de gestión, Innovación, Justicia rápida, Mejora continua, Objetividad, Paridad de género, Productividad, Profesionalismo, Reconocimiento de debilidades., Sensibilidad social, Servicio público, Solución justa, Tecnología
+
+
+## Descripción del Candidato 
+
+Ana Yadira Alarcon Marquez es candidata a las Magistraturas de Tribunales Colegiados de Circuito, postulándose por el Poder Legislativo Federal en Ciudad de México. Cuenta con un doctorado en Derecho y una trayectoria de 28 años en la gestión pública.
+
+Su candidatura se basa en el deseo de aplicar sus conocimientos y experiencia en la función jurisdiccional, priorizando principios como la excelencia, imparcialidad y paridad de género, así como la sensibilidad hacia las necesidades de la gente. Sus propuestas incluyen la automatización de procesos internos para facilitar la gestión de expedientes y la comunicación con los justiciables, el uso de tecnología para agilizar trámites y la promoción de una comunicación interna efectiva para mejorar el servicio a los ciudadanos, implementando indicadores de gestión para optimizar la productividad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://anayadiraalarconma.wixsite.com/misitio
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1D2eYQqx9F/?mibextid=wwXIfr
+- https://x.com/yadiralarconmx?s=21
+- https://www.instagram.com/yadiralarconmx/
+- https://youtube.com/@yadiraalarcon-o1l?si=HIPtlWC63BPRKaNE
+- https://www.tiktok.com/@yadira_alarconmx?_t=ZM-8v1IqkWYk4b&_r=1
+
+
+## Cursos
+
+- Taller de Cooperación Procesal Institucional
+- Secretaría de Relaciones Exteriores
+- CONATRIB y AMEDIP 2016,Coloquio Magistrados de Tribunales de Justicia Administrativa
+- Universidad Sorbona de París 2018,Master en Protección Constitucional en Sistema Interamericano de Derechos Humanos
+- IIJUNAM COMPLUTENSE MADRID 2015,Seminario sobre Interpretación Constitucional y Perspectivas
+- Cámara de Diputados y Centro de Estudios de Derecho 2010,Curso Fundamentos del Sistema Penal Acusatorio
+- Departamento de Justicia USA 2018
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52247/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la Universidad La Salle, Maestra y Doctora por la Facultad de Derecho UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Me gusta ser útil e innovadora en la gestión pública, desde hace 28 años lo hago en diferentes instancias de gobierno
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los principios de excelencia, objetividad, imparcialidad, profesionalismo, independencia y paridad de género que rigen la función jurisdiccional, deben ir de la mano de valores como honradez, humildad y sensibilidad a las necesidades de la gente. Tener el conocimiento especializado es importante, pero es más importante buscar una solución justa para las personas involucradas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser rápida. Los Magistrados debemos ayudar a resolver pronto los problemas, no complicarlos. Facilitar a la gente a presentar sus peticiones, sin trámites complejos y que nuestro lenguaje sea sencillo, para que se entiendan nuestras sentencias. Ser inclusivos y sensibles ante los grupos vulnerables y siempre mantener una buena actitud de servicio y de apoyo. Si no está en nuestras manos resolver lo que nos piden, dirigirlos a donde los pueden atender y siempre ofrecer soluciones
+
+
+## Propuestas
+
+- Automatizar procesos para que al interior del Colegiado, se facilite la gestión de expedientes y siempre haya un mecanismo de comunicación entre los justiciables y los Magistrados, sin vulnerar la equidad entre las partes, ni violentar las reglas procesales.
+- Coadyuvar en el uso de tecnología para facilitar la presentación de escritos, la consulta de expedientes y la comunicación entre autoridades e instancias, para agilizar el desahogo de los asuntos
+- Mantener una sana comunicación entre los demás Magistrados y el personal, para que la colaboración fluya y eso permita un mejor servicio a las personas. Cuando se trabaja en un ambiente laboral adecuado, se puede mantener una buena actitud en todos los aspectos. Implementar internamente indicadores de la gestión y metas, que permitan medir la productividad y detectar áreas de mejora. La clave de un buen servicio está en reconocer debilidades y corregirlas
+

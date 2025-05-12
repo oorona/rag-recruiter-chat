@@ -1,0 +1,80 @@
+Nombre Candidato: J. GUADALUPE JIMENEZ LOPEZ
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 8129169704
+Correo Electronico: jg.jimenezlopez2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Justicia, Comisión Nacional de los Derechos Humanos., Derecho del Trabajo, Derechos Humanos, Formación Judicial, Género, Juicio de Amparo, Justicia Laboral, Licenciatura en Derecho, Maestría en Derecho, Suprema Corte de Justicia, UAM, UNAM
+Tags Propósito: Magistrado, Poder Judicial de la Federación., Tribunal de Disciplina Judicial, acceso a la justicia, administración de justicia, derechos humanos, discapacidad, función pública, grupos vulnerables, inclusión, justicia pronta, perspectiva de discapacidad, plazos y términos, quejas, servidores públicos
+
+
+## Descripción del Candidato 
+
+J. Guadalupe Jimenez Lopez es candidato a la Magistratura del Tribunal de Disciplina Judicial del Poder Judicial de la Federación. Cuenta con Maestría en Derecho, egresado de la Universidad Autónoma Metropolitana y la UNAM, y ha realizado diversas especializaciones y diplomados en temas de Derecho Laboral, Derechos Humanos y Juicio de Amparo, impartidos por instituciones como la Suprema Corte de Justicia de la Nación y la Comisión Nacional de los Derechos Humanos.
+
+Su motivación para aspirar al cargo es garantizar el acceso a una justicia pronta y efectiva para personas pertenecientes a grupos vulnerables. Su visión se centra en la investigación y resolución de responsabilidades administrativas de servidores públicos, priorizando el cumplimiento de plazos y términos en los derechos de estos grupos. Sus propuestas incluyen la admisión prioritaria de quejas de personas vulnerables, la verificación del respeto a sus derechos procesales y la creación de un área específica para atender quejas de personas con discapacidad con una perspectiva inclusiva.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574847089357
+- https://x.com/JimenezJ87744
+- https://www.instagram.com/j_guadalupe_jimenez/
+- https://www.tiktok.com/@j_guadalupe_jimenez
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral, CJF, Escuela Federal de Formación Judicial, 2021
+- ,Diplomado la Suprema Corte y los Derechos Humanos, Suprema Corte de Justicia de la Nación, 2022
+- ,Diplomado Juicio de Amparo, Suprema Corte de Justicia de la Nación, 2021
+- ,Diplomado Derechos Humanos desde la Perspectiva de Género, Comisión Nacional de los Derechos Humanos, 2020
+- ,Diplomado Acceso a la Justicia en Materia de Derechos Humanos, Casa de la Cultura Jurídica, Monterrey, N
+- L
+- , 2016
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16480/7
+
+
+## Trayectoria Academica
+
+- Soy licenciado en derecho, egresado de la Universidad Autónoma Metropolitana y maestro en derecho por la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a Magistrado, para atender que las personas perteneciente a grupos vulnerables accedan a una justica pronta.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Tribunal de Disciplina Judicial tiene por objeto la investigación, substanciación y resolución de los procedimientos de responsabilidades administrativas de las y los servidores, por tanto se propone verificar de manera prioritaria el cumplimiento en cuanto a los plazos y términos en los derechos de las personas pertenecientes a grupos vulnerables, que sean parte de algún asunto competencia de los tribunales del Poder Judicial de la Federación, que haya presentado alguna queja.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Tengo empatía por las personas vulnerables, pues soy una persona con discapacidad motriz, y en el discurso público no se habla de la participación de las personas con discapacidad, ni se aprecia su presencia en algún puesto de alto nivel del legislativo, ejecutivo o judicial; es hora de que se tome en cuanta nuestra participación en el ejercicio de la función pública, es hora de la inclusión, y de que los criterios dictados por este tribunal se funden en la perspectiva de los grupos vulnerables.
+
+
+## Propuestas
+
+- Dar entrada inmediata a las quejas presentadas por personas pertenecientes algún grupo en situación de vulnerabilidad, en las cuales se señalen faltas contra de la administración de justicia, los cuales comprenden los actos u omisiones contrarios a los principios y normas que disciplinan la función judicial.
+- Verificar de inmediato que se respecten los plazos y términos en los derechos de las personas pertenecientes a grupos vulnerables, que sean parte el algún asunto competencia de los tribunales del Poder Judicial de la Federación, que haya presentado alguna queja.
+- Establecer un área específica que conozca de quejas presentadas por personas con discapacidad, que admita, y de entrada con carácter prioritario a las quejas presentadas contra servidores públicos que laboren en algún órgano jurisdiccional del poder Judicial federal, área específica que estudie, analice y resuelva con perspectiva de discapacidad.
+

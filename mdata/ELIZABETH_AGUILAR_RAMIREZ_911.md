@@ -1,0 +1,75 @@
+Nombre Candidato: ELIZABETH AGUILAR RAMIREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: DURANGO
+Sexo: MUJER
+Telefono: 6188222502
+Correo Electronico: elizabeth.aguilarram@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Civil, Derecho Judicial, Doctorado, Especialidad, Licenciatura, Maestría, Pasante, Tribunal Superior de Justicia., Universidad Juárez del Estado de Durango
+Tags Propósito: Acceso a la justicia, Auditoría, Calidad, Confianza judicial, Eficiencia, Equidad, Estado de derecho, Formación judicial., Imparcialidad, Innovación, Justicia, Modernización, Retroalimentación, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Elizabeth Aguilar Ramirez es candidata a Magistratura de Tribunales Colegiados de Circuito en Durango, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y actualmente es pasante de Doctorado en la Universidad Juárez del Estado de Durango. Su motivación para buscar el cargo público es contribuir al fortalecimiento de la impartición de justicia a través de su trayectoria y capacidades.
+
+Su visión se centra en consolidar un Poder Judicial moderno, transparente y justo, adaptado a los desafíos del siglo XXI. Sus propuestas incluyen garantizar el acceso a la justicia para todas las personas, promover la equidad en la impartición de justicia mediante el intercambio de experiencias entre juzgadores, y fortalecer la confianza en el sistema judicial a través de la difusión de resoluciones y mecanismos de retroalimentación.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574993361851
+
+
+## Cursos
+
+- Pasante del Doctorado en Derecho por la Universidad Juárez del Estado de Durango
+- (2012 ¿ 2013),Pasante en la Maestría en Derecho Judicial por la Universidad Judicial del Tribunal Superior de Justicia en el Estado
+- ,Especialidad en Derecho Civil por la Universidad Juárez del Estado de Durango
+- ,Licenciada en Derecho
+- Universidad Juárez del Estado de Durango
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52197/10
+
+
+## Trayectoria Academica
+
+- Soy Maestra en Derecho por la Universidad Juárez del Estado de Durango y cuento con una Especialidad en Derecho Civil
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser parte del cambio; utilizar mi trayectoria y capacidades para fortalecer la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Contribuir a la consolidación de un Poder Judicial moderno, innovador, transparente y justo, que se adapte a los desafíos del siglo XXI. Impulsando la adopción de tecnologías y mejores prácticas para agilizar los procesos judiciales, garantizando siempre la imparcialidad y la calidad en cada resolución.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un referente de excelencia judicial, donde la justicia sea sinónimo de imparcialidad, prontitud y transparencia. Construir con trabajo duro un sistema judicial que inspire confianza y respeto, que cada decisión fortalezca el estado de derecho y promueva la equidad para todas las personas.
+
+
+## Propuestas
+
+- Garantizar el acceso a la justicia de todas las personas. Para ello es necesario asegurar que todas las personas, independientemente de su origen, condición social o económica, tengan acceso a un proceso judicial justo, independiente y equitativo, implementando medidas para eliminar barreras que impidan el acceso a la justicia, como la discriminación o la falta de recursos.
+- Promover la equidad en la impartición de justicia. Es necesario resolver los casos con imparcialidad y objetividad, aplicando la ley de manera justa y equitativa para todas las partes involucradas, por lo que es necesario fomentar programas de pasantías, seminarios o cursos entre distintos tribunales, para generar el intercambio de experiencias con otros juzgadores.
+- Fortalecer la confianza en el sistema judicial. Para ello es necesario difundir con más esmero las resoluciones emitidas, protegiendo en todo momento la información confidencialidad de las partes involucradas, así como implementar auditorías y mecanismos de retroalimentación para mejorar la calidad de las resoluciones.
+

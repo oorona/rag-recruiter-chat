@@ -1,0 +1,277 @@
+      
+# ===============================================
+# Project Specifications: Candidate Assistant Chatbot
+# ===============================================
+# Version: 1.0
+# Date: [Current Date]
+# Purpose: To provide a comprehensive specification allowing the project
+#          to be recreated from scratch.
+# ===============================================
+
+# 1. Project Overview
+# -------------------
+# Goal: Develop a responsive web application enabling users to interact with an LLM
+#       about specific candidates. Candidate data is sourced from markdown files.
+# Core Functionality:
+#   - Display and search a list of candidates.
+#   - View detailed candidate information from markdown files.
+#   - Engage in separate, context-aware chat conversations with an LLM about each candidate.
+#   - Maintain and switch between multiple candidate conversation histories within a session.
+#   - Display LLM token usage statistics.
+# Target User: Recruiters, hiring managers, or anyone needing to quickly query
+#              information about specific individuals from a predefined dataset.
+
+# 2. Core Requirements & Technologies
+# ---------------------------------
+#   - Backend Language/Framework: Python 3.x / Flask
+#   - Frontend Technologies: HTML5, CSS3, JavaScript (ES6+)
+#   - LLM API Interaction: Via HTTP POST requests to an OpenAI-compatible endpoint (e.g., Open WebUI).
+#   - Data Storage (Candidates): Individual Markdown files (`.md`) in a dedicated directory.
+#   - UI Theme: Responsive Dark Mode.
+#   - Deployment: Docker, Docker Compose.
+#   - Key Libraries/Dependencies (Python): Flask, requests, python-dotenv, gunicorn.
+#   - Key Libraries/Dependencies (Frontend): marked.js (for markdown rendering).
+
+# 3. System Architecture
+# ----------------------
+#   - Client-Server Model:
+#     - Frontend (Browser): Renders UI, handles user input, manages local conversation state, interacts with Backend API.
+#     - Backend API (Flask): Serves frontend files, provides RESTful endpoints, interacts with LLM API, accesses candidate data.
+#     - LLM API (External): Receives prompts from Backend API, generates responses.
+#   - Data Flow (Chat):
+#     1. User selects candidate & sends message (Frontend JS).
+#     2. JS sends `candidate_id`, `message`, and *visible* `history` to Backend API (`/api/chat`).
+#     3. Backend API (`chat.py`):
+#        a. Retrieves markdown content for `candidate_id`.
+#        b. Formats markdown into a *hidden* context string using template from `.env`.
+#        c. Constructs message list: `[{role:'user', content:hidden_context_str}, ...visible_history, {role:'user', content:user_message}]`.
+#        d. Sends this list to the external LLM API (`chat_service.py`).
+#     4. LLM API processes and returns response (including usage stats).
+#     5. Backend API receives LLM response, extracts `reply` and `usage`.
+#     6. Backend API sends `{"reply": ..., "usage": ...}` back to Frontend JS.
+#     7. JS displays the reply, updates the *visible* conversation history state, and displays token stats.
+
+# 4. Project Directory Structure (Mandatory)
+# ----------------------------------------
+#├── backend/
+#│   ├── api/                 # API Blueprints
+#│   │   ├── init.py
+#│   │   ├── candidates.py
+#│   │   └── chat.py
+#│   ├── services/            # Business Logic (LLM, Files)
+#│   │   ├── init.py
+#│   │   ├── candidate_service.py
+#│   │   └── chat_service.py
+#│   ├── static/              # CSS, JS
+#│   │   ├── css/style.css
+#│   │   └── js/main.js
+#│   ├── templates/           # HTML Templates
+#│   │   └── index.html
+#│   ├── utils/               # Utilities (Logging)
+#│   │   ├── init.py
+#│   │   └── logger.py
+#│   ├── app.py               # Flask App Factory & Runner
+#│   └── init.py
+#├── mdata/                   # Candidate Markdown Files (Mounted Volume)
+#│   └── Jane_Doe_2023.md     # Example
+#├── .env                     # Environment Variables (Gitignored)
+#├── .gitignore
+#├── Dockerfile               # Backend Docker Image Instructions
+#├── docker-compose.yml       # Docker Compose Setup
+#└── requirements.txt         # Python Dependencies
+
+# 5. Data Requirements (`mdata/`)
+# -------------------------------
+#   - Location: A directory named `mdata` MUST exist at the project root.
+#   - Content: Contains individual Markdown files (`.md`) for each candidate.
+#   - Filename Convention:
+#     - Must end with `.md`.
+#     - The part before `.md` serves as the candidate's unique ID (`candidate_id`).
+#     - Filenames MAY contain underscores (`_`) and MAY end with numbers (e.g., `_2024`).
+#   - Display Name Generation:
+#     - The backend MUST generate a user-friendly `display_name` from the `candidate_id`.
+#     - Generation Logic: Remove an optional underscore followed by one or more digits from the *end* of the `candidate_id`. Then, replace all remaining underscores (`_`) with spaces.
+#     - Example: `Jane_Doe_2023.md` -> `id: "Jane_Doe_2023"`, `display_name: "Jane Doe"`
+#     - Example: `John_Smith.md` -> `id: "John_Smith"`, `display_name: "John Smith"`
+#   - File Access: The backend service (`candidate_service.py`) MUST read filenames to generate the candidate list and read file content to provide markdown details and context for the LLM.
+
+# 6. Backend Specifications (Python/Flask)
+# ----------------------------------------
+#   6.1. Setup & Dependencies (`requirements.txt`)
+#       - Must include: `Flask`, `requests`, `python-dotenv`, `gunicorn`. Versions should be specified for stability.
+#   6.2. Configuration (`.env`)
+#       - Must be located at the project root.
+#       - Must be loaded by the Flask application at startup (using `python-dotenv`).
+#       - Required Variables:
+#         - `FLASK_APP=backend.app`: Entry point for Flask CLI.
+#         - `FLASK_ENV=(development|production)`: Controls Flask debug mode.
+#         - `SECRET_KEY`: Strong random string for session security.
+#         - `LLM_API_URL`: Full URL to the LLM's chat completions endpoint (e.g., `http://host.docker.internal:8080/v1/chat/completions`). **Crucial:** Must be accessible from *within* the Docker container.
+#         - `LLM_API_TOKEN`: Bearer token for authenticating with the LLM API.
+#         - `LLM_MODEL`: The specific model ID to be used in LLM API calls.
+#         - `LOG_LEVEL=(DEBUG|INFO|WARNING|ERROR|CRITICAL)`: Controls application logging verbosity.
+#         - `MDATA_FOLDER=/app/mdata`: The *internal* path within the Docker container where the `mdata` volume is mounted. Must match `docker-compose.yml`.
+#         - `CONTEXT_PROMPT_TEMPLATE`: A string template used to format the hidden context message. Must include placeholders `{candidate_name}` and `{markdown_content}`. Newlines represented by `\n`.
+#   6.3. Logging (`utils/logger.py`)
+#       - Setup standard Python logging.
+#       - Configure logging level based on `LOG_LEVEL` from `.env`.
+#       - Log format should include timestamp, logger name, level, and message.
+#       - Provide a shared logger instance for use across backend modules.
+#   6.4. Core Flask App (`app.py`)
+#       - Use the application factory pattern (`create_app`).
+#       - Load `.env` variables *before* importing other modules that might need them.
+#       - Initialize logging early.
+#       - Register API blueprints (from `api/`).
+#       - Define a root route (`/`) to serve `templates/index.html`.
+#       - Configure Flask to serve static files from `static/`.
+#       - Configure `SECRET_KEY`.
+#       - Include a `/health` check endpoint returning JSON `{"status": "ok"}`.
+#   6.5. API Endpoints
+#       - **`GET /api/candidates`** (`api/candidates.py`)
+#         - Purpose: Get the list of all available candidates.
+#         - Request: None.
+#         - Logic: Calls `candidate_service.list_candidates()`.
+#         - Success (200): Returns JSON array `[ { "id": "...", "display_name": "..." }, ... ]`, sorted by `display_name`.
+#         - Error (500): If internal error occurs during file reading.
+#       - **`GET /api/candidates/<candidate_id>/markdown`** (`api/candidates.py`)
+#         - Purpose: Get the raw markdown content for a specific candidate.
+#         - Request: `candidate_id` in URL path.
+#         - Logic: Calls `candidate_service.get_candidate_markdown(candidate_id)`. Performs basic sanitization on `candidate_id` (prevent directory traversal).
+#         - Success (200): Returns JSON `{ "markdown": "..." }` where value is the raw markdown string.
+#         - Error (404): If no markdown file matches the `candidate_id`. Returns JSON `{"description": "..."}`.
+#         - Error (500): If internal error during file reading.
+#       - **`POST /api/chat`** (`api/chat.py`)
+#         - Purpose: Process a user's chat message for a specific candidate and get LLM reply.
+#         - Request Body (JSON): `{ "candidate_id": "...", "message": "...", "history": [ { "role": "user|assistant", "content": "..." }, ... ] }` (History contains *visible* turns).
+#         - Logic:
+#           1. Validate request body includes required fields.
+#           2. Call `candidate_service.get_candidate_markdown(candidate_id)` and `candidate_service.list_candidates()` to get context data and display name.
+#           3. Call `chat_service.format_context_as_user_message_content()` using the template from `.env` to create the hidden context string.
+#           4. Construct the *full* message list for LLM: `[ {role:'user', content:hidden_context}, ...history_from_request, {role:'user', content:user_message} ]`.
+#           5. Call `chat_service.call_llm_api()` with the full message list.
+#         - Success (200): If `call_llm_api` returns successfully. Returns JSON `{ "reply": "...", "usage": { ... } }`. `usage` may be `null`.
+#         - Error (400): If request body is invalid.
+#         - Error (500): If `call_llm_api` returns an error (communication failure, LLM error, internal error). Returns JSON `{"description": "error message from service"}`.
+#   6.6. Services (`services/`)
+#       - **`candidate_service.py`**:
+#         - `list_candidates()`: Reads `MDATA_FOLDER`, filters `.md` files, extracts `id`, generates `display_name` (removing trailing numbers, replacing underscores), returns sorted list of dicts. Handles directory not found.
+#         - `get_candidate_markdown(candidate_id)`: Reads content of `MDATA_FOLDER/<candidate_id>.md`. Handles file not found, read errors.
+#       - **`chat_service.py`**:
+#         - Loads `CONTEXT_PROMPT_TEMPLATE` from `.env` (with a hardcoded default).
+#         - `format_context_as_user_message_content(name, markdown)`: Uses the loaded template and `.format()` to create the hidden context string. Handles formatting errors gracefully.
+#         - `call_llm_api(messages)`:
+#           - Reads LLM config (`URL`, `TOKEN`, `MODEL`) from `.env`.
+#           - Constructs HTTP Headers (Authorization: Bearer, Content-Type: application/json).
+#           - Constructs request body `{ "model": ..., "messages": ... }`.
+#           - Performs `requests.post` call to `LLM_API_URL`. Includes a timeout (e.g., 120s).
+#           - Parses JSON response. Expects structure like `{"choices": [{"message": {"content": "..."}}], "usage": {...}}`.
+#           - Extracts reply content and usage dictionary.
+#           - Returns a dictionary `{'reply': ..., 'usage': ..., 'error': ...}`. `error` contains a string on failure, otherwise `None`. Handles request exceptions, non-200 status codes, timeouts, JSON parsing errors, and unexpected response structures.
+
+# 7. Frontend Specifications (HTML/CSS/JS)
+# ---------------------------------------
+#   7.1. HTML Structure (`templates/index.html`)
+#       - Main container (`div.container`) using Flexbox.
+#       - Left Panel (`aside.panel.left-panel`):
+#         - Top Widget (`section.widget.candidate-search`): Contains `h2`, search `input#candidate-search-input`, candidate list `ul#candidate-list`.
+#         - Bottom Widget (`section.widget.conversation-history-widget`): Contains `h2`, conversation list `ul#conversation-list-history`.
+#       - Right Panel (`main.panel.right-panel`):
+#         - Top Widget (`section.widget.markdown-viewer`): Contains `h2#markdown-title`, content `div#markdown-content.markdown-body`.
+#         - Bottom Widget (`section.widget.chat-window`): Contains `h2`, chat history `div#chat-history`, chat form `form#chat-form` (with `input#chat-input`, `button#send-button`), loading indicator `div#loading-indicator`, token stats display `div#token-stats-display`.
+#       - Include `marked.min.js` via CDN or local file.
+#       - Link to `static/css/style.css` and `static/js/main.js`.
+#   7.2. CSS Styling (`static/css/style.css`)
+#       - **Theme:** Dark Mode. Use CSS variables (`:root`) for colors.
+#       - **Layout:** Use Flexbox for main container and panel/widget layout. Panels should fill viewport height.
+#       - **Responsiveness:** Use media queries (e.g., `@media (max-width: 768px)`) to adjust layout for smaller screens (e.g., stacking panels/widgets).
+#       - **Colors:**
+#         - Left panel widgets (`.left-panel > .widget`) MUST have a darker background (`--left-widget-bg`) than right panel widgets (`.right-panel > .widget` using `--right-widget-bg`). Use distinct, contrasting colors.
+#         - Define colors for text, borders, accents, inputs, scrollbars, errors.
+#       - **Typography:** Base font size ~16px. Chat input (`#chat-input`) font size MUST be larger (e.g., 1rem).
+#       - **Sizing:** Chat input (`#chat-input`) MUST have increased padding (e.g., `1rem`) for a taller appearance. Send button height MUST match input height.
+#       - **Scrolling:** Lists (`#candidate-list`, `#conversation-list-history`) and content areas (`#markdown-content`, `#chat-history`) MUST be scrollable vertically (`overflow-y: auto`) and styled scrollbars (using `--scrollbar-thumb`, `--scrollbar-track-*`).
+#       - **Markdown:** Style common markdown elements (`h1-h3`, `p`, `ul`, `ol`, `li`, `code`, `pre`, `blockquote`, `a`, `table`) within `#markdown-content.markdown-body`.
+#       - **Chat Messages:** Style user messages (e.g., right-aligned, accent color) and assistant messages (e.g., left-aligned, input background color). Style error messages distinctly.
+#       - **Token Stats (`#token-stats-display`):** Smaller font size, muted color, right-aligned (desktop), left-aligned (mobile), separator line.
+#       - **Loading/Disabled States:** Style disabled inputs/buttons. Style loading indicators/messages (`.loading`, `#loading-indicator`).
+#   7.3. JavaScript Logic (`static/js/main.js`)
+#       - **Initialization:** On `DOMContentLoaded`, fetch initial candidate list via `GET /api/candidates`. Render empty conversation list.
+#       - **State Variables:**
+#         - `candidates`: Array storing `{id, display_name}` from API.
+#         - `currentCandidateId`: String ID of the currently selected candidate (or `null`).
+#         - `allConversations`: Object storing chat histories: `{ "candidate_id": [ {role, content}, ... ], ... }`. THIS IS THE PRIMARY STATE STORE FOR CONVERSATIONS.
+#         - `currentConversationHistory`: Array reference pointing to the active conversation history within `allConversations`.
+#         - `abortController`: For cancelling ongoing `fetch` requests.
+#       - **Event Handling:**
+#         - `input#candidate-search-input`: Filter `candidates` array and re-render `#candidate-list`.
+#         - `click ul#candidate-list li`: Get `candidateId` from `dataset`, call `switchConversation(candidateId)`.
+#         - `click ul#conversation-list-history li`: Get `candidateId` from `dataset`, call `switchConversation(candidateId)`.
+#         - `submit form#chat-form`: Prevent default, get message from `#chat-input`, call `handleChatSubmit()`.
+#       - **Core Functions:**
+#         - `loadCandidates()`: Fetches, stores, and renders initial candidate list.
+#         - `renderCandidateList()`: Renders candidates in `#candidate-list`.
+#         - `switchConversation(candidateId)`:
+#           1. Abort previous fetch if any.
+#           2. Save `currentConversationHistory` to `allConversations[oldId]` (if `oldId` exists).
+#           3. Update `currentCandidateId`.
+#           4. Load history from `allConversations[newId]` or initialize `[]` if not found. Update `currentConversationHistory` reference.
+#           5. Update UI: Highlight selections in both lists, update markdown title, call `renderChatHistory()`, reset chat input/stats, call `loadMarkdown()`.
+#           6. Call `renderConversationList()` to update the bottom-left list display.
+#         - `renderConversationList()`: Clears and rebuilds `#conversation-list-history` based on keys in `allConversations`. Finds display names from `candidates` array. Highlights the `li` matching `currentCandidateId`.
+#         - `loadMarkdown(candidateId)`: Fetches markdown via `GET /api/candidates/<id>/markdown`, renders using `marked.parse()` into `#markdown-content`. Handles errors, logs diagnostics.
+#         - `handleChatSubmit()`:
+#           1. Get message, check for `currentCandidateId`.
+#           2. Call `appendMessage('user', ...)` (optimistic UI update, adds to state).
+#           3. Prepare `historyToSend` (slice `currentConversationHistory` *excluding* the message just added).
+#           4. Call `fetch('/api/chat', { POST, body: { candidate_id, message, history: historyToSend }})`. Use `AbortController`.
+#           5. On success: Parse JSON `{ reply, usage }`. Call `appendMessage('assistant', reply)` (adds to UI and state). Call `updateTokenStats(usage)`.
+#           6. On error: Log error, call `appendMessage('system', error, true)` (adds error to UI, *not* state). Rollback optimistic user message from `currentConversationHistory` state. Clear token stats.
+#           7. Handle `AbortError` separately.
+#           8. Reset loading state.
+#         - `renderChatHistory(historyArray)`: Clears `#chat-history`, loops through `historyArray`, calls `appendMessage(..., ..., ..., true)` (with `skipHistoryUpdate=true`) to render messages without modifying state. Scrolls to bottom after rendering.
+#         - `appendMessage(role, content, isError, skipHistoryUpdate)`: Creates message `div`, adds classes, sets content (using `marked.parse` for assistant). Appends to `#chat-history`. If `skipHistoryUpdate` is false and not `isError`, pushes `{role, content}` to the *currently referenced* `currentConversationHistory` array. Scrolls to bottom if not skipping.
+#         - `updateTokenStats(usage)`: Formats token/duration data from `usage` object and displays in `#token-stats-display`. Handles `null`/missing data.
+#         - `clearTokenStats()`: Clears `#token-stats-display`.
+#         - `showLoading()` / `hideLoading()`: Manage loading indicator visibility and input/button disabled states.
+
+# 8. LLM Interaction Details
+# ---------------------------
+#   - **Context Injection:** Before *every* call to the LLM API for a chat message, the backend MUST prepend a single, hidden message to the conversation history sent.
+#   - **Message Role:** This hidden message MUST have `role: "user"`.
+#   - **Message Content:** The content MUST be generated using the `CONTEXT_PROMPT_TEMPLATE` from `.env`, substituting the candidate's display name and their full markdown content.
+#   - **Visibility:** This hidden context message MUST NOT be displayed in the frontend chat interface and MUST NOT be part of the `history` array sent *from* the frontend to the backend.
+#   - **API Call Structure:** The final list sent to the LLM API will look like: `[ {role:'user', content:hidden_context}, ...visible_history, {role:'user', content:actual_user_message} ]`.
+
+# 9. Deployment Specifications (Docker)
+# -----------------------------------
+#   9.1. `Dockerfile`
+#       - Base Image: Use a recent Python slim image (e.g., `python:3.11-slim`).
+#       - Environment: Set `PYTHONDONTWRITEBYTECODE=1`, `PYTHONUNBUFFERED=1`.
+#       - Working Directory: Set to `/app`.
+#       - Dependencies: Copy `requirements.txt`, install dependencies using `pip`. Consider multi-stage build for smaller final image.
+#       - Application Code: Copy the `backend` directory content into `/app/backend`. **DO NOT** copy the `mdata` directory into the image.
+#       - Port: Expose port 5000.
+#       - Command: Use `gunicorn` to run the Flask app (`backend.app:app`). Bind to `0.0.0.0:5000`. Use multiple workers (e.g., 3).
+#   9.2. `docker-compose.yml`
+#       - Version: Use a recent version (e.g., '3.8').
+#       - Services: Define an `app` service.
+#         - `build: .`: Build the image using the `Dockerfile` in the current directory.
+#         - `container_name`: Assign a specific name (e.g., `candidate-assistant-app`).
+#         - `ports`: Map host port 5000 to container port 5000 (`"5000:5000"`).
+#         - `volumes`:
+#           - Mount the local `./mdata` directory to `/app/mdata` inside the container (`./mdata:/app/mdata:ro`). Use read-only (`:ro`). This is MANDATORY for data persistence and separation.
+#           - Optionally mount `./backend:/app/backend` for development hot-reloading (comment out for production).
+#         - `env_file`: Load environment variables from `./.env`.
+#         - `restart: unless-stopped`: Ensure the container restarts automatically unless manually stopped.
+#       - Networks: Define a custom bridge network (e.g., `app-network`) and assign the `app` service to it. (Optional but good practice, especially if adding an LLM service to the compose file).
+#   9.3. Running: Use `docker-compose up --build` to build and start.
+
+# 10. `.gitignore`
+# ----------------
+#   - Must ignore standard Python files (`__pycache__`, `*.pyc`), virtual environments (`venv/`, `env/`), IDE files (`.idea/`, `.vscode/`), OS files (`.DS_Store`, `Thumbs.db`), logs (`*.log`), distribution files (`dist/`, `build/`), and crucially, the `.env` file.
+
+# ===============================================
+# End of Specifications
+# ===============================================
+
+    

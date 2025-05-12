@@ -1,0 +1,77 @@
+Nombre Candidato: JORGE LUIS AREVALO CALDERON
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9981306837
+Correo Electronico: arevalojorge07@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Actuario, Congreso Mundial, Derechos de la Infancia, Espacios Libres de Violencia., Formación Judicial, Licenciatura en Derecho, Maestría en Derecho, Oficial Judicial, Poder Judicial Federal, Secretario de Juzgado, UNISUR, Universidad Juárez Autónoma de Tabasco
+Tags Propósito: acceso a la justicia, corrupción, defensoría pública., derechos humanos, divulgación jurídica, eficiencia judicial, formación jurídica, herramientas digitales, juicio de amparo, justicia de fondo, justicia social, lenguaje claro, nepotismo, procesos judiciales, productividad, rezago judicial, ética judicial
+
+
+## Descripción del Candidato 
+
+Jorge Luis Arevalo Calderón es candidato a Juez/a de Distrito en Quintana Roo, postulándose por el Poder Judicial de la Federación. Cuenta con una trayectoria académica que incluye la Licenciatura en Derecho por la Universidad Juárez Autónoma de Tabasco y una Maestría en Derecho por UNISUR. Su formación continua se evidencia en diversos cursos y acreditaciones en el ámbito judicial, incluyendo especialización en juicio de amparo y derechos humanos.
+
+El candidato expresa su motivación para el cargo en la búsqueda de un Poder Judicial con un enfoque social, accesible y eficiente, priorizando la justicia de fondo sobre la formalidad. Sus propuestas se centran en garantizar una justicia social, agilizar los procesos judiciales con herramientas digitales, promover el acceso a la defensa legal, combatir la corrupción y fomentar la divulgación de información jurídica de manera accesible. Busca contribuir a reducir el rezago judicial y formar juristas especializados en juicio de amparo.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1Bn7bn4scU/?mibextid=wwXIfr
+- https://www.instagram.com/jorge_luis_arevalo?igsh=dzBxeGZyYXR6aWgw&utm_source=qr
+- https://www.youtube.com/@jarevaloc
+- https://www.tiktok.com/@jor7eac?_t=ZM-8v5deFuG71B&_r=1
+
+
+## Cursos
+
+- Curso para generar espacios libres de violencia, por la Escuela de Formación Judicial del Poder Judicial Federal
+- ,Acreditación de Oficial Judicial A del Poder Judicial Federal
+- ,Patente de Actuario de Juzgado y Tribunal, por la Escuela de Formación Judicial del Poder Judicial Federal
+- ,Acreditación de Secretario de Juzgado de Distrito o Tribunal, por la Escuela de Formación Judicial del Poder Judicial Fe,Congreso Mundial de Derechos de la Infancia y Adolescencia, en Puebla, México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52304/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho por la Universidad Juárez Autónoma de Tabasco y estudié una Maestría en Derecho en la UNISUR
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la convicción de que es posible tener un Poder Judicial con un enfoque social, más accesible y eficiente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de función jurisdiccional es encaminada hacia la justicia social; es decir, que la labor del juzgado se dirija a resolver los conflictos que ahí se planteen, esto de forma eficaz y transparente, atendiendo siempre a los derechos humanos de los ciudadanos, principalmente de los que históricamente no se les ha ofrecido ni facilitado el acceso a la justicia federal. Confío que así tendremos una función jurisdiccional efectiva y que combata la deuda histórica que se tiene con la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Justicia de fondo y no de forma. Desde hace años el Poder Judicial Federal se ha caracterizado por emitir una gran cantidad de sentencias de forma, lo cual para mi es un error, pues conceder amparos por formas, en la gran mayoría de los casos, no resuelve las situaciones de injusticia de las que la gente se duele, por eso creo que la impartición de justicia debe buscar resolver la controversia planteada y no limitarse solo a observar circunstancias de trámite.
+
+
+## Propuestas
+
+- Para la impartición de justicia: 1. Garantizaré una justicia social. 2. Impulsaré el lenguaje claro y accesible en las resoluciones judiciales. 3. Agilizaré los procesos judiciales mediante el uso eficiente de herramientas digitales. 4. Privilegiaré el fondo de los asuntos, delante de la forma. 5. Promoveré la Defensoría Pública en materia de Amparo, para quienes no puedan pagar un abogado. 6. Aplicaré metodologías para mejorar la productividad. 7. Buscaré mecanismos para reducir el rezago.
+- Para la ética judicial y la divulgación de información. 1. Rechazaré cualquier forma de corrupción en el Poder Judicial. 2. Fomentaré una cultura de respeto, servicio y amabilidad hacia el público en general. 3. Combatiré el nepotismo en el Poder Judicial Federal. 4. Continuaré la labor de informar y concientizar a la ciudadanía sobre temas juridicos, así como del juicio de amparo, de forma sencilla y accesible.
+- Para la formación de juristas especializados en juicio de amparo. 1. Participar de forma activa en foros sobre el juicio de amparo y derechos humanos. 2. Dar clases de juicio de amparo a estudiantes de derecho y personas litigantes. 3. Incentivar en universidades, espacios publicos y redes sociales las prácticas judiciales del Poder Judicial Federal, con la finalidad de que cada vez más estudiantes de derecho conozcan la importancia del juicio de amparo y su trámite, para la sociedad.
+

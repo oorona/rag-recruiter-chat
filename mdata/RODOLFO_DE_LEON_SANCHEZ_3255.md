@@ -1,0 +1,73 @@
+Nombre Candidato: RODOLFO DE LEON SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8992152100
+Correo Electronico: rodolfodeleontamaulipas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Coahuila., Derecho Constitucional, Formación, Juicios Orales, Licenciado en Derecho, Poder Judicial Federal, Sistema Penal Acusatorio
+Tags Propósito: Acceso a la justicia, Auditoría, Capacitación, Confianza Ciudadana, Corrupción, Denuncia, Derechos Humanos, Eficiencia, Gestión transparente, Igualdad ante la ley, Imparcialidad, Juicios en línea, Justicia, Legalidad, Legitimidad, Poder Judicial, Responsabilidad social., Transparencia, Vulnerabilidad, Zonas remotas, Ética
+
+
+## Descripción del Candidato 
+
+Rodolfo de León Sánchez es candidato a Jueces/as de Distrito en Tamaulipas, postulado por el Poder Ejecutivo Federal. Licenciado en Derecho por la UA de Coahuila, cuenta con más de 20 años de trayectoria en el Poder Judicial Federal y posee diplomados en Juicios Orales, Derecho Constitucional y Amparo, así como en el Sistema Penal Acusatorio.
+
+Su motivación para buscar el cargo se centra en consolidar una justicia ética, imparcial y transparente. Sus propuestas incluyen la consolidación de un modelo de gestión transparente con difusión de resultados, el establecimiento de auditorías internas y capacitación en DDHH, y el impulso de juicios en línea para agilizar procesos y facilitar el acceso a la justicia, particularmente en zonas remotas. Busca ejercer la función jurisdiccional con independencia, ética y profesionalismo, priorizando el respeto a los derechos fundamentales y la confianza ciudadana.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://rodolfodeleonsanchez.com.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/rodolfodeleonmx
+- https://www.instagram.com/rodolfodeleonmx/
+- https://www.tiktok.com/@rodolfodeleonmx
+
+
+## Cursos
+
+- Diplomado en Juicios Orales Diplomado en Derecho Constitucional y Amparo Diplomado en el Sistema Penal Acusatorio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53962/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la UA de Coahuila, con sólida formación y más de 20 años en el Poder Judicial Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo consolidar una justicia ética, imparcial y transparente, que responda a los retos de la nueva realidad de México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con independencia, ética y profesionalismo. Es el medio para garantizar el respeto a los derechos fundamentales, resolver los conflictos con legalidad y dignidad, y asegurar la confianza ciudadana en las instituciones. Implica ser imparcial, transparente y firme ante cualquier presión externa, actuando con responsabilidad y sentido social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia es aplicar la ley con objetividad, sensibilidad social y visión transformadora. Debe enfocarse en la igualdad ante la ley, el respeto irrestricto a los derechos humanos y el acceso efectivo a los tribunales, especialmente para los sectores más vulnerables. La justicia debe ser cercana, empática y libre de corrupción, para fortalecer la confianza de la sociedad en sus instituciones.
+
+
+## Propuestas
+
+- Consolidar un modelo de gestión transparente, con difusión periódica de resultados y procesos judiciales claros a través de herramientas que generen estadísticas.
+- Establecer auditorías internas, mecanismos de denuncia confiables y capacitar al personal en DDHH y atención ciudadana digna, fortaleciendo así la legitimidad del Poder Judicial.
+- Impulsar los juicios en línea para agilizar la justicia, reducir costos y facilitar el acceso, especialmente en zonas remotas.
+

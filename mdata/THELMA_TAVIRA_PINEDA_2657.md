@@ -1,0 +1,81 @@
+Nombre Candidato: THELMA TAVIRA PINEDA
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 7206694529
+Correo Electronico: thelmatavira@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: CESCIJUC., Derecho Procesal Penal, Doctorado, INDEPAC, IUEM, Igualdad de Género, Instituto de la Judicatura Federal, Juicio de Amparo, Maestría, Ministerio Público, PGR, Proyecto Diamante, SCJN, Sistema Penal Acusatorio, Sistema Penal Adversarial
+Tags Propósito: Acceso a la Justicia, Confianza Ciudadana, Derechos, Derechos Humanos, Difusión, Discriminación., Equidad, Estado de Derecho, Imparcialidad, Integridad, Interseccionalidad, Jueza, Justicia, Legalidad, Paz Social, Perspectiva de Género, Poder Judicial, Resolución de Conflictos, Vocación de Servicio, Ética
+
+
+## Descripción del Candidato 
+
+Thelma Tavira Pineda es candidata a Jueza/es de Distrito en México, postulándose al Poder Legislativo Federal. Cuenta con un doctorado concluido y una trayectoria académica enfocada en Derecho Procesal Penal. Su motivación para buscar el cargo es velar por los derechos ciudadanos a través de una justicia cercana y firme.
+
+En su visión, la función jurisdiccional es un compromiso fundamental para el Estado de Derecho y la protección de los derechos humanos, mientras que la impartición de justicia debe ser firme, imparcial y cercana a la ciudadanía. Sus propuestas incluyen la creación de programas de difusión para fortalecer la relación entre el Poder Judicial y la sociedad, una actuación judicial íntegra e imparcial, y la aplicación de una perspectiva de género e interseccionalidad en sus decisiones.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A5GiJJdYx/?mibextid=wwXIfr
+- https://x.com/thelmatavira?s=11
+- https://www.instagram.com/thelma_tavira_pineda?igsh=dDh0czM1N3k3aTZq&utm_source=qr
+- https://www.youtube.com/@ThelmaTaviraPineda
+- https://www.tiktok.com/@thel.tavira?_t=ZM-8uyAkLwOfeZ&_r=1
+
+
+## Cursos
+
+- Especialización para agentes del Ministerio Público en el Sistema Penal Acusatorio
+- PGR
+- ,Diplomado en el nuevo sistema de justicia penal acusatorio frente a la sociedad
+- Instituto de la Judicatura Federal
+- ,Diplomado Juicio de Amparo, impartido por la Casa de la Cultura Jurídica de la SCJN
+- ,Diplomado del Sistema Penal Acusatorio Adversarial Rama Ministerial Segunda Fase, como parte del Proyecto Diamante, PGR,Curso Ge¿nero como herramienta para la igualdad
+- Cuarta edicio¿n, impartido por la Escuela Federal de Formacio¿n Judicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54748/11
+
+
+## Trayectoria Academica
+
+- Estudie la licenciatura en el IUEM, mi Maestría en Derecho Procesal Penal en el INDEPAC y el Doctorado en el CESCIJUC
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Jueza, para velar por tus derechos, con justicia cercana y firme. Estoy aquí, para servir a mi Nación
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo a la función jurisdiccional como un alto compromiso constitucional, cívico y ético, ya que ésta, es el pilar fundamental que sostiene el Estado de Derecho, siendo la vía principal para la protección de los derechos humanos y la resolución de los conflictos sociales mediante la aplicación imparcial de la ley. Una función jurisdiccional que no solo resuelva casos, sino que restaure la confianza ciudadana y contribuya activamente al fortalecimiento del Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de impartición de justicia, parte de una vocación de servicio, construida a lo largo de casi dos décadas como servidora pública, por lo que creo en un Poder Judicial firme, imparcial y cercano a la ciudadanía, en el que cada resolución sea reflejo del respeto absoluto al Estado de Derecho, la protección irrestricta de los derechos humanos y la búsqueda permanente de la verdad material. Concibo la función judicial como un compromiso profundo con la equidad, la legalidad y la paz social.
+
+
+## Propuestas
+
+- Creación de programas de difusión y espacios de diálogo. Es esencial diseñar programas de difusión, jornadas informativas, foros de debate y la creación de plataformas digitales, dirigidas a la ciudadanía. Estas acciones estarán encaminadas a fortalecer la cercanía del Poder Judicial con la sociedad, promoviendo el conocimiento de la ley, los derechos humanos y los mecanismos de acceso a la justicia.
+- Ofrezco a la sociedad una actuación judicial íntegra, imparcial y libre de cualquier influencia externa, guiada únicamente por la ley, la razón jurídica y mi convicción ética de servir a la justicia.
+- Asumo el compromiso de impartir justicia con perspectiva de género e interseccionalidad, reconociendo que la discriminación no opera de forma aislada, sino que se entrecruza con múltiples condiciones que colocan a las personas en situación de desventaja.
+

@@ -1,0 +1,79 @@
+Nombre Candidato: AGUSTIN MORENO GASPAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5560996207
+Correo Electronico: agusmorenog@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Cohecho Internacional., Derecho Procesal Penal, Garantía de Reparación del Daño, INDEPAC, Instituto de la Judicatura, Ley General de Víctimas, Licenciatura en Derecho, Maestría, Procedimiento Abreviado, Seminario, Tribunal Superior de Justicia, UNAM
+Tags Propósito: accesibilidad, burocracia, comunidad, democratización, eficiencia, experiencia, formalismos, impartición de justicia., innovación, justicia, juventud, problemas sociales, rapidez
+
+
+## Descripción del Candidato 
+
+Agustín Moreno Gaspar es candidato al Poder Legislativo Federal, postulándose desde la Ciudad de México tras haber ejercido como Magistrado en Tribunales Colegiados de Circuito. Cuenta con un doctorado y una trayectoria académica destacada en Derecho, incluyendo estudios en la UNAM e INDEPAC. Su motivación para buscar el cargo público es contribuir a mejorar la impartición de justicia, haciéndola más eficiente y cercana a la ciudadanía.
+
+Moreno Gaspar propone democratizar el acceso a la justicia, simplificando procesos y evitando formalismos burocráticos.  Además, busca innovar en la función jurisdiccional aprovechando su experiencia y juventud, con el fin de atender y resolver los problemas sociales que aquejan al país, entendiendo la importancia de jueces con experiencia y conocimiento de la comunidad. Su perfil completo y CV detallado están disponibles en el enlace proporcionado por el INE.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19uAzVtZ6M/
+- https://x.com/agustin_mo97156?t=UfLdnpzr1JbQikiPvDkXLg&s=08
+- https://www.instagram.com/agustinmorenogaspar?utm_source=qr&igsh=emd2ZjJocHE4ZnQ4
+- https://youtube.com/@agustinmorenogaspar7006?si=jG1wFzq81Ni-tssX
+- https://www.tiktok.com/@ag.moreno?_t=ZM-8uYeCOdfcDV&_r=1
+
+
+## Cursos
+
+- ¿Sobre el procedimiento abreviado y la garantía de reparación del daño¿, revista del Instituto de la Judicatura,¿El procedimiento abreviado ¿Facultad ministerial no sujeta a control?, revista del Tribunal Superior de Justicia,¿LEY GENERAL DE VICTIMAS
+- ANÁLISIS Y PERSPECTIVAS¿ INSTITUTO DE LA JUDICATURA FEDERAL,¿SEMINARIO SOBRE EL DELITO DE COHECHO INTERNACIONAL¿ INSTITUTO DE LA JUDICATURA FEDERAL,DIPLOMADO EN AMPARO UNIVERSIDAD IBEROAMERICANA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54502/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la FES Aragon, UNAM, promedio 9
+- 74
+- Mestria en Derecho Procesal Penal, INDEPAC, promedio 9
+- 7
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a mejorar la impartición de justicia, para que esta sea mas eficiente, rápida y cercana a la gente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional hoy en día requiere ser mas eficiente, pero también cercana a la gente, dejar de lado los formalismos y ayudar a la gente a resolver los problemas en los que se encuentren involucrados
+
+
+## Vision sobre la Imparticion de Justicia
+
+También es importante contar con Jueces que tengan experiencia, pero que conozcan la comunidad para la que sirven, al igual que tener la energía e imaginación necesaria para atender y resolver los problemas sociales que mas aquejan a nuestro país
+
+
+## Propuestas
+
+- Hacer el acceso a la justicia eficiente y rápida, para lo cual se plantea evitar tantos formalismos y burocratismo
+- Ofrezco mi juventud y experiencia para innovar criterios y dar un nuevo sentido a la justicia
+- Democratizar la justicia, es decir, acercarla al común de la gente para que se entiendan las decisiones y que la impartición de justicia sea en mejor beneficio de toda la comunidad
+

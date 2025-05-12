@@ -1,0 +1,86 @@
+Nombre Candidato: KARLA RUESGA SOLANO
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 5585548849
+Correo Electronico: karla.ruesga.candidata@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Amicus Curiae, CEDHJ, CoIDH, Consejo de la Judicatura, DDHH, Derecho Judicial, Derechos Humanos, Diplomado, Emergencia Climática, Empresas Privadas de Armas, Investigación, Maestría., Reparación del Daño, Universidad de la Gran Colombia
+Tags Propósito: accesibilidad, capacitación, casos menores, colaboración, comunicación, conciliación, confianza, derechos, eficiencia, entendimiento mutuo, escucha activa, humanidad, justicia, juzgadores, obligaciones, optimización de recursos, procesos jurisdiccionales, procesos laborales, resolución rápida, simplificación, toma de decisiones informada., transparencia, trato humano
+
+
+## Descripción del Candidato 
+
+Karla Ruesga Solano es candidata a Jueza/es de Distrito en Jalisco, postulada por el Poder Ejecutivo Federal. Abogada por la Universidad de Guadalajara y actualmente cursando una Maestría en Derecho Judicial, cuenta con formación en derechos humanos, incluyendo diplomados y participación en Amicus Curiae ante la CoIDH. 
+
+Su motivación para buscar el cargo se centra en contribuir a una justicia cercana, empática y honesta. Sus propuestas incluyen fomentar la conciliación efectiva dentro del proceso judicial, la creación de unidades para resolver casos de menor complejidad con rapidez, y el establecimiento de canales de escucha activa para atender las inquietudes de las partes involucradas en procesos laborales. Busca humanizar los procedimientos jurisdiccionales, simplificar el lenguaje legal y promover la accesibilidad y transparencia en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/164Xhd6ZsD/?mibextid=wwXIfr
+- https://x.com/karlaruesgasol?s=11
+- https://www.instagram.com/karlaruesgasolano?igsh=YTZ3OWg5Y2txdWRt&utm_source=qr
+- https://www.tiktok.com/@karla.ruesga.sol?_t=ZM-8v6UQ16CpzK&_r=1
+
+
+## Cursos
+
+- Amicus Curiae ante la CoIDH
+- Solicitud de Opinión Consultiva sobre Emergencia Climática y Derechos Humanos 2024
+- ,Amicus Curiae ante la CoIDH
+- Solicitud de Opinión Consultiva sobre actividades de las empresas privadas de armas 2023
+- ,Verano de Investigación Programa Delfín
+- Universidad de la Gran Colombia, Armenia 2023
+- ,CEDHJ
+- Diplomado en derechos humanos y mecanismos de protección 2021
+- ,Consejo de la Judicatura del estado de Jalisco
+- DDHH de la Mujer (Reparación del daño y medidas de compensación) 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55246/11
+
+
+## Trayectoria Academica
+
+- Abogada por la U de G
+- Maestrante en Derecho Judicial
+- Participación en Amicus Curiae ante la CoIDH
+- Formación en DDHH
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la construcción de una justicia cercana, empática, honesta y con humanidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Humanizar los procedimientos jurisdiccionales, que sean accesibles y transparentes, capacitaciones a juzgadoras y juzgadores en trato humano, simplificar lenguaje para mejor entendimiento de las partes.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Juzgadoras y juzgadores cercanos y accesibles, dispuestos a involucrarse en los procesos de conciliación. Esto implica explicar, con términos sencillos, los derechos y obligaciones de las partes involucradas, a fin de que todos comprendan su situación. Esta apertura facilita el entendimiento mutuo, humaniza el proceso judicial fomentando la confianza en el sistema, brindando además un ambiente de colaboración.
+
+
+## Propuestas
+
+- Fomentar la conciliación efectiva aún dentro del proceso judicial con presencia y acompañamiento, para facilitar la comunicación y el entendimiento entre las partes desde cualquier etapa del proceso, mediante presencia activa, asegurándonos de que las partes se sientan acompañadas y escuchadas, para lograr acuerdos justos, reduciendo la carga del sistema judicial.
+- Creación de unidades dentro del juzgado que se encarguen de casos de menor complejidad, y resuelvan con rapidez y eficacia, evitando que los juicios simples se dilaten innecesariamente, optimizando recursos judiciales y mejorando la experiencia de las personas al acudir al sistema de justicia.
+- Establecer canales de escucha activa para atender a las inquietudes de las partes involucradas en los procesos laborales, buscando la cercanía con los juzgadores, y el entendimiento de las necesidades cotidianas, fomentando el entendimiento mutuo y reduciendo tensiones, permitiendo la toma de decisiones informada.
+

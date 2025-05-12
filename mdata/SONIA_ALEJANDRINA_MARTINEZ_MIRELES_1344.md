@@ -1,0 +1,75 @@
+Nombre Candidato: SONIA ALEJANDRINA MARTINEZ MIRELES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8110487770
+Correo Electronico: soniamireles1943@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Ciencias Sociales, Derecho, Derecho Mercantil, Derecho Penal, Derecho Procesal, Doctorado, Doctorante, Licenciatura, Maestría
+Tags Propósito: Acceso a la justicia, Aplicación de la ley, Compromiso, Derechos humanos, Desigualdades estructurales, Dignidad humana, Equidad, Función pública, Honestidad, Inclusión, Justicia para todos., Justicia social, Profesionalismo, Reforma judicial, Rehabilitación, Reinserción, Sistema judicial, Transformación judicial
+
+
+## Descripción del Candidato 
+
+SONIA ALEJANDRINA MARTINEZ MIRELES es candidata a Magistratura de Tribunales Colegiados de Circuito por Nuevo León, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho y Ciencias Sociales, así como con estudios de maestría en Derecho Mercantil, Procesal Penal y Argumentación Jurídica, y doctorado en Derecho.
+
+La candidata manifiesta su motivación para buscar el cargo en su interés por transformar el sistema judicial hacia una justicia más social e inclusiva, enfocándose en la rehabilitación, la reincorporación y la dignidad humana. Sus propuestas giran en torno a la construcción de un sistema judicial más humano y accesible, el eje de reformas judiciales basadas en la justicia social, y un compromiso con la honestidad y la capacidad para enfrentar la crisis de justicia en el país, buscando no solo aplicar la ley sino transformarla.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100001423483794
+- https://www.x.com/@S_Alejandrina_
+- http://www.instagram.com/Sonia.alejandrina.mtz
+
+
+## Cursos
+
+- Maestría en Derecho Mercantil, Maestría Procesal Penal
+- Maestría en Argumentación Jurídica
+- Doctorado en Derecho
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54297/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y Ciencias Sociales, Maestría en Derecho Procesal y Argumentación Jurídica, Doctorante Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo claro que la Justicia merece una transformación social e inclusiva.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Para lograr una verdadera justicia social, debemos ver más allá de la simple aplicación de la ley y, en su lugar, actuar como agentes de cambio que promuevan la rehabilitación, la reinserción y, sobre todo, la dignidad humana. Mi aspiración de convertirme en Magistrada Federal nace de la necesidad urgente de una justicia más inclusiva, que garantice el acceso pleno a los derechos humanos y, sobre todo, que considere las realidades diversas de quienes se enfrentan al sistema judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi continua formación en Derecho me ha permitido entender la importancia de interpretar la ley no solo con rigor técnico, sino con una visión crítica que garantice la equidad y el respeto a los derechos fundamentales. En este sentido, no basta con aplicar las normas, sino que es necesario comprender que la justicia también debe reparar las desigualdades estructurales que afectan a grandes sectores de la población. El reto que enfrentamos en México es grande, quiero enfrentarlo.
+
+
+## Propuestas
+
+- El ámbito federal tiene la capacidad de influir en la vida de miles de personas, y creo firmemente que con mi experiencia y mi compromiso puedo aportar a la construcción de un sistema judicial más humano y accesible.
+- La justicia social debe ser el eje de las reformas judiciales, y mi objetivo es ser parte activa de esa transformación, contribuyendo no solo con mis conocimientos técnicos, sino con mi visión de una justicia que esté profundamente alineada con los principios de igualdad, dignidad y respeto a los derechos humanos.
+- Vivimos momentos determinantes en los que necesitamos personas capacitadas, profesionales y honestas en las titularidades de nuestros órganos jurisdiccionales. Como funcionarios públicos, no podemos permitir en ningún orden ser ajenos a la crisis de justicia que aqueja a nuestra nación. Convertirme en Magistrada Federal es un paso más en mi compromiso de luchar por una justicia que sea verdaderamente para todos. No solo quiero aplicar la ley, quiero transformar la forma en que la ley se aplica.
+

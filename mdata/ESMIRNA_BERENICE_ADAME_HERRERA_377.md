@@ -1,0 +1,79 @@
+Nombre Candidato: ESMIRNA BERENICE ADAME HERRERA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 4521543978
+Correo Electronico: esmi_84@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acoso sexual, Casos prácticos., Formación, Género, Hostigamiento, Igualdad, Poder judicial, Preparación, Reforma judicial, Reforma laboral, Tutorías, Visitas
+Tags Propósito: Acceso a la justicia, Calidad del servicio, Capacitación, Cargas de trabajo, Derechos humanos, Desarrollo profesional, Eficiencia, Imparcialidad, Independencia judicial, Infraestructura tecnológica, Justicia, Modernización, Presunción de inocencia, Racionalidad presupuestaria., Rendición de cuentas, Supervisión, Transparencia
+
+
+## Descripción del Candidato 
+
+ESMIRNA BERENICE ADAMÉ HERRERA es candidata a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulándose a través del Poder Judicial de la Federación. Cuenta con cédula profesional y ha realizado cursos en temas como combate al hostigamiento, perspectiva de género, la reforma judicial de 2021 y formación para secretarios del Poder Judicial. 
+
+Su motivación para el cargo se basa en la creencia en la importancia del acceso a una justicia pronta, independiente e imparcial.  Su visión se centra en una institución judicial de calidad, eficiente, transparente y adaptable, enfocada en las necesidades de las personas. Sus propuestas incluyen la capacitación obligatoria y constante para operadores jurídicos, la vigilancia del cumplimiento de sus funciones con respeto a la presunción de inocencia, y la modernización de la infraestructura tecnológica de los tribunales, adaptando las inversiones a las necesidades de cada circuito.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://facebook.com/esmirna.b.herrera
+- http://instagram.com/esmirnabereniceadame
+- http://www.youtube.com/@esmirnaadame8816
+- http://tiktok.com/@izmir.adame
+
+
+## Cursos
+
+- Combate al Hostigamiento y Acoso Sexual
+- ,Generalidades de las Visitas de,Género como Herramienta para la Igualdad
+- Onceava Edición
+- ,La Reforma Judicial 2021
+- Segunda Edición
+- ,Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Ciclo Escolar 2010
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52186/10
+
+
+## Trayectoria Academica
+
+- Tutorías para la revisión de los casos prácticos del Curso de Especialización sobre la Reforma en materia laboral
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque creo en la importancia del respeto al derecho de acceso a una justicia pronta, independiente e imparcial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una institución de calidad en la prestación del servicio público jurisdiccional, con la capacidad de dar solución de los asuntos de manera pronta, eficaz, eficiente y transparente. Asimismo, que sea adaptable a los continuos cambios, siempre en beneficio de las personas justiciables, con compromiso y sensibilidad, de manera independiente e imparcial, ante la realidad social de éstas; y en constante capacitación, para una mayor eficiencia en la organización y gestión administriva interna.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que los operadores jurídicos se conduzcan con congruencia a los fines de la institución, siempre en beneficio de las personas justiciables; que cumplan diariamente, sin distinción, con las obligaciones y responsabilidades propias del encargo que cada uno desempeñe; y que a través del adecuado desarrollo de la carrera judicial, se imparta justicia con excelencia, profesionalismo, objetividad, imparcialidad e independencia, garantizando en todo momento los derechos humanos de los justiciables.
+
+
+## Propuestas
+
+- Con la finalidad de que exista una mejora tangible en la función jurisdiccional, se propone la obligatoriedad, partiendo del cargo que cada uno de los operadores jurídicos desempeñe, de la capacitación en el ámbito jurisdiccional y administrativo; a través de los cursos, diplomados, seminarios, especialidades, etcétera, que para tal efecto se diseñen. Obligar a los operadores jurídicos a una capacitación constante, garantiza la calidad en el servicio público jurisdiccional que desempeñan.
+- Vigilancia constante en el ejercicio de sus funciones, de todos y cada uno de los operadores jurídicos que integren los órganos jurisdiccionales; pero siempre partiendo del respeto al principio de presunción de inocencia de que gozan todas las personas, inclusive, los servidores públicos. Esto, mediante los mecanismos óptimos, eficientes y objetivos, que implemente el órgano administrativo correspondiente.
+- Modernización en la infraestructura y equipos tecnológicos de los órganos jurisdiccionales, partiendo de la adecuada racionalidad del presupuesto, pero siempre en pro de alcanzar un servicio público que garantice la calidad y efecacia en la atención a las personas justiciables. Para ello, se estima pertinente considerar el principio de realidad que impera en cada uno de los circuitos judiciales en que se divide el país, en tanto las necesidades son distintas atendiendo a las cargas de trabajo.
+

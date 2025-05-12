@@ -1,0 +1,76 @@
+Nombre Candidato: LORETTA ORTIZ AHLF
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: contacto@lorettaortiz.com
+Numero de lista en boleta: 22
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Derechos Humanos, Doctora., Escuela Libre de Derecho, IBERO, Maestra, UNED
+Tags Propósito: Acceso a la justicia, Audiencias públicas, Confianza social, Constitución, Contexto local, Democracia, Derechos humanos, Desarrollo, Desprotegidos, Empatía, Igualdad, Justicia pública, Justicia social, Ley Orgánica del Poder Judicial., Participación social, Pluralidad, Pobreza, Prosperidad, Proximidad social, Refundación Poder Judicial, Sentencias sociales, Suprema Corte, Transparencia, Violencia de género
+
+
+## Descripción del Candidato 
+
+Loretta Ortiz Ahlf es candidata a Ministra de la Suprema Corte de Justicia de la Nación. Cuenta con doctorado en Derechos Humanos y una trayectoria académica en derecho, habiendo estudiado en la Escuela Libre de Derecho, la IBERO y la UNED. Su motivación para buscar la reelección en el cargo es continuar trabajando por el pueblo de México, destacando la honestidad y preparación como pilares.
+
+Su visión de la función jurisdiccional se centra en la contribución a un mejor México a través de la justicia, promoviendo la democratización de la judicatura y la empatía hacia la comunidad.  Sus propuestas principales incluyen la emisión de "Sentencias Sociales" con impacto directo en derechos económicos, sociales, culturales y ambientales, la maximización de las audiencias públicas ante la Suprema Corte para fomentar la participación social, y una mayor proximidad a la ciudadanía a través de la realización de audiencias en diferentes municipios del país (“Ministra al Territorio”).
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://lorettaortiz.com/
+
+
+## Redes Sociales
+
+- https://facebook.com/lorettaortiza
+- https://x.com/lorettaortiza
+- https://www.instagram.com/lorettaortizahlf
+- https://www.youtube.com/@LorettaOrtizA
+- https://www.tiktok.com/@lorettaortizahlf
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/4105/6
+
+
+## Trayectoria Academica
+
+- Abogada por la Escuela Libre de Derecho
+- Maestra y Doctora en Derechos Humanos por la IBERO y UNED, respectivamente
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro continuar en el cargo como Ministra para seguir trabajando por el pueblo de México, con honestidad y preparación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+JUZGAR PARA LA PAZ, SEGURIDAD Y PROSPERIDAD. Juzgar no se reduce a resolver conflictos, sino que implica contribuir al proyecto nacional para un mejor México. La democratización de la judicatura obliga a ver a la cara a las personas, con sensibilidad, empatía y reciprocidad. La refundación del Poder Judicial abrió la puerta a la pluralidad de perfiles y perspectivas, basado en un fuerte vínculo con la comunidad, en la transparencia y en la confianza social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+PARA QUE SEA JUSTICIA, TIENE QUE SER SOCIAL. El nuevo modelo implica un replanteamiento de las obligaciones del Poder Judicial; exige que las personas juzgadoras interpretemos la Constitución y los derechos humanos como herramientas vivas, que respondan al dolor que enfrenta nuestro país debido a la pobreza, la discriminación y las distintas clases de violencia, sobre todo la de género. Tenemos una oportunidad única para pagar esas deudas en materia de justicia social.
+
+
+## Propuestas
+
+- SENTENCIAS SOCIALES. Las resoluciones de la Suprema Corte deben tener un impacto social. Para ello, se impulsará un mecanismo que permita identificar y atraer asuntos que sean de especial importancia para el pueblo de México, y que versen sobre derechos económicos, sociales, culturales y ambientales. Así, se establecerán criterios que contribuyan al proyecto nacional de prosperidad y mejoramiento de las condiciones de vida de todas las personas, sobre todo de las históricamente desprotegidas.
+- JUSTICIA PÚBLICA. La nueva Ley Orgánica del Poder Judicial prevé la celebración de audiencias públicas ante la Suprema Corte, previo a la resolución del asunto correspondiente. Continuaré trabajando para maximizar este derecho de participación social, desde la perspectiva del acceso a la justicia, la inclusión y la igualdad de trato. Esta participación es una parte fundamental de la democratización del Poder Judicial. Las personas tienen que ser escuchadas por la máxima autoridad judicial.
+- MINISTRA AL TERRITORIO. Esto implica salir del zócalo de la Ciudad de México para atender audiencias en distintos municipios y localidades del país, conforme a un plan de trabajo y calendarización. Esto contribuirá a la proximidad social y a la contextualización de las problemáticas locales. Además de escuchar a quienes son partes en los asuntos, se recibirá a organizaciones de la sociedad civil y a todo tipo de colectivos que tengan un interés concreto. Acceso a la justicia y desde la justicia.
+

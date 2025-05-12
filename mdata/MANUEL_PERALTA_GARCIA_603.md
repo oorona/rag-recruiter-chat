@@ -1,0 +1,75 @@
+Nombre Candidato: MANUEL PERALTA GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5541904989
+Correo Electronico: tlatocan@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Combate a la Impunidad, Cursos., Derecho Fiscal, Formación Financiera, ITESM, Licenciatura en Derecho, Recursos Ilícitos, Seguridad Nacional, Sistema Financiero, UNAM
+Tags Propósito: autonomía judicial, bienestar social, calidad de resoluciones, derechos humanos, escrutinio legislativo, felicidad del pueblo., humildad, justicia equitativa, magistratura cercana, minorías, perspectiva de género, rendición de cuentas, respeto, responsabilidad, sectores vulnerables, transparencia
+
+
+## Descripción del Candidato 
+
+Manuel Peralta Garcia es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho por la UNAM y formación complementaria en el área financiera por el ITESM, así como diversos cursos especializados en temas de justicia y seguridad.
+
+Peralta motiva su candidatura con la búsqueda de una justicia equitativa y cercana a la ciudadanía, proponiendo una magistratura con contacto directo con la población a través de conferencias semanales. Sus propuestas centrales incluyen la rendición de cuentas cualitativa, enfocada en la calidad de las resoluciones y su impacto en sectores vulnerables, y la transparencia en la labor de los magistrados ante el Poder Legislativo. Busca una administración de justicia que priorice el bienestar social, la perspectiva de género y la autonomía del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1A4SuMeWkz/?mibextid=wwXIfr
+- https://x.com/MxConPeralta
+- https://www.instagram.com/manuelperaltamx/
+- https://www.tiktok.com/@manuelperaltamx
+
+
+## Cursos
+
+- Diplomado en Sistema Financiero Actual de México Instituto Tecnológico de Estudios Superiores de Monterrey
+- ,Curso en materia de Recursos de Procedencia Ilícita,Cuso en Seguridad Nacional,Curso de combate a la impunidad,Curso en Derecho Fiscal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54678/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la UNAM y con formación complementaria financiera en el ITESM, así como diversos cursos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque trabajando en conjunto y poniendo el ejemplo desde la magistratura, lograremos una justicia equitativa para todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+A diferencia de jueces, magistrados y ministros del pasado, estos nuevos cargos deben ser ostentado por quienes nos consideramos que nos conducimos con respeto, amabilidad, humildad y responsabilidad con los ciudadanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Soy un ciudadano que cree en la impartición de justicia la cual debe buscar el bienestar social, que beneficie a la mayoría y no solo a un grupo de poder, de un poder judicial cuyas resoluciones deben emitirse buscando la felicidad del pueblo, con perspectiva de género, habilitando los derechos otorgados a las minorías. Por una justicia real y autónoma de los demás poderes de la unión o de fuerzas externas que pretendan someter los derechos por las voluntades políticas o económicas.
+
+
+## Propuestas
+
+- Magistratura cercana al pueblo. Se deberá proponer conferencias de forma semanal donde se traten temas de interés y los criterios que se estén ocupando por parte de los Magistrados de Circuito; esta vez los Magistrados deben tener contacto con toda la población y hacer sentir sus necesidades para que sean reflejadas en sus resoluciones.
+- Rendición de cuentas cualitativa y no cuantitativa. Es hora de una Administración de justicia que no solo se califique con números sino en la calidad de las resoluciones que representen una mayor equidad y respeto a las libertades humanas sobre todo de los sectores vulnerables como lo son personas adultas mayores; personas con discapacidad; Mujeres, Niñas, Niños y adolescentes; pueblos originarios, diversas comunidades, trabajadores migrantes; y personas detenidas.
+- Una rendición de cuentas eficaz y trasparente. En el pasado ningún Juez o Magistrado ha rendido cuentas a la Nación por conducto del escrutinio del Poder Legislativo, ya sea por requerimiento hecho por la Cámara de Diputados o de Senadores; ello es así, porque existe la premisa equivocada de que esta acción somete en sentido de las resoluciones emitidas por cada juzgador.
+

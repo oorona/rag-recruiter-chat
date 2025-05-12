@@ -1,0 +1,77 @@
+Nombre Candidato: RODOLFO GARCIA CAMACHO
+Cargo: Juezas/es de Distrito
+Entidad: ZACATECAS
+Sexo: HOMBRE
+Telefono: 4922646077
+Correo Electronico: juezrodo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Argumentación Jurídica, Capacitación continua., Derecho del Trabajo, Derechos Humanos, Especialidad, Juicio de Amparo, Justicia Laboral, Justicia Penal, Maestría, Mención Honorífica, Procesos Judiciales Federales
+Tags Propósito: acceso a la justicia, compromiso social, derechos, empatía, equidad, experiencia, función jurisdiccional, honestidad, igualdad, imparcialidad, independencia judicial, integridad, justicia empática, justicia humana, leyes, preparación, profesionalismo, resolución de casos., respeto, responsabilidad, sociedad, trato digno, valores, vocación de servicio
+
+
+## Descripción del Candidato 
+
+Rodolfo Garcia Camacho es candidato a Juez/a de Distrito en Zacatecas, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría y ha completado diversas especialidades y diplomados en áreas del derecho como el laboral, procesos judiciales federales, argumentación jurídica, juicio de amparo y justicia penal. 
+
+Su candidatura se basa en su trayectoria académica y profesional, buscando aplicar la ley con honestidad, humanidad y compromiso. Sus propuestas centrales incluyen la preparación continua para un juzgamiento responsable, la imparcialidad en las decisiones, y una justicia humana, cercana y accesible que considere las circunstancias individuales y el impacto social de sus resoluciones.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://linktr.ee/JuezRodo
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19pT3KceST/?mibextid=wwXIfr
+- https://x.com/rodoius?s=21&t=PFon0ufXId0GWuBr6CaC_g
+- https://www.instagram.com/juez_rodo
+- https://youtube.com/@juezrodo?si=71wX6KBywwxUicca
+- http://www.tiktok.com/@juezrodo
+- https://www.facebook.com/share/18UoyUw93C/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Procesos Judiciales Federales,Diplomado en Argumentación Jurídica,Diplomado en Juicio de Amparo y Derechos Humanos,Diplomado en Justicia Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53029/11
+
+
+## Trayectoria Academica
+
+- Soy abogado con mención honorífica, tengo maestría, especialidad y sigo preparándome con cursos y capacitaciones siempre
+
+
+## Motivo para buscar el Cargo Publico
+
+Estudio, esfuerzo y experiencia me respaldan para juzgar con honestidad, humanidad y compromiso real con la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser Juez de Distrito es una gran responsabilidad. Se trata de aplicar e interpretar la ley con preparación, criterio y sensibilidad a cada caso en particular. Yo creo en una justicia humana, imparcial y cercana. Analizar, escuchar y decidir con profesionalismo es lo que garantiza que los derechos se protejan. Por eso la preparación continua y el compromiso de resolver cada caso con honestidad, técnica, imparcialidad y vocación de servicio deben estar acompañados de una trayectoria probada
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia no es solo resolver casos, es entender que detrás de cada expediente hay personas, familias, derechos y realidades. Creo en una justicia accesible, que escuche y actúe con respeto, profesionalismo, objetividad, igualdad, equidad y empatía. La imparcialidad, el humanismo y la integridad no sólo se dicen, se demuestran en cada resolución. Y para eso, se necesita preparación constante, compromiso y valores firmes.
+
+
+## Propuestas
+
+- Preparación constante para juzgar con criterio y responsabilidad: La función jurisdiccional no se improvisa. Seguiré capacitándome para resolver con técnica, conocimiento y compromiso. Escuchar antes de resolver: Detrás de cada expediente hay personas. Mi propuesta es fortalecer una justicia empática, que escuche y acompañe, con el afán de dar a cada quien lo que es debido. La confianza y el respeto sociales que merezca serán el resultado de un trabajo dedicado, responsable y honesto.
+- Imparcialidad total, sin compromisos ni influencias: La función jurisdiccional debe estar libre de intereses. Defenderé la independencia como base de toda decisión. Humanidad y cercanía en el juzgar: Propongo una justicia que no se sienta lejana, que trate a las personas con respeto, claridad y trato digno. Tributaré al Estado Mexicano el honor y servicio debidos, defendiendo el conjunto de valores que, como juzgador federal de México, representa.
+- Honestidad, vocación y compromiso social como forma de trabajo: La integridad no se dice, se demuestra. Mi compromiso es juzgar con los valores que me han guiado desde el inicio. En cada momento de mi quehacer jurisdiccional, estaré consciente de que las leyes se hicieron para servir a las personas, ya que éstas constituyen el motivo primordial de mis afanes. Tendré presentes las condiciones de injusticia que han afectado a una gran parte de la sociedad a lo largo de nuestra historia.
+

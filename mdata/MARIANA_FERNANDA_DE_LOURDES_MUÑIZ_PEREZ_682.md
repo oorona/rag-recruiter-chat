@@ -1,0 +1,74 @@
+Nombre Candidato: MARIANA FERNANDA DE LOURDES MUÑIZ PEREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5639471660
+Correo Electronico: marianamunizontactociud@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Procesal Fiscal, Derechos Humanos, Escuela Federal de Formación Judicial, Género, Igualdad, Justicia Penal, Licenciatura en Derecho., Poder Judicial de la Federación, Universidad Nacional Autónoma de México, Universidad de Perugia
+Tags Propósito: acceso a la justicia, compromiso ciudadano, derechos humanos., derechos laborales, eficacia, empatía, equidad, expedientes, imparcialidad, justicia social, preparación legal, responsabilidad, sentencias, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Mariana Fernanda de Lourdes Muñiz Perez es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Licenciada en Derecho por la FES Acatlán UNAM, cuenta con diversos diplomados en áreas como Derechos Humanos y Derecho Procesal Fiscal, además de cursos en temas de justicia y género.
+
+Su motivación para buscar el cargo se basa en fortalecer la confianza en un sistema de justicia social e imparcial para todos. Su visión de la función jurisdiccional se centra en la seriedad, el estudio exhaustivo de los casos y la actualización constante en materia legal. Entre sus propuestas destacan la sensibilidad hacia grupos vulnerables, la eficacia en la resolución de casos y la apertura a la ciudadanía para facilitar el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://marianamuniz.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/MarianaMunizMx/
+- https://www.x.com/Mariana_Munizmx
+- https://www.instagram.com/mariana_munizmx/
+- https://www.tiktok.com/@marianamunizmx
+
+
+## Cursos
+
+- Dibattiti Attuali Sui Diritti Umani IX Corso intensivo, Universitá Degli Studi Di Perugia,Diplomado en Derechos Humanos del Poder Judicial de la Federación, Universidad Iberoamericana,Diplomado en Derecho Procesal Fiscal, Universidad Nacional Autónoma de México FES ACATLAN,Curso de género como herramienta para la igualdad segunda edición, Escuela Federal de Formación Judicial,Curso de sensibilización nuevo Sistema de Justicia Penal, Escuela Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54080/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho por la FES Acatlán UNAM, Diplomado en Derecho Procesal Fiscal UNAM y Diplomado en Derechos Humano
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero que la sociedad confíe en que puede existir una justicia para todos, una justicia social sin distinción alguna
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es de un trabajo constante con la seriedad debida con la que se debe ver cada asunto, la responsabilidad de un estudio cuidadoso y exhaustivo de las constancias que integran los expedientes; de una preparación y actualización constante de las leyes y jurisprudencias (mías y de mi equipo), disciplina cumplir con las cargas de trabajo en los términos establecidos en la ley, sin afectar derechos laborales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Lo más importante sobre la impartición de justicia es que el juzgador sea imparcial, que la decisión de los jueces y magistrados le den la razón a quién realmente la tenga, sin que sus decisiones se vean influenciadas por cuestiones o personas ajenas, que las determinaciones no atiendan a intereses de poder, monetarios o políticos. Que la justicia sea igual para todos, sin distinciones.
+
+
+## Propuestas
+
+- Sensibilidad en el estudio de todos los casos y, en particular tener empatía con los grupos de escasos recursos y demás grupos vulnerables
+- Eficacia que los asuntos no se alarguen innecesariamente, que la sentencias se emitan en los tiempos establecidos en la ley, que sean prácticas y sencillas para que las partes (los ciudadanos) puedan entenderlas, sin descuidar el estudio exhaustivo y debido de cada asunto que se me presente.
+- Compromiso de romper las barreras que existan entre los ciudadanos y los juzgadores, teniendo las puertas abiertas a todo aquel que necesite ser escuchado, por lo que siempre tendré disposición y serán atendidos cuando lo necesiten.
+

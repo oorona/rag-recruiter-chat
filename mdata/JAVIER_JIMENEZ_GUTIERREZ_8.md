@@ -1,0 +1,76 @@
+Nombre Candidato: JAVIER JIMENEZ GUTIERREZ
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: 5552821100
+Correo Electronico: jjimenez@curtis.com
+Numero de lista en boleta: 52
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Derecho, Estudios Latinoamericanos, Harvard, Maestría., Oxford, UNAM
+Tags Propósito: Arbitraje, Constructividad, Debido Proceso, Derecho Comparado, Derechos Humanos, Dinamismo, Fondo de la controversia., Formalismo, Imparcialidad, Independencia Judicial, Mediación, Modernización, Negociación, Objetividad, Pluriculturalismo, Poder Judicial, Ponderación, Sistemas Alternos de Resolución de Conflictos, Sustantividad, Tecnología
+
+
+## Descripción del Candidato 
+
+JAVIER JIMENEZ GUTIERREZ es candidato a Ministra/o de la Suprema Corte de Justicia de la Nación, postulado por el Poder Ejecutivo Federal (lista 52). Es abogado por la UNAM con Maestrías en Derecho y Estudios Latinoamericanos por las Universidades de Harvard y Oxford, contando con 30 años de experiencia en Derecho Comparado y Arbitraje.
+
+Su candidatura se basa en la visión de fortalecer el Poder Judicial con una judicatura independiente, sustantiva, constructiva, ponderada y dinámica. Sus principales propuestas incluyen la adopción de lecciones del Derecho Comparado para un sistema judicial menos formalista, el impulso de sistemas alternos de solución de controversias y una modernización del Poder Judicial que considere la historia, tradiciones y pluriculturalismo del país.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.javierjimenez.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574860402502
+- https://x.com/JavierJime10258
+- https://www.instagram.com/javierjimenez_oficial/
+- https://www.youtube.com/channel/UC8W573wmVUabF2AfC8TyYRQ
+- https://www.tiktok.com/@javierjimenezg_oficial
+- https://www.linkedin.com/in/javier-jimenez-gutierrez-782915358/
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/246/6
+
+
+## Trayectoria Academica
+
+- Abogado por la UNAM y Maestro en Derecho y en Estudios Latinoamericanos por las Universidades de Harvard y Oxford
+
+
+## Motivo para buscar el Cargo Publico
+
+30 años de experiencia en Derecho Comparado y Arbitraje, me dan una visión enriquecedora para mejorar el Poder Judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Busco lograr una Judicatura: INDEPENDIENTE: Ajena a sumisiones con otros poderes, partidos políticos, grupos empresariales u otros grupos de poder. SUSTANTIVA: Preocupada por el fondo de las controversias por encima de elementos procedimentales. CONSTRUCTIVA: Que procure la resolución real de los conflictos sobre las victorias jurídicas nominales. PONDERADA: Ajena al protagonismo y al activismo judicial. DINÁMICA: Consciente de nuestra historia, pero abierta a lecciones del Derecho Comparado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es importante subrayar que el juzgador es un aplicador del Derecho y no un forjador de Política Pública. El juzgador debe tener la capacidad de hacer a un lado sus posiciones personales y sus inclinaciones políticas y dictar una justicia objetiva e imparcial, guiado exclusivamente por el Derecho y la buena fe.
+
+
+## Propuestas
+
+- Mi primera propuesta es aprender las lecciones del Derecho Comparado para lograr un Sistema Judicial menos formalista. Sin dejar de reconocer la importancia del debido proceso, se debe privilegiar el análisis del fondo de las controversias sobre los aspectos formales. El Arbitraje Internacional y diversos sistemas judiciales de otros países ofrecen ejemplos importantes de sistemas de impartición de justicia que han desarrollado criterios de adjudicación menos formalistas.
+- Mi segunda propuesta gira en torno a la mayor utilización de los sistemas alternos de solución de controversias (negociación, mediación, procedimientos periciales, arbitrajes, etc.) para construir soluciones efectivas a los litigios. Una solución constructiva efectiva es preferible sobre victorias legales nominales.
+- Mi tercera propuesta gira en torno a una modernización del Poder Judicial, que a la vez sea sensible de nuestra historia, tradiciones y pluriculturalismo. Esta modernización va desde la utilización de los avances del desarrollo tecnológico, hasta la incorporación de visiones modernas de principios tradicionales en materia de división de poderes, federalismo y derechos humanos.
+

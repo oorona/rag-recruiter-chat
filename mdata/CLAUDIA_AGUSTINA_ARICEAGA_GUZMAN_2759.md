@@ -1,0 +1,76 @@
+Nombre Candidato: CLAUDIA AGUSTINA ARICEAGA GUZMAN
+Cargo: Juezas/es de Distrito
+Entidad: MICHOACAN
+Sexo: MUJER
+Telefono: 4431374863
+Correo Electronico: guzmanclaudia96@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Actualización Académica, Derechos Humanos, Escuela Judicial, Formación, Igualdad de Género, Materia Laboral, Medio Ambiente, Poder Judicial de la Federación, Precedentes SCJN., Violencia
+Tags Propósito: acceso a la justicia, actualización jurídica., bienestar social, debido proceso, derechos fundamentales, derechos humanos, derechos laborales, empatía, equidad, formación continua, gestión emocional, habilidades blandas, imparcialidad, justicia, paz social, salud laboral, tecnologías, transparencia, ética
+
+
+## Descripción del Candidato 
+
+Claudia Agustina Ariceaga Guzman es candidata a Jueza/es de Distrito en Michoacán, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con licenciatura y título profesional, además de una trayectoria en actualización académica continua, incluyendo cursos de formación del Poder Judicial en temas de derechos humanos, igualdad de género, ambiente sano y violencia.
+
+Su motivación para buscar el cargo es servir a México a través de la impartición de justicia y el acercamiento a la ciudadanía. Su visión de la función jurisdiccional se centra en garantizar el acceso a la justicia y la protección de los derechos fundamentales, actuando como un garante imparcial del debido proceso. Sus propuestas incluyen programas de formación interna en ética, derechos humanos y habilidades blandas para el personal del juzgado, actividades de bienestar para el personal y el fomento de la actualización constante en materia jurídica.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://linktr.ee/claudia.ariceaga
+
+
+## Redes Sociales
+
+- https://www.facebook.com/ariceaga.claudia
+- https://www.instagram.com/claudia.ariceaga/
+- https://www.youtube.com/@claudiaariceaga
+- https://www.tiktok.com/@claudia.ariceaga1
+
+
+## Cursos
+
+- Curso de Formación para Personas Secretarias del Poder Judicial de la Federación: concurso escolarizado edición 2024,Curso Género como herramienta para la igualdad
+- Quinceava edición,Derecho a un medio ambiente sano del Curso Intensivo de Precedentes de la SCJN sobre derechos humanos,Curso para generar Espacios Libres de Violencia, impartido por Escuela Judicial,Seminario en Materia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52584/11
+
+
+## Trayectoria Academica
+
+- Me he desarrollado constantemente en preparación y actualización académica tanto externa, como en la escuela judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque me permitirá servir a México mediante el compromiso de impartir justicia y creando acercamiento con la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión sobre la función jurisdiccional es la que permite a los justiciables tener garantizado el acceso a la justicia y de esa manera contar con la protección de sus derechos fundamentales. Desde mi perspectiva, el rol del juez es ser un garante imparcial y objetivo, que actúe con plena autonomía para aplicar el derecho en cada caso concreto con total respeto al debido proceso legal y acercamiento con el justiciable.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es importante que la impartición de justicia no se centre solo en la resolución del asunto como un conflicto puesto a su conocimiento sino que englobe una serie de consideraciones que puedan ayudar para ejercer el derecho de manera equitativa, transparente, respetuosa de los derechos humanos y accesible a todos, garantizando así la paz social y el bienestar de la sociedad.
+
+
+## Propuestas
+
+- Implementación de programas de formación interna al centro de trabajo en donde se respeten los derechos laborales de los empleados del juzgado. El objetivo es que el titular del juzgado y todos sus colaboradores no solo tengan conocimiento jurídico, sino también en temas de ética, derechos humanos, tecnologías emergentes y habilidades blandas como la empatía y la gestión emocional.
+- Solicitar la cooperación del personal del juzgado para llevar a cabo actividades debidamente estudiadas y programadas, con personal capacitado. Estas actividades incluirían terapias posturales, de respiración y relajación, contribuyendo así a un mejor estado emocional y de salud para todos los empleados.
+- Incentivar a los colaboradores del juzgado federal a que se actualicen constantemente a fin de que con ello nos preparemos para una realidad jurídica vigente.
+

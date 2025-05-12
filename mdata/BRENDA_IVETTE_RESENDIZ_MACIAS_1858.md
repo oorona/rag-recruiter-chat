@@ -1,0 +1,73 @@
+Nombre Candidato: BRENDA IVETTE RESENDIZ MACIAS
+Cargo: Juezas/es de Distrito
+Entidad: AGUASCALIENTES
+Sexo: MUJER
+Telefono: 4492857308
+Correo Electronico: brendaresendiz.juezfederal.ags@gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Capacitación., Control de la Corrupción, Derecho, Derecho Civil, Derecho Procesal Civil, Derecho Procesal Mercantil, Diplomado, Justicia Penal, Licenciatura, Rendición de Cuentas, Universidad Autónoma de Aguascalientes
+Tags Propósito: acceso a la justicia, administración de justicia, bien común, complejidad, confianza institucional, derechos humanos, eficacia, eficiencia, honestidad, igualdad, imparcialidad, independencia, justicia, notificaciones electrónicas, plazos, recurso humano, recursos públicos, resolución, sistema judicial.
+
+
+## Descripción del Candidato 
+
+Brenda Ivette Resendiz Macias es candidata a Jueza de Distrito en Aguascalientes, postulada por el Poder Judicial de la Federación. Cuenta con licenciatura en Derecho por la Universidad Autónoma de Aguascalientes y cédula profesional. Su formación incluye diplomados en Amparo, Derecho Procesal Civil y Mercantil, Rendición de Cuentas y Control de la Corrupción, Derecho Civil, y capacitación en la Implementación del Sistema de Justicia Penal.
+
+Su motivación para buscar el cargo es servir con justicia, imparcialidad y respeto a la ley, garantizando la igualdad y protegiendo los derechos humanos. Su visión se centra en una función jurisdiccional eficiente, eficaz e imparcial, y en la impartición de justicia basada en la honestidad, independencia y respeto a los derechos humanos. Sus propuestas incluyen establecer criterios objetivos para fijar plazos de resolución de casos, fortalecer el recurso humano para el acceso a la justicia, y optimizar recursos públicos mediante el uso de notificaciones electrónicas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19vdiX1rrk/
+- https://www.instagram.com/brendaivetteresendiz?igsh=eTNmM2xyeGc5YXFh
+- https://www.tiktok.com/@brenda.resendiz.c
+
+
+## Cursos
+
+- Diplomado en Amparo,Diplomado Derecho Procesal Civil y Mercantil,Diplomado Rendición de Cuentas y Control de la Corrupción,Capacitación para la Implementación del Sistema de Justicia Penal,Diplomado Derecho Civil
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54832/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho por la Universidad Autónoma de Aguascalientes,
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con justicia, imparcialidad y respeto a la ley, garantizando la igualdad y protegiendo los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional debe enfocarse en impartir la justicia de forma eficiente, eficaz e, indefectiblemente, imparcial, a través de un sistema de gestión administrativa que garantice la accesibilidad y fortalezca la confianza institucional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ejercerse bajo la óptica de los principios y valores que involucran la honestidad, independencia, imparcialidad y respeto a los derechos humanos, en busca de preservar el bien común sobre los intereses particulares.
+
+
+## Propuestas
+
+- Se establezcan y eleven a la categoría de deber jurídico, los criterios objetivos para fijar los plazos para la resolución de cada asunto en particular, fundamentalmente, de acuerdo con el grado de complejidad, tanto formal, como material, puesto que existen procesos, no sólo en el ámbito del juicio de amparo, sino también en los que el o las jueces de Distrito conocen a nivel instancia, que no ameritan la dilación o tardanza en su resolución.
+- Fortalecer el recurso humano para garantizar el acceso a la justicia, con su real administración pronta y expedita.
+- Se optimicen recursos públicos a través de las notificaciones electrónicas, para que una vez enterados los sujetos procesales, se imponga el deber de registrar el medio de comunicación digital correspondiente para su seguimiento, de ese modo el notificador únicamente se constituye en una sola ocasión a convocarlos.
+

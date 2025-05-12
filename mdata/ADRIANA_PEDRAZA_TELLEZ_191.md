@@ -1,0 +1,73 @@
+Nombre Candidato: ADRIANA PEDRAZA TELLEZ
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 7121183353
+Correo Electronico: felmorana@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Autoridades Electorales, Blindaje Electoral, Constitucionalidad, Control de Constitucionalidad, Derecho, Electoral, Impugnación Electoral., Violencia Política de Género
+Tags Propósito: acceso a la justicia, comunidades indígenas, consolidación democrática, democracia, estado de derecho, grupos vulnerables, imparcialidad, independencia., innovación, justicia electoral, lenguaje ciudadano, representación política, resolución de controversias, rigor jurídico, sensibilidad democrática, sistemas normativos internos, transparencia, unidades móviles
+
+
+## Descripción del Candidato 
+
+Adriana Pedraza Tellez es candidata a Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y cédula profesional. Su trayectoria académica se centra en el cumplimiento del deber ser jurídico.
+
+La candidata manifiesta su motivación para el cargo en la posibilidad de aportar una perspectiva renovada, combinando rigor jurídico y sensibilidad democrática. Su visión sobre la función jurisdiccional se enfoca en resolver controversias electorales con diligencia y transparencia, fortaleciendo el estado de derecho y la representación ciudadana. Sus propuestas incluyen la creación de unidades móviles de justicia electoral, el rediseño de sentencias en lenguaje ciudadano y la adaptación de protocolos para comunidades indígenas y grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1B8jPh5hjn/
+- https://www.instagram.com/adriana_pedraza17?igsh=NzZ0cjVscWVudHl2&utm_source=qr
+- https://www.tiktok.com/@adriana.pedraza.t?_t=ZM-8v0p0f9vfE7&_r=1
+
+
+## Cursos
+
+- Sistema de medios de impugnación en materia electoral,Blindaje electoral,Introducción a las autoridades electorales,Prevención y mecanismos de atención de la violencia política contra las mujeres en razón de género (VPcMRG),Control de constitucionalidad y convencionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/17639/9
+
+
+## Trayectoria Academica
+
+- Cursé la Licenciatura en Derecho, buscando el cumplimiento del deber ser
+
+
+## Motivo para buscar el Cargo Publico
+
+Puedo aportar una perspectiva renovada, basada tanto en el rigor jurídico como en la sensibilidad democrática
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Resolver controversias electorales con máxima diligencia y transparencia, garantizando que cada decisión jurisdiccional fortalezca el estado de derecho autentico, asi como la representación política y de los derechos  de la ciudadanía, contribuyendo así a la consolidación democrática de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia electoral, debiera ser el pilar fundamental de la democracia mexicana, reconocida por su independencia, imparcialidad y capacidad de innovación, generando confianza ciudadana que se adapte a los desafíos democráticos del siglo XXI.
+
+
+## Propuestas
+
+- CREACIÓN de unidades móviles de justicia electoral Implementar equipos itinerantes que acerquen servicios jurisdiccionales a comunidades de difícil acceso, especialmente en zonas rurales e indígenas.
+- REDISEÑO de sentencias con lenguaje ciudadano Implementar un modelo de comunicación judicial que haga comprensibles las resoluciones para personas sin formación jurídica especializada.
+- Protocolos especializados para comunidades indígenas y grupos vulnerables Adaptar los procedimientos jurisdiccionales al contexto cultural de pueblos originarios, así como, asegurar que personas con discapacidad, adultos mayores y otros grupos vulnerables cuenten con medidas específicas para acceder a la justicia electoral respetando sus sistemas normativos internos.
+

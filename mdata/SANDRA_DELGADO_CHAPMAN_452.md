@@ -1,0 +1,74 @@
+Nombre Candidato: SANDRA DELGADO CHAPMAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5541402325
+Correo Electronico: sandrachapman77@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Doctorado, Educación, Licenciatura, Maestría, TEPJF, Trayectoria académica., UNAM
+Tags Propósito: Abogados, Accesibilidad, Cercanía, Eficacia, Judicatura, Justicia, Realidad, Sentencias, Transparencia.
+
+
+## Descripción del Candidato 
+
+SANDRA DELGADO CHAPMAN es candidata a Magistratura de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho por la EJE del TEPJF y actualmente cursa el Doctorado, siendo Licenciada en Derecho por la UNAM.
+
+Su motivación para buscar el cargo es integrar la judicatura con abogados conocedores de la realidad, buscando una justicia cercana, pronta y eficaz. Sus propuestas principales incluyen la emisión de sentencias de lectura fácil y accesible, así como la transparencia del trabajo diario de los juzgadores.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/SDCHAPMAN77
+- https://x.com/schapman77?s=11&t=1r_6kHnDgcys9xbOsh4Shw
+- https://www.instagram.com/abogada_chapman/profilecard/?igsh=cWg0bHlsbWNuYnR3
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52688/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en derecho por la UNAM; Maestra en Derecho por la EJE del TEPJF, actualmente estudiando el doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+La Judicatura debe estar integrada no solo por estudiosos del derecho, sino por abogados que conozcamos la realidad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser cercana a la gente, pronta y eficaz
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser cercana a la gente, pronta y eficaz
+
+
+## Propuestas
+
+- Sentencias de lectura fácil y accesible
+- transparentar el quehacer diario de los juzgadores
+- No proporcionó
+

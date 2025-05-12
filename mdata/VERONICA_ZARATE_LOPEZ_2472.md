@@ -1,0 +1,75 @@
+Nombre Candidato: VERONICA ZARATE LOPEZ
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: MUJER
+Telefono: 7441961976
+Correo Electronico: licveronicazarate@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Adolescentes, Defensa Penal, Derecho, Diploma, Educación Superior, Ejecución Penal, Justicia Penal, Litigación Penal, Maestría, Mención Honorífica., Sistema Penal Acusatorio, UNAM
+Tags Propósito: Acceso a la justicia, Capacitación judicial, Equidad, Estado de Derecho, Función jurisdiccional, Independencia judicial, Justicia expedita., Justicia oportuna, Pena proporcional, Perspectiva de género, Perspectiva intercultural, Poder Judicial, Proceso penal, Pueblos indígenas, Servidores públicos, Sistema penal acusatorio, Soluciones alternativas, Transparencia
+
+
+## Descripción del Candidato 
+
+Verónica Zarate López es candidata a Jueza/es de Distrito en Guerrero, postulándose para el Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho de la Universidad Nacional Autónoma de México y más de 20 años de experiencia en el sistema penal.
+
+Su motivación para buscar el cargo se basa en su conocimiento en materia penal y el sistema acusatorio. Su visión para la función jurisdiccional y la impartición de justicia se centra en un Poder Judicial independiente, profesional y especializado, que garantice el acceso oportuno y expedito a la justicia para todos los mexicanos. Sus propuestas incluyen la capacitación constante de los operadores del sistema judicial, el fomento de las soluciones alternativas en los procesos penales y la aplicación efectiva de perspectivas de género e interculturalidad en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BLEDiE3uA/?mibextid=wwXIfr
+- https://www.instagram.com/verozarate__?igsh=MW03OGFuamJoam9meg==
+- https://www.facebook.com/share/1A1Q4AsDeP/?mibextid=wwXIfr
+
+
+## Cursos
+
+- Maestría en Derecho, Universidad Nacional Autónoma de México, Campus Aragón,Diplomado en Litigación en el Proceso Penal
+- Universidad Anáhuac México Norte y Universidad Alberto Hurtado Chile,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional,Diplomado Formación en torno del Nuevo Sistema de Justicia Penal Federal,Cursos: Defensa Especializada en Ejecución Penal, Justicia Penal para Adolescentes y Actualización en Defensa Penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54738/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, titulada con Mención Honorifica y Maestría en Derecho por la UNAM (Campus Aragón )
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con conocimiento en la materia penal y el sistema penal acusatorio, experiencia de mas de 20 años de servicio
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Aspiro a que el Poder Judicial pueda seguir siendo independiente, que sus integrantes sean servidores públicos profesionales y con especialización, ello con el fin de garantizar a todos los Mexicanos el acceso a la justicia de manera oportuna y expedita, en el marco constitucional de un Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Aspiro a que el Poder Judicial Federal pueda garantizar a todos los Mexicanos el acceso a la justicia de manera oportuna, sirviendo así a la sociedad, con equidad y transparencia.
+
+
+## Propuestas
+
+- Para mejorar la función jurisdiccional en México, se pueden tomar acciones en varios ámbitos, una de las principales será la capacitación constante de los Jueces, Magistrados y todo el personal adscrito a los órganos jurisdiccionales, ya que ello permitirá desarrollar habilidades y competencias para la función jurisdiccional, gestión del despacho y así garantizar a todos los Mexicanos el acceso a la justicia de manera oportuna y expedita.
+- Fomentar las solución alternas del procedimiento para que un proceso penal pueda concluir en el menor tiempo posible , y velar por que la fiscalía de respuesta a las peticiones de procedimiento abreviado en un plazo breve, además que la propuesta de penas sea en base a las circunstancias de la persona y el hecho atribuido, no tomando en consideración aspectos generales y subjetivos como actualmente se hace.
+- Que todas las personas tengan acceso a la justicia en igualdad de condiciones, que los juzgadores en verdad tomen en consideración los Protocolos de actuación para quienes imparten justicia, especialmente el de juzgar con Perspectiva de Género y el de perspectiva intercultural, personas, pueblos y comunidades indígenas, ya que cuando en un proceso penal están involucradas mujeres o indígenas en realidad no se toma en consideración sus circunstancias particulares.
+

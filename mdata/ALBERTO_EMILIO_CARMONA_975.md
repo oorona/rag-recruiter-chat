@@ -1,0 +1,77 @@
+Nombre Candidato: ALBERTO EMILIO CARMONA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 5521296480
+Correo Electronico: alemca71@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Certificación, Derecho Procesal Penal, Derecho de Amparo, Juicio de Amparo, Juicios Orales, Justicia Penal Acusatoria, Maestría, Magistrados, Perspectiva Constitucional, Procedimiento Penal, Resolución de Decisiones Judiciales, Sistema Penal Acusatorio, UNAM.
+Tags Propósito: Acceso a la Justicia, Capacitación Judicial, Confianza Ciudadana, Códigos de Conducta, Derechos Fundamentales, Derechos Humanos, Desarrollo Democrático, Eficiencia, Experiencia Jurisdiccional, Foros de Diálogo, Imparcialidad, Inclusión, Integridad, Justicia Local., Justicia Moderna, Participación Ciudadana, Tejido Social, Tiempos Procesales, Transparencia, Ética Judicial
+
+
+## Descripción del Candidato 
+
+Alberto Emilio Carmona es candidato a Magistratura de Tribunales Colegiados de Circuito en Guerrero, postulando en funciones. Cuenta con Maestría en Derecho Procesal Penal y una trayectoria académica enfocada en el sistema penal acusatorio. Sus motivaciones para buscar el cargo se basan en su experiencia en la función jurisdiccional y su deseo de orientar a nuevos elementos.
+
+Su visión para la función jurisdiccional es la de un sistema moderno, transparente e inclusivo que fortalezca la confianza en las instituciones, priorizando la imparcialidad, la protección de derechos fundamentales y la eficiencia. Sus propuestas incluyen regular los tiempos procesales, fomentar la participación ciudadana mediante foros de diálogo y desarrollar programas de capacitación en ética para jueces y personal judicial.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574544385246
+- https://x.com/albertoemilioc?s=21
+- https://www.instagram.com/albertoemiliocarmona?igsh=MWF5MzdsNDVuazFqag==
+- https://www.tiktok.com/@alberto.emilio.ca7?_t=ZM-8uwTk7MqMWD&_r=1
+- https://www.linkedin.com/in/alberto-emilio-carmona-3324b4357?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- PROGRAMA DE CERT
+- INT
+- EN TECNICAS Y DESTREZAS PARA LA RESOLUCIÓN ESTRATEGICA DE DECISIONES JUDICIALES BAJO EL CDC,PROGRAMA DE ACTUALIZACIÓN EN EL SISTEMA PENAL ACUSATORIO, DIRIGIDO A MAGISTRADOS DE CIRCUITO ADSCRITOS A TCC,DIPLOMADO EN DERECHO DE AMPARO INDIRECTO,DIPLOMADO SOBRE EL NUEVO SISTEMA DE JUSTICIA PENAL ACUSATORIO EN MÉXICO, DESDE LA PERSPECTIVA CONSTITUCIONAL,DIPLOMADO DEL NUEVO JUICIO DE AMPARO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53129/10
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Procesal Penal, Procedimiento Penal Acusatorio, Juicios Orales en FES ARAGÓN, UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+TENGO LA EXPERIENCIA NECESARIA EN LA FUNCIÓN JURISDICCIONAL PARA SEGUIR E INCLUSO ORIENTAR A LOS NUEVOS ELEMENTOS
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+TRABAJAR PARA UNA FUNCION JURISDDICIONAL QUE SE ORIENTE HACIA UN SISTEMA DE JUSTICIA MODERNO, TRANPARENTE E INCLUSIVO, EN EL QUE LA IMPARCIALIDAD, LA PROTECCIÓN DE DERECHOS FUNDAMENTALES Y LA EFICIENCIA SEAN LOS PILARES QUE FORTALEZCAN LA CONFIANZA DE LA SOCIEDAD EN SUS INSTITUCIONES; UNA VISIÓN QUE NO BUSCA SOLAMENTE RESOLVER CONFLICTOS SINO TAMBIEN CONTRIBUIR AL FORTALECIMIENTO DEL TEJIDO SOCIAL Y DESARROLLO DEMOCRATICO DEL PAIS.
+
+
+## Vision sobre la Imparticion de Justicia
+
+ES LOGRAR UN SISTEMA QUE RESUELVA CONFLICTOS DE MANERA EFICIENTE PERO QUE TAMBIEN PROTEGA Y PROMUEVA CONSTANTEMENTE LOS DERECHOS HUMANOS, FOMENTANDO DURANTE SU EJERCICIO ELEMENTOS COMO LA TRANSPARENCIA, Y ADEMAS, QUE SE ADAPTE A LAS NECESIDADES DEL ENTORNO CONTEMPORANEO. SE TRATA DE UN COMPROMISO SOCIAL, DONDE LA JUSTICIA SE CONVIERTE EN EL PILAR QUE SOSTIENE LA SANA CONVIVENCIA Y EL DESARROLLO DE UNA SOCIEDAD DEMOCRATICA.
+
+
+## Propuestas
+
+- REGULAR LA FUNCIÓN JURISDICCIONAL A FIN DE RESPETAR LOS TIEMPOS PROCESALES DE LA MANO CON GENERAR ESPACIOS DE CONSULTA QUE LLEGUE A LOS LUGARES MAS LEJANOS DE GUERRERO, PARA LAS PERSONAS CONOZCAN DEL MOVIMIENTO DE LOS ASUNTOS.
+- FOMENTO DE LA PARTICIPACIÓN CIUDADANA, CREANDO FOROS DE DIALOGO Y CONSULTAS PUBLICAS QIE PERMITAN A LA COMUNIDAD APORTAR IDEAS Y EXPRESAR INQUIETUDES RESPECTO DE LA ADMINISTRACIÓN DE JUSTICIA, CON EL FIN DE INVOLUCRAR A LA SOCIEDAD EN LA TRANSFORMACIÓN DE UN SISTEMA JUDICIAL MAS SENSIBLE A LAS NECESIDADES CIUDADANAS Y ASÍ PROMOVER UNA MAYOR INTERACCIÓNENTRE EL PJF Y LA COMUNIDAD
+- DESARROLLAR PROGRAMAS DE CAPACITACIÓN CONTINUA DE ETICA Y VALORES PARA JUECES Y PERSONAL JUDICIAL, ASÍ COMO LA IMPLEMENTACIÓN DE CÓDIGOS DE CONDUCTA MAS ESTRICTOS, CON EL OBJETIVO DE ASEGURAR QUE LA LABOR JUDICIAL SE REALICE CON ALTOS ESTANDARES DE INTEGRIDAD.
+

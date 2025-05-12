@@ -1,0 +1,75 @@
+Nombre Candidato: MANUEL PINEDA TELLO
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 3118775054
+Correo Electronico: licdo.manuelpineda@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Conferencias, Derecho Civil, Derecho Penal, Escuela Comercial Administrativa las Americas, Imputados, Justicia Restaurativa, Ley Nacional de Ejecución Penal, Licenciatura en Derecho, Medidas No Privativas de la Libertad, Víctimas
+Tags Propósito: burocracia, comunidad, confianza, corrupción, cumplimiento de la ley, derechos, equidad, estado de derecho, justicia, oportunidad, proceso judicial, reinsertación social, reparación del daño, responsabilidad., seguridad, transparencia, víctimas
+
+
+## Descripción del Candidato 
+
+MANUEL PINEDA TELLO es candidato a Juez/a de Distrito en NAYARIT, postulándose a través del Poder Legislativo Federal. Licenciado en Derecho por la Escuela Comercial Administrativa las Americas S; C, cuenta con experiencia académica como maestro titular de Derecho Civil y Penal. Su motivación para buscar el cargo público se centra en promover un ambiente más justo y seguro para la comunidad.
+
+Su visión sobre la función jurisdiccional se orienta a garantizar medidas que promuevan la reinserción social de los procesados, enfocándose en el reconocimiento del daño causado a las víctimas y la comunidad. Sus propuestas incluyen la emisión oportuna de resoluciones y sentencias, un seguimiento real a las víctimas, y la garantía de la reparación del daño y la seguridad vulnerada, involucrando diversas instituciones para lograrlo.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/thelasthp
+- https://www.instagram.com/invites/contact/?igsh=1bcvlmyeixz8t&utm_content=5pwjgs
+
+
+## Cursos
+
+- maestro titular de la materia de DERECHO CIVIL Y DERECHO PENAL de la licenciatura de derecho
+- ,conferencia presentada sobre los que entiendan las necesidades de las Victimas, Imputados y la comunidad,conferencia presentada sobre la Ley Nacional de Ejecución Penal
+- ,conferencia presentada sobre Medidas No Privativas de la Libertad,conferencia presentada sobre Justicia Restaurativa
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54519/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho Escuela Comercial Administrativa las Americas S
+- C
+
+
+## Motivo para buscar el Cargo Publico
+
+no solo es ostentar el cargo, que esta comunidad y la sociedad entera viva un ambiente más justo y seguro y no vulnerado
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Durante el desarrollo de los procesos, garantizar medidas que se ajusten a las personas procesadas, a fin de que estos se vean involucrados a mejorar, empleando mecanismos para una debida reinserción ante la sociedad, dichos mecanismos deben de tener la finalidad de garantizar el compromiso de los mismos, no solo reconociendo que el daño causado a las víctimas y probablemente a la comunidad, empleando este esquema de lente alternativo tratando los daños y las causas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+dar el debido cumplimiento de las leyes y la constitución, evitando con ello los vicios de antaño, (corrupción, nepotismo, burocracia, etc.) previendo un estado de confort que signen a los involucrados dentro del proceso, y esto sea la causa del cumulo y retraso en los procesos, dar el debido seguimiento al conjunto de leyes que garanticen un acertado acceso a la justicia, manteniendo el correcto el estado de derecho, Resolviendo conflictos jurídicos de manera oportuna, equitativa y transparente
+
+
+## Propuestas
+
+- Las resoluciones y/o sentencias emitidas sean oportunas a fin de ser entregadas a las partes involucradas dentro del proceso, esto con el objeto de dar inmediatez a las actuaciones dictadas.
+- Que las resoluciones sean justan no solo para los imputados si no también dar un seguimiento real a las victimas u ofendidos los cuales son los que se quedan padeciendo las secuelas mal causado.
+- Terminada una resolución no solo garantizar la reparación del daño sino garantizar la seguridad vulnerada de las víctimas, familia y la comunidad, esto a fin de resarcir un poco el daño causado, involucrando a los diversas instituciones para coadyuvar y garantizar que las personas puedan recuperar un poco de esa confianza perdida.
+

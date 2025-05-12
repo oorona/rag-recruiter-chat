@@ -1,0 +1,75 @@
+Nombre Candidato: KALEB HAIDAR YEMHA GUTIERREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5565362673
+Correo Electronico: kalebyemhaoficial@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogado, Derecho., Escuela Libre de Derecho, Maestría, Titulación, ULA
+Tags Propósito: Acceso a la Justicia, Cero Tolerancia, Corrupción, Democracia, Derechos Humanos, Desfavorecidos, Dignidad, Escucha Ciudadana, Humanismo, Igualdad., Impunidad, Juicio de Amparo, Justicia, Libertad, Nepotismo, Puertas Abiertas, Transformación, Transparencia, Tribunal Cercano, Víctimas
+
+
+## Descripción del Candidato 
+
+Kaleb Haidar Yemha Gutierrez es candidato a Magistratura de los Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con estudios de maestría en derecho concluidos y es abogado por la Escuela Libre de Derecho. 
+
+Su motivación para buscar el cargo público es acercar la justicia a la población mexicana, combatiendo la corrupción, la impunidad y el nepotismo. Propone una función jurisdiccional transformadora que considere el impacto de las sentencias en la vida de las personas, priorizando el acceso a la justicia para los más desfavorecidos. Sus principales propuestas incluyen una política de cero corrupción, una justicia humanista centrada en las necesidades de las personas y un modelo de justicia de puertas abiertas que fomente la cercanía con la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/kaleb.yemha?mibextid=wwXIfr
+- https://www.instagram.com/kalebyemhaoficial/
+- https://www.youtube.com/@KalebYemhaOficial
+- https://www.tiktok.com/@kalebyemhaoficial
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55394/10
+
+
+## Trayectoria Academica
+
+- Abogado por la Escuela Libre de Derecho
+- Con estudios de maestría en derecho por la ULA, en proceso de titulación
+
+
+## Motivo para buscar el Cargo Publico
+
+Para acercar la justicia al pueblo de México, acabar con la corrupción, la impunidad y el nepotismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser transformadora. No debe ser indiferente a las víctimas sin justicia, inocentes en las cárceles y delincuentes en las calles. Las personas magistradas deben dictar sentencias no solo con base en la ley, sino tomando en cuenta la vida de las personas, su familia y las necesidades del pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un derecho para todas y todos pero principalmente para los que menos tienen. No debe ser un privilegio reservado a una minoría. Debe acercarse al pueblo de México combatiendo la corrupción, la impunidad y el nepotismo, para construir un país más justo, humanista y democrático.
+
+
+## Propuestas
+
+- Política de cero corrupción. Desde el tribunal lucharé contra los vicios que alejan la justicia del pueblo. Habrá cero tolerancia a la corrupción, al influyentismo y al nepotismo. El juicio de amparo debe servir a quienes más lo necesitan, no solo a los que pueden pagar abogados caros. Nada de trato preferencial para los de arriba, justicia para todos.
+- Justicia con humanismo. Voy a atender las verdaderas necesidades de la gente. Basta de una justicia que solo vea números o expedientes y no la vida y dignidad de las personas. La ley debe aplicarse con humanismo, con respeto a la dignidad de las personas y con compromiso hacia los más desfavorecidos. Mi compromiso es acercar al tribunal a la gente, llevar la justicia a los barrios y a las comunidades.
+- Justicia de puertas abiertas. Como magistrado voy a atender personalmente a todas las personas que busquen ser escuchadas. Habrá un espacio permanente de puertas abiertas para escuchar al pueblo, a las víctimas, a los familiares de personas privadas de la libertad y a quienes buscan orientación o apoyo. No creo en personas juzgadoras encerradas en oficinas. La justicia no puede seguir siendo inalcanzable para el pueblo de México.
+

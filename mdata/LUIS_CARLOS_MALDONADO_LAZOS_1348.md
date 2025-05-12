@@ -1,0 +1,79 @@
+Nombre Candidato: LUIS CARLOS MALDONADO LAZOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: vota@maldonadolazos.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho, Derecho Procesal, Derecho de Amparo, Doctorado, Inglés Jurídico., Justicia Constitucional, Licenciatura, Maestría, Tec de Monterrey, UANL, UNAM, Universidad de Alicante, Università degli Studi di Palermo, Università di Pisa
+Tags Propósito: Acceso a la justicia, Agilización de juicios, Amparo, Apertura judicial, Constitución, Derechos humanos, Expediente electrónico, Innovación tecnológica, Juicios, Justicia, Magistrado, Paz social, Resolución de controversias., Sentencias claras, Servicio ciudadano, Transparencia
+
+
+## Descripción del Candidato 
+
+LUIS CARLOS MALDONADO LAZOS es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde Nuevo León ante el Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho Procesal, además de una Maestría en Derecho de Amparo y Licenciatura en Derecho por el Tec de Monterrey. Su trayectoria académica incluye cursos de especialización en argumentación jurídica y justicia constitucional en universidades de España e Italia.
+
+El candidato motiva su postulación por el deseo de servir al país desde la esfera pública, después de una carrera en el ámbito privado. Su visión sobre la función jurisdiccional se centra en la necesidad de agilizar los juicios y asegurar que se resuelvan las controversias de forma efectiva. Sus propuestas incluyen la emisión de sentencias concisas y comprensibles, la apertura de la justicia a la ciudadanía, y el impulso del expediente electrónico y el acceso a la justicia a través de nuevas tecnologías.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Vota x Luis Maldonado Lazos
+- https://www.instagram.com/votaxmaldonadolazos
+- https://www.tiktok.com/votaxmaldonadolazos
+
+
+## Cursos
+
+- Máster en Argumentación Jurídica
+- Universidad de Alicante, España y Università degli Studi di Palermo, Italia,Curso de Alta Formación en Justicia Constitucional
+- Università di Pisa, Italia,Curso  de la  Instituto de Investigaciones Filosóficas, UNAM,Curso de Inglés Jurídico
+- Facultad Central de Derecho
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54144/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Tec de Monterrey
+- Maestría en Derecho de Amparo y Doctorado en Derecho Procesal
+- UANL
+
+
+## Motivo para buscar el Cargo Publico
+
+Toda mi vida profesional la he desarrollado en el ámbito privado. Ahora, quiero servir a mi País desde la esfera pública
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es fundamental para la vida institucional de México. Contribuye al fortalecimiento de la paz social y representa un anhelo de todos los mexicanos. Recordemos que, justicia tardía, es injusticia. Un México sin justicia no puede seguir! Por ello, es necesario agilizar los juicios y que éstos realmente resuelvan las controversias y den respuesta a los ciudadanos
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia en México se ha alejado de la sociedad. Con tecnicismos y retardos injustificados, la ciudadanía percibe que el principal papel del Estado, que es impartir justicia entre sus habitantes, no está siendo cumplido. Por ello, quiero ser TU Magistrado, para agilizar los juicios y que éstos sean resueltos conforme a la Constitución y con respeto a los derechos humanos.
+
+
+## Propuestas
+
+- AGILIZAR LOS JUICIOS Y RESOLVER LO PLANTEADO. La ciudadanía se queja de que los juicios son muy tardados y además, no resuelven verdaderamente el problema planteado. Por ello, como Magistrado, planteo las siguientes medidas para atender dicho problema. SENTENCIAS CONCRETAS: Nunca más una sentencia kilométrica, sino que éstas sean cortas y resuelvan el problema. SENTENCIAS ENTENDIBLES: Elaboraré sentencias que sean de fácil compresión para todos los ciudadanos.
+- UN MAGISTRADO DE PUERTAS ABIERTAS. La justicia en México se percibe alejada de la sociedad, por ello, quiero ser un Magistrado que escuche a todas las personas que tengan un problema jurídico que necesite ser resuelto. Además, impulsar la cultura de la apertura judicial, a fin de que, todo juez sea un juez al servicio de la ciudadanía y no, de unos cuantos.
+- IMPULSAR EL USO DEL EXPEDIENTE ELECTRÓNICO. Dicha herramienta, si bien existe, debe ser potencializada a fin de hacer más expedita la impartición de justicia en beneficio de la sociedad. Un tribunal que facilite el uso del expediente electrónico, será un tribunal más apto para servir al ciudadano. De igual manera, propondría al Congreso de la Unión que se implemente una aplicación para que desde un celular se pueda pedir amparo y promover juicios, a fin de hacer más accesible la justicia.
+

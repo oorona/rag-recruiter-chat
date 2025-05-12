@@ -1,0 +1,82 @@
+Nombre Candidato: RUBEN PONCE CALDERON
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5545323006
+Correo Electronico: poncecalderonruben@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cooperación Judicial, Cooperación Procesal Internacional, Derecho, Doctrina Constitucional, Familia, Formación Judicial, Juicio Oral, Licenciatura en Derecho, Mención Honorífica., Perspectiva de Género, Promedio 9.65, Protección de la Niñez, UNAM
+Tags Propósito: Capacitación, Confianza, Constitución, Debido Proceso, Derecho, Derecho Familiar, Diligencia, Eficiencia, Especialización, Honradez, Imparcialidad, Justicia, Lealtad, Plazos Legales, Profesionalismo, Resolución de Juicios, Responsabilidad Social., Sensibilización, Servidor Público, Tramitación
+
+
+## Descripción del Candidato 
+
+RUBEN PONCE CALDERON es candidato a Juez/a de Distrito en la Ciudad de México, postulado por el Poder Ejecutivo Federal. Licenciado en Derecho por la FES Aragón de la UNAM, con promedio de 9.65 y mención honorífica, cuenta con diversos cursos de especialización en derecho familiar, juicio oral, cooperación judicial y perspectiva de género, incluyendo formación en el CJF y la SRE.
+
+Su motivación para el cargo se basa en su experiencia y conocimientos. Propone fortalecer la función jurisdiccional como un servicio público, erradicar el rezago en la tramitación de juicios a través del trabajo en equipo y la capacitación continua, y especializar la atención de asuntos familiares, reconociendo la importancia de una perspectiva sensible y completa en estos casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574533481914
+- https://x.com/Ruben_PonceC
+- https://www.instagram.com/ruben.ponc.c/
+- https://www.tiktok.com/@rubn.ponc
+
+
+## Cursos
+
+- DIPLOMADO NUEVOS DESARROLLOS SOBRE DERECHO Y FAMILIA, 2ª EDICIÓN
+- Escuela Federal de Formación Judicial del CJF
+- ,Curso Generalidades del juicio oral, Poder Judicial de la Ciudad de México, Instituto de Estudios Judiciales
+- ,Participante en Reuniones de la Red Mexicana de Cooperación Judicial para la Protección de la Niñez, CONATRIB
+- ,Taller de actualización sobre doctrina constitucional: Juzgar con perspectiva de género, Centro Estudios Const
+- SCJN
+- ,Talleres de Cooperación Procesal Internacional, organizados por la Secretaría de Relaciones Exteriores y la CONATRIB
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54663/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, egresado de la FES Aragón de la UNAM, Promedio general: 9
+- 65
+- Titulado con Mención Honorífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy joven pero tengo los conocimientos y experiencia necesaria que me permitirán estar a la altura de esta encomienda.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+A diario tengo presente que cuando protesté para obtener mi título de Licenciado en Derecho, asumí la responsabilidad de desempeñar la importante función social de consejero y director de quienes no poseen la ciencia del Derecho; también, hice el compromiso de emplear mis conocimientos solo en servicio de las causas justas, y recuerdo en todo momento que quienes ponen en mis manos sus derechos, familia, patrimonio o su honra, confían no solo en mi saber, sino también en mi lealtad y honradez.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Hoy más que nunca, tanto en el ámbito público como privado, diversas problemáticas aquejan a nuestra sociedad; por ello, sé que es obligatoria la constante actualización y cumplir realmente con los principios consagrados en la Constitución, esto es, que toda controversia se resuelva de forma independiente, en los plazos y términos que fijan las leyes, de manera pronta, expedita, completa e imparcial, y privilegiando en todo tiempo la solución del conflicto sobre los formalismos procedimentales.
+
+
+## Propuestas
+
+- La impartición de justicia también es parte del servicio público; por ello, debe recodarse constantemente al personal de las diversas áreas jurisdiccionales que, sin importar rangos, somos servidores públicos y nos debemos a la sociedad de la que formamos parte, pues esa sensibilización hará que cada uno realice su trabajo con mayor esmero, diligencia y profesionalismo, lo que traerá como consecuencia una labor judicial con consciencia y sentido social.
+- Es urgente erradicar el rezago en la tramitación y resolución de los juicios, y ello puede lograrse mediante el trabajo en conjunto y la constante comunicación y capacitación de todo el personal jurisdiccional, lo cual permita actuar en todo momento en estricto apego y observancia de los plazos legales, para con ello garantizar el derecho al debido proceso de todas y todos los justiciables y revertir poco a poco la gran carga de trabajo que impera en nuestro sistema de impartición de justicia.
+- A nivel federal no existen juzgados especializados en materia familiar, por lo que se requiere de constante capacitación y especialización en esa área del Derecho, ya que la familia es la base de la sociedad y no puede juzgarse un asunto de esa índole con una perspectiva meramente civil, sino que se requiere de una mayor sensibilización. Así, estimo necesario la impartición de cursos especializados en derecho de familia que sean obligatorios para las personas juzgadoras en materia civil federal.
+

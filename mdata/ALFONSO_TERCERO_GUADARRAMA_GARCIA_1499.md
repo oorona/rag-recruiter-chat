@@ -1,0 +1,82 @@
+Nombre Candidato: ALFONSO TERCERO GUADARRAMA GARCIA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: QUERETARO
+Sexo: HOMBRE
+Telefono: 4424877211
+Correo Electronico: d.legal.guadarrama@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho Tributario, Derechos Humanos, Doctorado en Derecho, Especialista, Juicio de Amparo, Justicia Ambiental, Licenciatura en Derecho, Maestría en Amparo, Poder Judicial Federal, Suprema Corte de Justicia de la Nación, UAQ, Universidad Anáhuac, Universidad Durango., Universidad Panamericana
+Tags Propósito: Acoso Laboral, Adultos Mayores, Confianza, Corrupción, Derechos Humanos, Dignidad, Discapacidad, Eficiencia, Empatía, Humanidad, Igualdad de Género, Imparcialidad, Impunidad, Institucionalidad, Justicia, Ley, Nepotismo, Niñez, Profesionalismo, Pueblos Indígenas, Querétaro, Rendición de Cuentas, Respeto, Servidores Públicos, Sociedad., Transparencia
+
+
+## Descripción del Candidato 
+
+ALFONSO TERCEO GUADARRAMA GARCÍA es candidato al Poder Legislativo Federal, proveniente de las Magistraturas de Tribunales Colegiados de Circuito en Querétaro. Cuenta con formación académica de nivel doctorado en Derecho, complementada por diversos diplomados en áreas como Juicio de Amparo, Derechos Humanos, Derecho Tributario y Argumentación Jurídica.
+
+Su motivación para buscar el cargo público es servir a la ciudadanía de Querétaro, aplicando su conocimiento y experiencia legal. Su visión se centra en una función jurisdiccional cercana a la gente, expedita e independiente, con respeto a la diversidad y los derechos humanos. Sus principales propuestas incluyen la eliminación de la corrupción e impunidad dentro del Poder Judicial, el respeto a los derechos laborales y la dignidad del personal de los tribunales, y el establecimiento de una relación más cercana y empática entre los juzgadores y la sociedad queretana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16Qx4RHEoi/?mibextid=wwXlfr
+- https://x.com/alfonsoguadarra?s=21
+- https://www.instagram.com/alfonsoguadarramamx
+- https://youtube.com/@alfonsoguadarramamx?si=D6nv7Xv43fplVAZI
+- https://www.tiktok.com/@alfonso.guadarram4?_t=ZM-8uPFL6XyXQ5&_r=1
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, Casa de la Cultura Jurídica de la Suprema Corte de Justicia de la Nación, en Querétaro
+- ,Diplomado en Acceso a la Justicia en Derechos Humanos, Casa Cultura Jurídica de la Suprema Corte, Celaya, Guanajuato
+- ,Diplomado en Derecho Tributario, Universidad Panamericana, Facultad de Derecho, Ciudad de México
+- ,Diplomado en Argumentación Jurídica, Universidad Anáhuac, Facultad de Derecho, Ciudad de México
+- ,Seminario en Justicia Ambiental, Instituto de la Judicatura Federal, Poder Judicial Federal, Ciudad de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53586/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, UAQ
+- Especialista, Poder Judicial Federal
+- Maestro en Amparo y Doctor en Derecho, Univ
+- Durango
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir a las y los queretanos, con conocimiento y experiencia en la interpretación y aplicación de la ley.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser cercana a la gente, pronta y expedita. Independiente, profesional, imparcial, humana, sensible y empática. Con perspectiva de género, respeto a los derechos de indígenas, campesinos, niñas, niños y adolescentes, personas con capacidades diferentes, así como personas mayores. Las y los juzgadores, no deben apartarse del pueblo, no deben ser indiferentes, se deben a él y deben rendirse buenas cuentas. La función debe girar en torno a la interpretación de la ley en favor de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Tenemos que regresar la confianza al Poder Judicial de la Federación. Aplicar el derecho con respeto a los derechos de cada persona y decidir lo justo. Nuestro pueblo pide y exige justicia. Estamos cansados de la corrupción en sus diversas formas. Dilación es injusticia. Falta de estudio en un expediente es injusticia. Ausencia del juzgador es injusticia. Negligencia es injusticia. El error judicial es injusticia. Parcialidad es injusticia.
+
+
+## Propuestas
+
+- Eliminar la corrupción y la impunidad. Se deben denunciar esos actos y castigar a los responsables, sin importar sus nombres y apellidos, sin importar sus cargos.
+- Se debe tratar con respeto al personal que trabaja en los tribunales, a sus derechos laborales, así como su dignidad humana. Una persona juzgadora debe tener siempre presente que la labor de cada servidor público es fundamental, sin importar el cargo. Debe tenerse visión institucional y eliminarse prácticas como considerar a una persona miembro o integrante de otro equipo de trabajo. Debe eliminarse el acoso laboral, sexual y el nepotismo.
+- Las personas juzgadoras federales, además de conocimiento jurídico, deben estar cercanos a la sociedad. Nuestro Querétaro requiere que se conduzcan con sensibilidad, humildad, empáticos, humanos.
+

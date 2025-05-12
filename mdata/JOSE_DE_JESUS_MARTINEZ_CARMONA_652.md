@@ -1,0 +1,73 @@
+Nombre Candidato: JOSE DE JESUS MARTINEZ CARMONA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5537038821
+Correo Electronico: subproceso.baipas7e@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Capacitación, Congreso Académico., Derecho Administrativo, Derecho Constitucional, Derecho Fiscal, Justicia Administrativa, Sistema Nacional Anticorrupción, UNAM
+Tags Propósito: Abuso de poder., Cercanía a la gente, Compromiso, Conocimiento aplicado, Eficiencia judicial, Equidad en el trabajo, Función jurisdiccional, Honestidad judicial, Justicia accesible, Reparto equitativo, Sentencias claras, Servidores públicos, Simplificación legal, Transparencia judicial, Vocación
+
+
+## Descripción del Candidato 
+
+José de Jesús Martínez Carmona es candidato a Magistrado de Tribunales Colegiados de Circuito por la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional por la Universidad Nacional Autónoma de México y especialización en Derecho Fiscal y Administrativo, habiendo participado en diversos congresos y programas de capacitación, incluyendo el Sistema Nacional Anticorrupción.
+
+Su motivación para buscar el cargo público se centra en democratizar el acceso al derecho y la justicia. Su visión de la función jurisdiccional la describe como una vocación comprometida con el impacto positivo en la vida de las personas, más allá de la mera aplicación de la ley.  Propone un enfoque en la atención efectiva de los casos, un reparto equitativo del trabajo en los juzgados y la redacción de resoluciones accesibles para todas las partes involucradas, no solo para los abogados.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/josedejesus.carmona.jj/
+- https://www.tiktok.com/@josedejesus.carmona.jj
+
+
+## Cursos
+
+- Especialización en Derecho Fiscal y Administrativo
+- ,Congreso de Actualización en Derecho Administrativo para Docentes de la UNAM,Congreso Internacional Nuevos Retos de la Justicia Administrativa,Congreso Académico en Derecho,Programa de Capacitación del Sistema Nacional Anticorrupción
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54277/10
+
+
+## Trayectoria Academica
+
+- Maestro en derecho constitucional por la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy convencido que el derecho y la justicia no son cosa de abogados, por lo que deben ser accesibles para cualquiera.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se dice que la función jurisdiccional es la potestad de que se hayan investidos los Jueces para administrar justicia. Pero a mi consideración, es una vocación, porque si no estás comprometido con lo que haces, te vuelves un mero autómata de la ley, cada asunto que llegue a tus manos no será más que otro expediente. Por eso llevo 17 años tratando de inculcar una nueva forma de pensar, consiente del valor de la función jurisdiccional y como a través de ella puedes afectar o mejorar una vida.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo fielmente que la verdadera impartición de justicia no se alcanza con la emisión de sentencias rebuscadas que sólo demuestran el ego de quien las formula, sino cuando logras emitir una sentencia que es accesible para cualquiera, que deja claro a las partes porque les asistió o no la razón, aterrizando el contenido de la ley. Porque esa es la verdadera tarea del juzgador. Creo en una impartición de justicia más honesta y cercana a la gente, con jueces trabajando y no mirando desde un pedestal
+
+
+## Propuestas
+
+- Que los Jueces y Magistrados se dediquen a atender los asuntos que se hacen de su conocimiento y no a hacer vida social o política. Porque cuando estas comprometido y presente en la tarea que se te encomendó, puedes advertir cualquier problema, error, vicio, abuso o incluso desvío de poder, para realizar las adecuaciones necesarias y garantizar así que la función jurisdiccional sirva a la partes y no a algunos servidores públicos.
+- Que exista un reparto equitativo del trabajo. Rompiendo con la mala práctica que hay en muchos juzgados, donde el servidor público que da resultados termina trabajando más, porque es muy bueno en lo que hace, mientras que el servidor público que no da resultados termina trabajando menos, porque como es malo en lo que hace no tiene caso darle trabajo. Cuando el trabajo se reparte como debe ser, hay un mejor ambiente de trabajo y mejores resultados, lo cual opera en favor de las partes.
+- Que los acuerdos y resoluciones sean redactados de manera más sencilla, para que sean accesibles a las partes, no sólo a sus abogados. Con lo cual se puede dejar atrás esas ideas antiguas donde mientras más hojas tenga tu sentencia o más rebuscada este, eres mejor abogado o mejor juzgador. El verdadero juzgador entiende que el conocimiento no se presume, se aplica; porque si el conocimiento no sirve para ayudar a los demás, entonces es mero ego de quien lo acumula para sí.
+

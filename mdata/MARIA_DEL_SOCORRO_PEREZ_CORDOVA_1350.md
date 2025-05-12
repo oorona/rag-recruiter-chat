@@ -1,0 +1,74 @@
+Nombre Candidato: MARIA DEL SOCORRO PEREZ CORDOVA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8125704533
+Correo Electronico: lic.socorro24@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Laboral, Derecho Procesal Constitucional, Derecho Procesal Penal, Derechos de la Infancia, Doctorado, Justicia para Adolescentes, Licenciatura., Maestría, Sistema Penal Acusatorio, Violencia contra las Mujeres
+Tags Propósito: Adultos Mayores, Autonomía Judicial, Control Convencional, Derechos Humanos, Discapacidad, Enfoque de Derechos Humanos, Estado de Derecho, Grupos Vulnerables, Igualdad, Imparcialidad, Independencia Judicial, Interpretación Conforme, Justicia, Justicia Progresista., Migrantes, Niñez, Principio Pro Persona, Rendición de Cuentas, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+MARIA DEL SOCORRO PEREZ CORDOVA es candidata a Magistratura de Tribunales Colegiados de Circuito en Nuevo León, postulándose a través del Poder Judicial de la Federación. Cuenta con formación académica de nivel Doctorado en Derecho, complementada por diversos cursos en áreas como justicia para adolescentes, derechos de la mujer, sistema penal acusatorio y derecho procesal constitucional.
+
+Su motivación para el cargo público se centra en impulsar la igualdad en materia de Derechos Humanos, especialmente para grupos vulnerables.  Su visión de la función jurisdiccional prioriza los Derechos Humanos como eje central en la impartición de justicia, buscando aplicar estándares internacionales y regionales, así como el Control Convencional y la interpretación pro persona. Sus propuestas incluyen un enfoque de Derechos Humanos en las decisiones judiciales, la protección de grupos vulnerables y el mantenimiento de la autonomía e independencia del Poder Judicial con transparencia y rendición de cuentas.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574231739778&mibextid=wwXIfr
+- https://www.instagram.com/socorro.perezcordova?igsh=MWwwcWxqdjN3cWVzbg3D3D&utm_source=qr
+- https://www.tiktok.com/@socorro.perez.cor?_t=ZM-8uslv3TqE57&_r=1
+- https://www.linkedin.com/in/marC3ADa-del-socorro-pC3A9rez-cC3B3rdova-16358b355?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Diplomado de Introducción al Nuevo Sistema de Justicia para Adolescentes Infractores del Estado en Nuevo León,Curso el Derecho de las Mujeres a una Vida sin Violencia,Curso del Sistema Penal Acusatorio,Curso los derechos de la infancia y el acceso a la justicia,Diplomado en Derecho Procesal Constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54070/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho y Ciencias Jurídicas, Maestra en Derecho Laboral y Derecho Procesal Penal, Doctora en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Impulsar la verdadera igualdad en materia de Derechos Humanos que le asisten a los grupos sociales vulnerables.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los Derechos Humanos son el verdadero agente protagónico de la impartición de justicia, por lo que resulta obligado considerar aspectos como las condiciones de las y los justiciables, sin romper o trasgredir los principios rectores de la Judicatura. Es de destacarse que la autonomía e independencia del Poder Judicial debe concebirse como un garantía misma de que la función que se realiza es profesional, objetiva, independiente, imparcial y de excelencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar los Derechos Humanos como los pilares principales para mantener un Estado democrático de Derecho y aspirar a vivir en un entorno de paz. Lo anterior implica, en aras a las funciones jurisdiccionales, consolidar el sentido de la impartición de la justicia, haciendo énfasis en el uso de herramientas de aplicación de Derechos Humanos como el Control Convencional, la Interpretación Conforme y el Principio Pro Persona para asegurar a las y los justiciables sus derechos.
+
+
+## Propuestas
+
+- El ejercicio de la función jurisdiccional se realizaría con un enfoque de Derechos Humanos, considerando aquellos criterios internacionales y regionales en la materia, dirigidos específicamente a fortalece el sistema de justicia, por lo que el papel de la suscrita seria en esa vertiente. Respetar y garantizar los Derechos Humanos de todas las personas de cara a la sociedad, y donde esta sea oída.
+- Realizar la labor jurisdiccional observando los Derechos Humanos para ponerlos en movimiento a través de los fallos de corte progresista, sobre todo cuando se trate de aquellas situaciones especificas o bien, de grupos sociales que por sus condiciones viven procesos multidimensionales que pueden afectar su bienestar material y no material, como por ejemplo: las niñas, niños, adolescentes, adultos mayores, personas con discapacidad, indignes, migrantes, entre otros.
+- Se mantendrá la autonomía e independencia de las decisiones judiciales con relación a los demás poderes del Estado, actores políticos y económicos comprometiéndome a respectar, proteger y reforzar la imparcialidad del sistema. Así también, se garantizará la transparencia y rendición de cuentas, presentando información que permita evaluar el trabajo jurisdiccional, para mejorar la calidad en el servicio, tomando en consideración opiniones ciudadanas que permitan retroalimentar el trabajo.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: MARIO RAMIREZ TOPETE
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5525632997
+Correo Electronico: mtopetesst@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo Penal, Derecho Constitucional, Derecho Penal, Diplomado., INAP, Juicio de Amparo, Licenciatura en Derecho, Maestría, Metodología Marco Lógico, Política Pública, Suprema Corte de Justicia de la Nación, Universidad de Xalapa
+Tags Propósito: acceso a la justicia, arbitrariedad, burocracia, congruencia, constitución, debido proceso, derechos humanos, diligencias., eficiencia, exhaustividad, interés público, justicia, juzgador, legitimidad, pro persona, procesos, rezago, tratados internacionales, tutela judicial, verdad
+
+
+## Descripción del Candidato 
+
+Mario Ramirez Topete es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría concluida y formación complementaria en áreas como Derecho Constitucional Penal, Metodología del Marco Lógico y el Juicio de Amparo. Es Licenciado en Derecho por la Universidad de Xalapa y pasante de Maestría por el INAP.
+
+Su motivación para buscar el cargo es impartir justicia efectiva con pleno respeto a los derechos humanos. Su visión se centra en asegurar la tutela judicial efectiva y el interés público en las decisiones, garantizando el acceso a la justicia como una realidad tangible. Sus propuestas incluyen combatir el rezago de asuntos jurisdiccionales, garantizar el acceso a la justicia a través de mecanismos eficientes, y asegurar la exhaustividad y congruencia en las decisiones judiciales, valorando pruebas e indicios para llegar a la verdad de los hechos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/MarioRamirezTo9
+
+
+## Cursos
+
+- Diplomado, Derecho Constitucional Penal y Amparo Penal, Casa de la Cultura Jurídica de la SCJN, Xalapa, Ver
+- 2008
+- ,Diplomado, Introducción a la Metodología del Marco Lógico: una herramienta de Política Pública, Tec de Monterrey
+- Pue
+- ,Diplomado, Juicio de Amparo 2022, impartido por la Suprema Corte de Justicia de la Nación, en 2022, CDMX
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55134/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad de Xalapa y pasante de Maestría por el INAP
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero impartir justicia efectiva en plena observancia a los derechos humanos individuales y colectivos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función de Juez materia administrativa, es buscar asegurar el doble reto de asegurar la tutela judicial efectiva que proteja los derechos de los ciudadanos, y al mismo tiempo, garantizar que las decisiones emitidas no trastoquen el interés público y social. Por ello, mi visión está enfocada que mis decisiones garanticen acceso a la justicia entendida como una realidad tangible para todos los ciudadanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar el derecho humano de acceso efectivo a la justicia; garantizar el debido proceso bajo las formalidades esenciales de este; garantizar la plena observancia la Constitución Política Federal, así como a los Tratados internacionales, buscando en todo momento el principio pro persona, sin vulnerar el legítimo derecho de la colectividad democrática.
+
+
+## Propuestas
+
+- Combatir el rezago de asuntos jurisdiccionales pendientes por resolverse; agilizando y depurando aquellos juicios administrativos que se encuentren obstaculizados por enramados burocráticos y/o supeditados a decisiones de otras autoridades, estableciendo para tal efecto un sistema que simplifique los procesos y desahogos de diligencias a la brevedad.
+- Garantizar el acceso a la justicia efectiva, a través de la implementación de mecanismos eficientes que identifiquen la base legítima que sustenta el derecho de petición del ciudadano, frente al acto presuntamente arbitrario de la autoridad; procurando hacerme llegar de elementos de convicción suficientes, para que el gobernado verdaderamente acceda a la justicia y que su asunto sea valorado en su totalidad, evitando tecnisismos intrascendentes que lo obstaculicen.
+- Garantizar la exhaustividad y congruencia en las decisiones que tomaré como juzgador. Para ello, valoraré cada indicio, cada prueba, cada elemento que me ayude acercarme a la verdad de los hechos, considerando a su vez, las aseveraciones y manifestaciones vertidas por las partes en conflicto, es decir, el ciudadano frente a la autoridad responsable. Ya con la exposición de lo manifestado y con las constancias valoradas de manera congruente, impartiré justicia y llegaré a la verdad.
+

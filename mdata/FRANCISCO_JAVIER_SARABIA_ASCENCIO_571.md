@@ -1,0 +1,73 @@
+Nombre Candidato: FRANCISCO JAVIER SARABIA ASCENCIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5522638519
+Correo Electronico: franciscoj.sarabiaa@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Aragón., Control de Convencionalidad, Derecho Internacional Humanitario, Derechos Humanos, Justicia Penal, Licenciatura en Derecho, Propiedad Intelectual, Sistema Penal Acusatorio, UNAM
+Tags Propósito: Acceso a la justicia, Atención personalizada, Bienestar social, Democracia, Eficiencia, Empatía, Equidad, Estado de derecho, Humanismo, Justicia, Legalidad, Legitimidad., Paz social, Profesionalismo, Servicio, Servidores públicos, Transparencia, Trato humano, Ética
+
+
+## Descripción del Candidato 
+
+Francisco Javier Sarabia Ascencio es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con una Licenciatura en Derecho por la Facultad de Estudios Superiores Aragón UNAM y 35 años de trayectoria en el servicio público. Su motivación para buscar el cargo se basa en su convicción de servicio y vocación por impartir justicia sin distinción.
+
+Su visión de la función jurisdiccional destaca la importancia de combinar los avances tecnológicos con un enfoque humanista, garantizando la legalidad y profesionalismo. Sus propuestas incluyen continuar con su trayectoria de acercamiento a las partes involucradas, brindar atención personalizada en los juicios y priorizar un trato humano y empático para fortalecer la confianza en las instituciones.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+https://franciscojaviersarabia.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15Fj8S5kP4/
+- https://www.instagram.com/franciscoj.sarabiaa?igsh=MTB3eWNzcmRvY3dqbw==
+- https://www.tiktok.com/@franciscoj.sarabi?_t=ZM-8v38IwC5AX8&_r=1
+
+
+## Cursos
+
+- Congreso Nacional relativo al Nuevo Sistema de Justicia Penal desde la Óptica del Juicio de Amparo (Mayo 2016),Seminario Propiedad Intelectual  Unidos (Febrero 2004),Derechos Humanos Control de Convencionalidad (Julio 2013),Seminario de Derecho Internacional Humanitario (Mayo 2012),Cursos de Capacitación Conjunta en Materia del Sistema Penal Acusatorio celebrado en México y Puerto Rico (2016)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54929/10
+
+
+## Trayectoria Academica
+
+- Título de Licenciado en Derecho, Facultad de Estudios Superiores Aragón UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero continuar por convicción de servicio y vocación en la impartir justicia sin distinción alguna.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los avances tecnológicos en el ámbito jurisdiccional han mejorado la eficiencia, la transparencia y el acceso a la justicia. Sin embargo, para cumplir con el objetivo de llevar a cabo el mecanismo que ofrece el estado para resolver conflictos sociales es necesario no dejar de lado la condición humana de los justiciables y desempeñar la labor jurisdiccional con legalidad y profesionalización de la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se debe garantizar el bienestar social, la equidad y el estado de derecho a través de una institución responsable, efectiva, confiable, con ética y profesionalismo al impartir justicia, en un marco de humanismo, mediante la emisión de resoluciones dictada de manera pronta, completo e imparcial y que siempre impacten para prevalecer la paz social.
+
+
+## Propuestas
+
+- Continuar con lo ya logrado durante 35 años de servicio, el acercamiento con las partes involucradas en los juicios e impartir justicia sin distinción alguna.
+- Brindarles a las partes en los juicios una atención personalizada e inmediata cuando así lo requieran, sin una agenda de por medio.
+- Siempre priorizar un trato humano y empático para lograr ser servidores públicos confiables, democráticos y legitimados ante el pueblo.
+

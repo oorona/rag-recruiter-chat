@@ -1,0 +1,79 @@
+Nombre Candidato: GISELA PAULINA LOPEZ LOZOYA
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: paulinalozoya13@gmaill.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Sociales, Comunicación, Derecho, Derecho Procesal Penal, Derecho familiar, Derechos Humanos, Etnicidad, Género, Justicia para adolescentes, Licenciatura., Liderazgo, Maestría, Racismo, Registro Nacional de Detenciones, UABJO
+Tags Propósito: Calidad Humana, Capacitación, Derechos Ciudadanos, Eficiencia, Equidad, Función Jurisdiccional, Honestidad, Imparcialidad, Independencia, Infraestructura, Integridad, Justicia, Objetividad, Profesionalismo, Prudencia Judicial., Rendición de Cuentas, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+GISELA PAULINA LOPEZ LOZOYA es candidata a Jueza/es de Distrito en Oaxaca, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho Procesal Penal y Licenciatura en Derecho y Ciencias Sociales por la UABJO. Su trayectoria académica se complementa con diversos cursos en áreas como liderazgo, justicia para adolescentes, derechos humanos, perspectiva de género y registro de detenciones.
+
+La candidata motiva su postulación al deseo de contribuir a la impartición de justicia en México con honestidad, imparcialidad e integridad. Su visión de la función jurisdiccional se centra en la defensa de la ley y la protección de los derechos ciudadanos bajo principios de excelencia, objetividad e imparcialidad. Sus propuestas incluyen la aplicación rigurosa de estos principios, la implementación de tecnología para mejorar la eficiencia y transparencia, y la capacitación continua de los jueces.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://sites.google.com/view/www-giselapaulinalopezlozoya-/inicio
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1H5aZ1u6PT/
+- https://www.instagram.com/paulinalozoya13?igsh=MTI2YnNkNTgwOGw0dQ==
+- https://youtube.com/@paulina.lozoya?si=bOBhaUhfTdvg49bO
+- https://www.tiktok.com/@paulina.lozoya?_t=ZM-8uzE6ZEhG1H&_r=1
+
+
+## Cursos
+
+- Liderazgo transformador y comunicación asertiva como blindar instituciones desde lo humano
+- ,Diplomado en Justicia para adolescentes
+- ,Seminario Estatal sobre la progresividad del derecho familiar desde la visión de los Derechos Humanos y perspectiva
+- ,Etnicidad y racismo en perspectiva de género
+- ,El conversatorio Registro Nacional de Detenciones
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54355/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Procesal Penal
+- Licenciatura en Derecho y Ciencias Sociales UABJO
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la impartición de Justicia en México, de manera honesta, imparcial e integra. Justicia para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Existen muchas formas de servir a la sociedad y una de ellas es la función de un Juez, la cual acarrea una responsabilidad total con la sociedad. Un juez no es más que un defensor y un vigilante de la aplicación de la justicia, debe defender la ley, tiene que proteger los derechos de cada uno de los Ciudadanos que conformamos esta sociedad bajo los principios de excelencia, objetividad, imparcialidad, profesionalismo, independencia, justicia y equidad, honestidad y prudencia judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad tiene el derecho a acceder a una justicia justa y equitativa, imparcial, eficiente y efectiva, protegiendo los derechos de todas las personas que acceden a ella; en cada juzgador tiene que haber un ser humano que sea empático y con calidad humana, ya que tenemos que dejar de pensar que los asuntos que requieren impartición de justicia son solo números, en cada uno de esos conflictos y asuntos hay personas que van a tener un impacto significativo en su vida. Una Justicia para todos.
+
+
+## Propuestas
+
+- Aplicar en todo momento los principios básicos para la función jurisdiccional, que son excelencia, objetividad, imparcialidad, profesionalismo, independencia, justicia y equidad y prudencia judicial, además de honestidad, integridad y responsabilidad.
+- La implementación de tecnología para mejorar la eficiencia y eficacia en la tramitación de todos los asuntos, además de mejorar la infraestructura y recursos. Realizar capacitaciones constantes y continuas para que los jueces cuenten con los conocimientos y habilidades necesarias para desarrollar sus funciones.
+- Mejorar la transparencia en la tramitación de los asuntos, brindando información clara y accesible a todas las partes involucradas y realizar una efectiva rendición de cuentas para garantizar que jueces y personal jurisdiccional se hagan responsables de sus decisiones.
+

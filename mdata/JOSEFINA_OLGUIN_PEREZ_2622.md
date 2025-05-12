@@ -1,0 +1,74 @@
+Nombre Candidato: JOSEFINA OLGUIN PEREZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: josefinaolguinperez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Azcapotzalco, Derecho, Egresada., Licenciatura, Universidad Autónoma Metropolitana
+Tags Propósito: Acceso a la justicia, Aplicación del derecho, Cero corrupción, Ciencias auxiliares, Condición social, Criterio, Derechos humanos, Equidad, Expeditez, Género, Igualdad ante la ley, Imparcialidad, Justicia, Necesidades sociales, Nepotismo, Perfiles profesionales, Principio de equidad, Raza, Resolución de conflictos, Resolución pronta., Transparencia
+
+
+## Descripción del Candidato 
+
+Josefina Olguín Perez es candidata a Jueza/es de Distrito del Poder Judicial de la Federación en México. Licenciada en Derecho por la Universidad Autónoma Metropolitana Unidad Azcapotzalco, su motivación para buscar el cargo es la oportunidad de impartir una justicia equitativa.
+
+Su visión se centra en resolver los asuntos de manera expedita, apegándose a derecho pero considerando las necesidades sociales y garantizando la justicia incorruptible. Sus propuestas incluyen juzgar con equidad considerando las circunstancias individuales de las partes, implementar una política de cero tolerancia a la corrupción y nepotismo, y aplicar un criterio que considere las necesidades sociales actuales en la interpretación del derecho, apoyándose en otras ciencias cuando sea necesario.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=100095363565774
+- https://x.com/JosefinaOl6149
+- https://www.instagram.com/jzefolguin/
+- https://www.tiktok.com/@jzefolguin
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54059/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho egresada de la Universidad Autónoma Metropolitana Unidad Azcapotzalco
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser Juez de Distrito me da la oportunidad de impartir una justicia diferente a la de hoy y mi meta será la equidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como Juez de Distrito, propiciare que los asuntos se resuelvan en un lapso menor de tiempo al que actualmente se están resolviendo, que las determinaciones o resoluciones se apeguen a derecho, pero también atendiendo a la necesidad que existe en la sociedad de que no sean vulnerados sus derechos en razón de su género, raza o condición social, dependiendo del caso en concreto y finalmente que la justicia, sea incorruptible que no atienda a los intereses de grupos minoritarios o de poder.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia atendiendo a las necesidades de la sociedad, donde todos los ciudadanos sin excepción tenga acceso a una justicia que sea pronta, expedita, equitativa, no corrupta, en la que a cada miembro de la sociedad le provoque un sentimiento de que las resoluciones a sus demandas son congruentes y satisfacen sus reclamos.
+
+
+## Propuestas
+
+- Juzgar con equidad, es decir si bien es cierto la carta magna reconoce que todos los ciudadanos somos iguales ante la ley, también lo es que yo como juzgadora aplicaré el principio de equidad, en el entendido de que se consideren las condiciones intrínsecas de las partes en el litigio, que cada caso en concreto exija, porque no todos los ciudadanos que acuden ante un órgano de justicia se encuentran en las mismas situaciones o ámbitos, por lo que buscaré el justo medio.
+- Cero corrupción como Juzgadora no contrataré a ningún familiar para terminar con el nepotismo que tanto ha afectado, al privar a muchos aspirantes que tienen la capacidad de ejercer un cargo público y que no han sido tomados en cuenta por no conocer o ser familiar de a algún juzgador, por lo que me comprometo a realizar convocatorias para elegir a los mejores perfiles para desempañar los cargos inherentes a la impartición de justicia.
+- Ejercer la impartición de justicia no solo apegada al derecho sino también atendiendo a las necesidades sociales actuales, porque es importante no olvidar que el derecho va un paso atrás a la evolución de la sociedad, es decir que la aplicación de la norma puede ya no adecuarse a las condiciones sociales imperantes en este momento, por lo que los casos que se me presenten como Juzgadora, aplicaré mi criterio auxiliándome de otras ciencias, que apoyen al derecho.
+

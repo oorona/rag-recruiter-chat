@@ -1,0 +1,75 @@
+Nombre Candidato: RAUL MIGUEL GASPAR PECH MARINEZ
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: 9981368376
+Correo Electronico: raulpechmarinez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Adjudicación Judicial, Cambio Climático, Derechos Humanos, Función Secretarial, Género, Licenciatura en Derecho, Maestría en Proceso Penal, Medio Ambiente, Poder Judicial de la Federación, Secretarios, Sistema Penal Acusatorio, Tribunal Superior de Justicia
+Tags Propósito: Juez Federal, acceso a la justicia, aprendizaje colectivo, capacitación, celeridad, cohesión, derechos humanos, dignidad, diversidad cultural, equidad, imparcialidad, justicia pronta, justicia social, realidades ciudadanas, resolución de controversias, respeto., revisión de criterios, sistema judicial
+
+
+## Descripción del Candidato 
+
+Raúl Miguel Gaspar Pech Marinez es candidato a Juez/a de Distrito en Quintana Roo, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría en Proceso Penal Acusatorio y cédula profesional. Su formación incluye cursos y diplomados en temas como secretaría del Poder Judicial, perspectiva de género, medio ambiente y el sistema penal acusatorio.
+
+Su motivación para el cargo es continuar sirviendo a México resolviendo controversias. Propone implementar un sistema que priorice la celeridad en los procesos, una revisión periódica de criterios y decisiones judiciales, y un programa de capacitación en diversidad cultural y derechos humanos para el personal del juzgado. Su visión de la función jurisdiccional se centra en la justicia social, la equidad y la atención a las particularidades de cada caso, buscando un sistema judicial ágil, accesible e imparcial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/raulpechmarinez
+- https://www.x.com/rulopm99
+- https://www.instagram.com/raulpechmarinez
+- https://www.tiktok.com/@rpm_99
+
+
+## Cursos
+
+- Curso básico de formación y preparación de secretarios del Poder Judicial de la Federación generación 2013
+- ,Seminario ¿Perspectiva de Género y Adjudicación Judicial: Una Visión Desde el PJF¿,Curso Responsabilidades de la Función Secretarial,Diplomado ¿Medio ambiente, cambio climático y derechos humanos¿,¿La metodología de audiencias en el sistema penal acusatorio¿ Tribunal Superior de Justicia del Estado de Quintana Roo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54567/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho y Maestría en Proceso Penal Acusatorio
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez Federal para continuar sirviendo a México y a su gente a la mejor resolución de sus controversias
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional se centra en la justicia social y la equidad. Considero que es fundamental resolver cada caso conforme a la ley, pero siempre atendiendo las particularidades y contextos de cada expediente, ya que detrás de cada número hay una persona con una historia única. Aspiro a que el sistema judicial no solo sea un espacio de aplicación de la ley, sino también un lugar donde se escuchen y valoren las necesidades de los ciudadanos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Visualizo un sistema judicial ágil y accesible, donde cada ciudadano pueda obtener respuestas rápidas y justas a sus demandas. La imparcialidad será un valor esencial, asegurando que todas las voces sean escuchadas y respetadas, promoviendo así una convivencia pacífica y equitativa en nuestra sociedad. La justicia debe ser un derecho real para todos.
+
+
+## Propuestas
+
+- Implementar un sistema que priorice la celeridad en los procesos judiciales, garantizando que los casos sean resueltos sin demoras injustificadas. La justicia pronta no solo beneficia a los ciudadanos, sino que también refuerza la confianza en el sistema judicial, permitiendo que cada persona vea atendida su demanda en un tiempo razonable, acorde a sus derechos fundamentales y a la búsqueda de justicia social.
+- Establecer un sistema de revisión periódica de los criterios y decisiones judiciales en el juzgado. A través de reuniones periódicas, los jueces pueden discutir y ajustar sus enfoques, asegurándose de aplicar la ley de manera equitativa y en pro de la justicia social. Este ejercicio fomentará la cohesión y el aprendizaje colectivo, permitiendo que cada caso se resuelva de forma más justa y alineada a las realidades de los ciudadanos, respetando siempre sus derechos y necesidades.
+- Implementar un programa de capacitación enfocado en diversidad cultural y derechos humanos para todo el personal del juzgado. Esto asegurará que jueces y empleados comprendan y respeten las diversas realidades de los ciudadanos que buscan justicia. Al mejorar la sensibilización sobre estas cuestiones, se fomentará un ambiente inclusivo y se garantizará que cada individuo sea tratado con dignidad y respeto, atendiendo las particularidades de sus situaciones.
+

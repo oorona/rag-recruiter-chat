@@ -1,0 +1,78 @@
+Nombre Candidato: FRANCISCO JAVIER MORONES DAVALOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6692767089
+Correo Electronico: morones507@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Actuarial, Amparo Directo, Amparo Indirecto, Derecho, Derecho Procesal Constitucional, Derechos Humanos, Doctorado, Juicio de Amparo, Legislación, Materia Administrativa, Materia Agraria., Poder Judicial, Protección de Datos Personales, Reformas Constitucionales, Transparencia
+Tags Propósito: Estado de Derecho, acceso a la justicia, capacitación, defensa pública, derechos fundamentales, derechos humanos, digitalización, eficacia, eficiencia, evaluación judicial, grupos vulnerables, honestidad, justicia, mediación, modernización, paz, perspectiva de género, seguridad jurídica, transparencia, transparencia judicial., ética profesional
+
+
+## Descripción del Candidato 
+
+Francisco Javier Morones Dávalos es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Ejecutivo Federal en Sinaloa. Cuenta con un Doctorado en Derecho, especializado en el juicio de amparo, y ha completado diversos cursos de actualización en materia legislativa, procesal constitucional, transparencia y derechos humanos.
+
+Su motivación para buscar el cargo es servir con honestidad, transparencia y eficacia para solucionar conflictos. Su visión se centra en garantizar una justicia imparcial, accesible y oportuna, fortaleciendo la confianza ciudadana en el sistema judicial. Sus propuestas incluyen la modernización de procesos judiciales mediante digitalización, la capacitación constante del personal jurídico en derechos humanos y perspectiva de género, y la mejora del acceso a la asesoría jurídica gratuita, además de mecanismos de evaluación ciudadana del desempeño judicial.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Francisco Morones
+- https://www.instagram.com/morones6882
+
+
+## Cursos
+
+- Curso de Preparación y Capacitación para Actuarios y Secretarios del Poder Judicial de la Federación
+- ,Curso de Actualización Legislativa
+- Módulo: Materia Administrativa y Diplomado en Derecho Procesal Constitucional
+- ,Diplomado del Nuevo Juicio de Amparo; y Curso de Reformas Constitucionales en materia de Amparo y Derechos Humanos
+- ,Curso sobre Transparencia, Acceso a la Información y Protección de Datos Personales
+- ,Mesas de Trabajo sobre el tema Reforma Constitucional en Materia de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54245/10
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho, especializado en el juicio de amparo indirecto y directo en materias administrativo y agrario
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con honestidad, transparencia y eficacia, solucionando conflictos que impacten positivamente a la comunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar justicia imparcial, accesible y oportuna, resolviendo conflictos con base en la ley y los derechos fundamentales. Buscar fortalecer la confianza ciudadana en las reformas al sistema judicial, ello mediante transparencia, equidad y eficiencia, protegiendo el Estado de Derecho y promoviendo una sociedad en donde prevalezca la paz y la seguridad jurídica.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo firmemente que la impartición de justicia debe ser eficiente, real y cercana al pueblo, resolviendo conflictos con base en la ley y los derechos humanos. Garantizar decisiones transparentes y oportunas, fortaleciendo la confianza en el sistema judicial y asegurando que cada persona encuentre respuestas rápidas, efectivas y equitativas.
+
+
+## Propuestas
+
+- Modernizar, mediante la digitalización de los procesos judiciales con plataformas en línea, lo que agiliza esos trámites y juicios y reduce el uso indiscriminado de papel y cargas burocráticas generando transparencia y rapidez.
+- Capacitación constante para actualizar y formar personal jurídico (personal y jueces) en derechos humanos, perspectiva de género y técnicas de mediación para decisiones más oportunas, justas e inclusivas.
+- Mejorar el acceso gratuito a la asesoría jurídica e implementar programas de defensa pública gratuita y acercarla a la sociedad, especialmente a grupos vulnerables; así como la creación de mecanismos para que los ciudadanos evalúen el desempeño judicial a través de métricas claras de eficiencia y ética profesional.
+

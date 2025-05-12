@@ -1,0 +1,71 @@
+Nombre Candidato: CARMEN LIZET GUISLAN CLEMENTE
+Cargo: Juezas/es de Distrito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9612485668
+Correo Electronico: liz_guiscle@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Código de Procedimientos Civiles, Derecho Laboral, Derechos Humanos, Doctorado en Derecho Procesal, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho Constitucional, Organización AsiLegal., Seguridad Social, Suprema Corte de Justicia de la Nación
+Tags Propósito: Acceso a la justicia, Ciudadanía, Comunicación, Confianza, Cumplimiento de sentencias, Derechos humanos, Eficiencia, Función jurisdiccional, Igualdad ante la ley, Imparcialidad, Justicia, Legalidad, Protección de derechos., Rendición de cuentas, Transparencia
+
+
+## Descripción del Candidato 
+
+Carmen Lizet Guislán Clemente es candidata a Jueza/es de Distrito en Chiapas, postulándose a través del Poder Legislativo Federal. Cuenta con estudios concluidos a nivel de Doctorado en Derecho Procesal, además de una Maestría en Derecho Constitucional y Amparo, y una Licenciatura en Derecho. Su formación complementaria incluye diplomados en Juicio de Amparo, Derecho Laboral y Seguridad Social, Nuevo Código de Procedimientos Civiles y Familiares, y un curso en Derechos Humanos.
+
+La motivación de la candidata para buscar el cargo público es su deseo de contribuir a la ciudadanía. Su visión de la función jurisdiccional se centra en la imparcialidad, legalidad y transparencia. Sus propuestas incluyen mejorar la comunicación y transparencia en la función jurisdiccional, garantizar la rendición de cuentas y el cumplimiento eficaz de las sentencias.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo, por la Suprema Corte de Justicia de la Nación,Diplomado en Derecho Laboral y Seguridad Social,Diplomado en el Nuevo Código de Procedimientos Civiles y Familiares,Curso en Derechos Humanos por la Organización AsiLegal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53345/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Derecho Constitucional y Amparo y Doctorado en Derecho Procesal
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque estando en un cargo público puedo estar en posibilidades de ayudar a la ciudadanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser una Jueza imparcial, actuar siempre con legalidad y transparencia
+
+
+## Vision sobre la Imparticion de Justicia
+
+Asegurar que la justicia sea accesible para todos, imparcial, eficiente, protectora de los derechos humanos, y así recuperar la confianza de la ciudadanía a los sistemas de justicia, a la impartición de justicia. Promover la efectividad y el cumplimiento de las decisiones judiciales. Así como garantizar el respeto hacia los derechos humanos e igualdad ante la ley.
+
+
+## Propuestas
+
+- Mejorar la comunicación y transparencia en la función jurisdiccional, que las personas puedan tener acceso al juzgador, sean oídos y puedan tener una comunicación directa con los Jueces, respetando su derecho al acceso a la justicia.
+- Garantizar la rendición de cuentas a los ciudadanos, tener transparencia en la toma de decisiones, en este caso, en el dictado de las sentencias
+- Garantizar el cumplimiento y eficacia de las sentencias que se dicten
+

@@ -1,0 +1,80 @@
+Nombre Candidato: ADRIANA MATZAYANI SANCHEZ ROMO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5562161518
+Correo Electronico: sara780707@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Administración de Justicia, Amparo., Ciencia Política, Constitucional, D. Constitucional, Defensa, Derecho, Derechos Humanos, Derechos Sociales, Discapacidad, Fiscal, Género, Igualdad, Proporcionalidad, Relaciones Internacionales, Tecnológico de Monterrey
+Tags Propósito: Acceso a la Justicia, Capacitación Judicial, Derechos Humanos, Dignidad, Eficiencia, Herramientas Tecnológicas, Igualdad Sustantiva, Justicia Cercana, Justicia Humana, Justicia Social, Justicia Viva., Perspectiva de Género, Poder Judicial, Profesionalización, Simplificación de Procesos, Transformación, Transparencia
+
+
+## Descripción del Candidato 
+
+Adriana Matzayani Sanchez Romo es candidata a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Cuenta con maestría y cédula profesional, con trayectoria en derecho fiscal y constitucional, así como especialización en derechos humanos y amparo. Ha participado en diversos cursos y diplomados relacionados con la justicia, derechos humanos, perspectiva de género y discapacidad.
+
+Su motivación para buscar el cargo es transformar el Poder Judicial, defender los derechos de las personas y acercar la justicia a la población. Propone profesionalizar al personal judicial a través de capacitación continua, simplificar los procesos legales para hacerlos más accesibles y adoptar nuevas tecnologías para agilizar trámites y aumentar la transparencia. Busca una función jurisdiccional e impartición de justicia humana, cercana, eficiente y con perspectiva de género y derechos humanos.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.x.com/MatzaSR
+- https://www.instagram.com/MatzaSR
+- https://www.tiktok.com/matzasanrom
+
+
+## Cursos
+
+- Tecnológico de Monterrey Jornadas Académicas del Departamento de Derecho, Relaciones Internacionales y Ciencia Política
+- ,2022 El Uso del Test de Proporcionalidad en casos de igualdad y derechos sociales, segunda edición
+- ,2022 Curso Especializado Impartición de Justicia con Perspectiva de Discapacidad
+- ,2023 Diplomado Derechos Humanos: Aproximaciones para su Defensa
+- ,Los desafíos para incorporar Perspectiva de Género en la Administración de Justicia en Iberoamérica, Santiago de Chile
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55472/10
+
+
+## Trayectoria Academica
+
+- Licencida en Derecho, Especialista en Fiscal y Constitucional, Mtr
+- en D
+- Constitucional, Derechos Humanos y Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para transformar el Poder Judicial desde adentro, defender derechos de las personas y acercar la justicia a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función judicial debe ser cercana al pueblo, clara y efectiva. Mi visión es una justicia que escuche a las personas, que resuelva con sensibilidad y que transforme realidades. Una justicia que deje de ser ajena y se convierta en aliada, que elimine barreras y actúe con perspectiva de género y derechos humanos. Una justicia que no sólo aplique la ley, sino que haga valer la dignidad de cada persona. Mi visión es acercar la justicia al pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser humana, cercana y eficiente. Una visión que reconozca a las personas en su contexto, que escuche las voces y garantice los derechos del pueblo. Que rompa con estereotipos, actúe con perspectiva de género y promueva la igualdad sustantiva. Una justicia social que transforme vidas, no que se limite a dictar sentencias. Una justicia viva, que esté al servicio de quienes más la necesitan. Una justicia que realmente acerque la ley a la gente.
+
+
+## Propuestas
+
+- Primero, profesionalizar a las personas operadoras de justicia, asegurándonos de que todas las juezas, jueces y personal judicial cuenten con la capacitación continua y las herramientas necesarias para desempeñar su trabajo con eficiencia, sensibilidad y compromiso.
+- Segundo, simplificar procesos, diseñando procedimientos más ágiles y accesibles que eliminen la burocracia innecesaria y faciliten que las personas entiendan y participen activamente en sus casos.
+- Tercero, incorporar nuevas herramientas tecnológicas, implementando plataformas digitales que permitan agilizar los trámites, dar seguimiento en tiempo real a los casos y garantizar mayor transparencia en cada etapa del proceso judicial.
+

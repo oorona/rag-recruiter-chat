@@ -1,0 +1,76 @@
+Nombre Candidato: JUAN MANUEL LADRON DE GUEVARA DE LA TEJERA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6691591414
+Correo Electronico: juanmanuel0608@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Derecho, Derecho Procesal Penal, Derecho Público, Derechos Humanos, Doctorado., Género, Igualdad, Judicial, Licenciado, Maestría, Proporcionalidad, Protección de Datos, Transparencia, Violencia
+Tags Propósito: Calidad, Capacitación, Comunicación Social, Confianza Ciudadana, Democracia, Derechos Humanos, Eficiencia, Equidad, Evaluación, Imparcialidad, Infraestructura Judicial, Innovación, Justicia Accesible, Justicia Digital, Participación Ciudadana, Perspectiva de Género, Poder Judicial, Resolución de Conflictos, Rezago Judicial, Seguridad de la Información, Sensibilidad Social., Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Juan Manuel Ladron de Guevara de la Tejera es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para el estado de Sinaloa. Cuenta con un Doctorado en Derechos Humanos, además de Maestrías en Derecho Público y Procesal Penal, y Licenciatura en Derecho. Su motivación para buscar el cargo se basa en su deseo de fortalecer el Poder Judicial, promoviendo la democracia, la transparencia y la confiabilidad.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en un sistema independiente, accesible, moderno y con perspectiva de género, que resuelva los conflictos de manera ágil y con sensibilidad social. Sus propuestas incluyen la implementación de sistemas para mejorar la transparencia y el acceso a la información en los casos judiciales, la creación de un Sistema de Justicia Digital y el incremento de la infraestructura y capacidad del Poder Judicial para reducir el rezago.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/soyjuanmanuelladrondeguevaradelatejera
+- https://www.x.com/soyjuanmanuel_
+- https://www.instagram.com/soyjuanmanueloficial
+- https://www.youtube.com/dimeloacaencortopodcast
+- https://www.tiktok.com/soyjuanmanueloficial
+- https://www.pinterest.com/soyjuanmanueloficial
+
+
+## Cursos
+
+- Curso Género como Herramienta para la Igualdad,Curso para Generar Espacios Libres de Violencia,Curso de Especialización Judicial,Curso sobre Proporcionalidad e Interpretación de los Derechos Humanos,Curso sobre Transparencia, Acceso a la Información y Protección de Datos Personales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53514/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Maestría en Derecho Público; Maestría en Derecho Procesal Penal; Doctorado en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero el mejor Poder Judicial democrático, sin corrupción y confiable; elegido por el pueblo y para el pueblo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es que las decisiones del Poder Judicial de la Federación sean independientes, autónomas, con acceso sencillo a la justicia para la gente; moderna e innovadora para reducir los tiempos en la solución de los conflictos de manera ágil, clara y de acuerdo con la realidad social que vive el pueblo; por lo cual, sus titulares y su personal deben ser altamente calificados y evaluados para servir a la gente con transparencia y calidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quiero ser Magistrado de un Poder Judicial fortalecido y transformado, capaz de resolver conflictos de manera imparcial, equitativa, justa y con perspectiva de género, en pleno respeto a los derechos humanos, con decisiones fundadas, claras y con sensibilidad social de un país democrático y en constante evolución. Una institución con una comunicación social cercana al pueblo. Aspiro a que todos conozcan sus derechos y confíen en la capacidad del sistema para hacerlos valer y protegerlos.
+
+
+## Propuestas
+
+- Establecer un sistema que garantice a las personas involucradas en un conflicto tengan acceso a información pertinente y oportuna sobre su caso. Lo cual se logra mediante: Reunión con el juzgador; Información pertinente y oportuna; Notificación personalizada; Acceso a la información digital. El impacto beneficio será: La mejora de la transparencia; el incremento de la confianza ciudadana en el sistema judicial; y la mejora de la eficiencia en la impartición de justicia.
+- Implementación de un Sistema de Justicia Digital que permita a los ciudadanos acceder a la justicia de manera pronta, pertinente, transparente y accesible. Ello se logra mediante: Acceso a la información, Tramitación digital; Participación y Consulta Ciudadana. A través de: Inversión de tecnología; Capacitación y sensibilización del uso de la tecnología y beneficios del sistema digital; Desarrollo de políticas y procedimientos que garanticen la seguridad y la privacidad de la información.
+- Incrementar la infraestructura y capacidad del Poder Judicial de la Federación para disminuir el rezago de trabajo y mejorar la calidad de la justicia en México. Mediante: Creación de nuevos juzgados y tribunales; Incremento del personal judicial; Mejora de la infraestructura; Implementación de sistemas de gestión de casos; Capacitación y sensibilización de juzgadores y personal. Con un impacto de beneficio en: Disminución de rezago de trabajo; incremento en la confianza y percepción ciudadana,
+

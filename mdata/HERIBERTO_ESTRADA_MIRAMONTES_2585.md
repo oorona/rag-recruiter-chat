@@ -1,0 +1,78 @@
+Nombre Candidato: HERIBERTO ESTRADA MIRAMONTES
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3342505105
+Correo Electronico: heribertoestradamiramontes@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Anticorrupción, Curso, Derecho, Derecho Penal, Derechos Humanos, Diplomado, Género, Igualdad, Juicio de Amparo, Protección de Datos, Seminario., Transparencia
+Tags Propósito: Accesibilidad, Compromiso Social, Confianza Pública, Debido Proceso, Democracia, Derechos, Eficiencia, Estado de Derecho, Humanización, Imparcialidad, Independencia, Justicia, Justicia Penal, Lenguaje Sencillo, Orden, Paz, Portales Digitales, Profesionalismo, Resolución de Conflictos., Sentencias Claras, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+HERIBERTO ESTRADA MIRAMONTES es candidato a Juez/a de Distrito en JALISCO, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado en Derecho Penal y una cédula profesional vigente. Su trayectoria académica incluye licenciaturas, maestrías y doctorados en Derecho y Juicio de Amparo, complementada con cursos y diplomados en temas como igualdad de género, transparencia, anticorrupción y derechos humanos.
+
+Su motivación para el cargo es garantizar justicia imparcial, proteger derechos y fortalecer la confianza pública. Propone humanizar la función jurisdiccional, fortalecer la transparencia en el ámbito judicial a través de portales digitales, y emitir sentencias penales en lenguaje claro y comprensible para todos los ciudadanos, buscando así un sistema judicial accesible, eficiente y cercano a la sociedad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/heribertoestradam
+- https://www.instagram.com/heribertoestradam?igsh=bWU5dmsxcHBmdjd2
+- https://www.tiktok.com/@hestradami?_t=ZM-8v4eBZIjNVG&_r=1
+- https://www.linkedin.com/in/heriberto-estrada-miramontes
+
+
+## Cursos
+
+- CURSO, GÉNERO COMO HERRAMIENTA DE IGUALDAD
+- ,CURSO, TRANSPARENCIA, ACCESO A LA INFORMACIÓN PÚBLICA Y PROTECCIÓN DE DATOS PERSONALES
+- ,DIPLOMADO, SISTEMA NACIONAL ANTICORRUPCIÓN Y RESPONSABILIDADES
+- ,DIPLOMADO, JUZGAR CON PERSPECTIVA DE GÉNERO
+- ,SEMINARIO DE DERECHOS HUMANOS
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53211/11
+
+
+## Trayectoria Academica
+
+- Soy Licenciado en Derecho, Maestro en Juicio de Amparo y Doctor en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Juez en Materia Penal para garantizar justicia imparcial, proteger derechos y fortalecer la confianza pública
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser imparcial, accesible expedita y eficiente, garantizando justicia pronta y equitativa con apego a la ley. Su objetivo debe ser siempre proteger los derechos de los ciudadanos, resolver conflictos con transparencia y fortalecer la confianza en el sistema judicial. Un juez debe actuar con ética, independencia, profesionalismo y compromiso social, asegurando que cada decisión contribuya a la paz, el orden y el respeto al Estado de derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser transparente, accesible y eficiente, garantizando el respeto a los derechos fundamentales y el debido proceso. Debe enfocarse en brindar resoluciones justas, equitativas y apegadas a la ley. La justicia no solo debe ser imparcial e independiente, sino también cercana a la sociedad, asegurando que cada decisión contribuya al orden y la estabilidad democrática.
+
+
+## Propuestas
+
+- La justicia no debe ser un concepto distante, ni un proceso incomprensible. Mi propuesta consiste en la necesidad y obligación de humanizar la función jurisdiccional, garantizando que cada ciudadano se sienta respaldado por un sistema que protege, no aleja; en el cual, el juzgador sea cercano, entienda las necesidades y escuche cada voz con respeto a fin de emitir sentencias claras y transparentes que garanticen la protección de los derechos fundamentales.
+- Fortalecer la transparencia e información en el ámbito judicial es vital para restaurar la confianza ciudadana. Mi propuesta consiste en mejorar los portales digitales de comunicación para optimizar el acceso a la información de los procesos, eliminando barreras informativas; de este modo, exista claridad en cada asunto, haciendo de la justicia, un camino más accesible, comprensible y digno para todos los mexicanos.
+- Las sentencias penales deben ser claras y comprensibles para todos. Mi propuesta es que se emitan decisiones complementarias a la jurídica en lenguaje sencillo, sin tecnicismos, explicando de manera directa el porqué de cada resolución. Lo importante es que cualquier ciudadano, sin importar su formación, entienda qué ocurrió en el proceso. Las sentencias deben ser transparentes, accesibles e imparciales, garantizando que la justicia llegue de forma clara, sin complejidades innecesarias.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: MIRIAM TELLO BAÑUELOS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3328212361
+Correo Electronico: miriamtello1111@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación, Crimen, Derecho Judicial, Derecho Penal, Docencia, Doctorado, Escena del Crimen, Formación, Licenciatura., Litigación Oral, Maestría, Seguridad Pública, Sistema de Justicia Penal Oral, UDG
+Tags Propósito: acceso a la justicia, atención directa, comunidades indígenas, comunidades rurales, confianza institucional, contextos sociales., empatía, escucha activa, grupos vulnerables, humanización de la justicia, inclusión, infancias, justicia móvil, justicia social, lenguaje accesible, mujeres, participación comunitaria, personas mayores, proximidad, resoluciones claras, responsabilidad social, transparencia, tribunales itinerantes, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+MIRIAM TELLO BAÑUELOS es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para el estado de Jalisco. Cuenta con doctorado en Derecho Judicial, además de maestría y licenciatura en Derecho, y actualmente es profesora en la Universidad de Guadalajara. Su trayectoria incluye diversas certificaciones y cursos en el Sistema de Justicia Penal Oral y litigación.
+
+Su motivación para buscar el cargo se centra en humanizar la justicia, priorizando a las personas, la credibilidad y la empatía. Su visión de la función jurisdiccional y la impartición de justicia se basa en la responsabilidad social, la ética y la comprensión del contexto individual, enfocándose en grupos vulnerables como mujeres, infantes y comunidades marginadas. Sus propuestas incluyen el uso de lenguaje accesible en resoluciones judiciales, la creación de espacios de atención directa para grupos vulnerables y la implementación de tribunales itinerantes para facilitar el acceso a la justicia en comunidades alejadas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15jvWUb6gc/?mibextid=wwXIfr
+- https://x.com/banuelostello?s=11&t=pI-P1DC_IfG5suwfSCqrNQ
+- https://www.instagram.com/miritelba?igsh=NjB3bWQ5dTloemZ3&utm_source=qr
+- https://www.tiktok.com/@miriamtello.0?_t=ZM-8v0zdzruYgX&_r=1
+- https://www.threads.net/@miritelba
+
+
+## Cursos
+
+- Docente certificada en el Sistema de Justicia Penal Oral (SETEC),Seminario Internacional Oral Adversarial (Universidad de San Diego),Capacitación Habilidades de Litigación Oral (Justice  Mexico Universidad de San Diego),Curso Taller Programa de Formación de Instructores para Instituciones de Procuración de Justicia y Seguridad Publica,Acreditación Formadora para Policías, Preservación y Procesamiento de la Escena (Sistema Nacional de Seguridad Publica)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55330/10
+
+
+## Trayectoria Academica
+
+- Con Licenciatura en Derecho, Maestría en Derecho Penal y Criminología, Doctorado en Derecho Judicial, y Profesora en UDG
+
+
+## Motivo para buscar el Cargo Publico
+
+Es urgente humanizar la justicia, poner al centro a las personas, generar credibilidad y empatía en la comunidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ejercerse con responsabilidad social, empatía y compromiso ético. No se trata únicamente de aplicar la ley, sino de entender el contexto de cada persona y ofrecer respuestas claras, humanas y efectivas. Para Miriam Tello Bañuelos, juzgar es una oportunidad para construir confianza en las instituciones, acercarse a las realidades cotidianas de las personas y actuar con sensibilidad ante las necesidades de los más vulnerables.Como una juzgadora presente, accesible y con vocación de servicio.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe dejar de ser un ideal lejano, para convertirse en una realidad. Un proceso cercano, humano y comprensible, donde las resoluciones no sean ajenas a las problemáticas sociales. La justicia debe ser inclusiva, clara, empatica, capaz de atender a los grupos históricamente más vulnerables: mujeres, infancias, personas mayores, comunidades indígenas y rurales. Humanizar la justicia implica poner al centro a las personas, escuchar activamente, y eliminar las barreras que impiden su acceso.
+
+
+## Propuestas
+
+- Garantizar que las resoluciones y actuaciones judiciales estén redactadas en un lenguaje sencillo y accesible, de modo que las personas entiendan plenamente las razones y el sentido de cada decisión.
+- Crear espacios de atención directa para que las personas pertenecientes a grupos vulnerables puedan expresar sus inquietudes, generando así espacios de proximidad con las personas juzgadoras, mediante escucha activa y accesibilidad.
+- Implementar tribunales itinerantes y participación comunitaria, aplicando jornadas de justicia móvil, facilitando el acceso a comunidades alejadas o con alto rezago social y así fomentar la colaboración, la transparencia, y confianza en la institución judicial.
+

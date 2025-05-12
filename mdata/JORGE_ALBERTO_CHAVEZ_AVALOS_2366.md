@@ -1,0 +1,79 @@
+Nombre Candidato: JORGE ALBERTO CHAVEZ AVALOS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5528543824
+Correo Electronico: litigiopenal@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información Pública, Amparo, Bbva Bancomer., Derecho Bancario, Derechos Humanos, FES Acatlán, Proceso Penal Acusatorio, Práctica Forense, UNAM, Universidad Iberoamericana, Universidad Panamericana, Ética Pública
+Tags Propósito: Acceso a la Justicia, Adolescentes, Asesoría Legal, Audiencias Remotas., Comunidades Marginadas, Constitución, Corrupción, Código Penal, Derechos Humanos, Discriminación, Eficiencia, Expedientes Electrónicos, Género, Inclusión, Justicia, Justicia Distributiva, Justicia Social, Legalidad, Niños, Poblaciones Vulnerables, Pueblos Indígenas, Rezago Judicial, Sistema Judicial, Tecnologías, Transparencia, Tribunales Móviles
+
+
+## Descripción del Candidato 
+
+Jorge Alberto Chavez Avalos es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, complementada por diversos cursos y diplomados en áreas como derecho bancario, práctica forense en amparo, ética pública, proceso penal acusatorio y acceso a la justicia y derechos humanos. 
+
+Su motivación para buscar el cargo se centra en el compromiso con la justicia y la transparencia. Propone reducir el rezago en la administración de justicia mediante la colaboración con las partes involucradas, combatir la corrupción y discriminación con una perspectiva inclusiva, y facilitar el acceso a la justicia a través de tecnologías y servicios gratuitos, promoviendo un sistema judicial ágil, imparcial y al alcance de todos. Su trayectoria académica incluye estudios en la FES Acatlan UNAM.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15bnE2LaW3/?mibextid=wwXlfr
+- https://www.tiktok.com/@abogado.vs.laimpunidad?_t=ZM-8v6AWYzRKsR&_r=1
+
+
+## Cursos
+
+- POSGRADO DERECHO BANCARIO
+- UNIVERSIDAD PANAMERICANA,DIPLOMADO PRACTICA FORENSE AMPARO
+- CENTRO DE CAPACITACION Y DESARROLLO HUMANO Bbva BANCOMER, S
+- A
+- ,SEMINARIO ETICA PUBLICA
+- INSTITUTO DE ACCESO A LA INFORMACION PUBLICA DEL DISTRITO FEDERAL,DIPLOMADO DE PROCESO PENAL ACUSATORIO
+- INSTITUTO NACIONAL DE CIENCIAS PENALES,DIPLOMADO DE ACCESO A LA JUSTICIA por la defensa efectiva de los Derechos Humanos
+- UNIVERSIDAD IBERO AMERICANA
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52764/11
+
+
+## Trayectoria Academica
+
+- Egresado de la Escuela Nacional de Estudios Profesionales FES ACATLAN UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy firmemente comprometido con la justicia y la transparencia en todos los aspectos del proceso judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Como parte de mi visón para el cargo de Juez de distrito, me comprometo a implementar prácticas innovadoras que mejoren la eficiencia del sistema judicial, acortando el tiempo excesivo que ahora tardan los procedimientos penales (cinco años). Estoy convencido de que mi experiencia, formación y compromisos con los valores fundamentales de la justicia como abogado humanista, idealista que busca la verdad y la justicia para proteger los derechos humanos de las victimas y del procesado.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Como ya le mencione la importancia de garantizar a las partes del procedimiento penal que reciban un trato justo y equitativo de forma expedita e imparcial ya que estoy decidido a trabajar para mejorar el acceso a la justicia para todas las personas, independientemente de su condición social y económica, cumpliendo los dogmas y procedimientos establecidos en la Constitución Política de los Estados Unidos Mexicanos, Tratados Internacionales y Código Nacional de Procedimientos Penales.
+
+
+## Propuestas
+
+- Mi compromiso es reducir el rezago en la administración de justicia, colaborando estrechamente con el personal del juzgado y partes técnicas en el procedimiento, quejosos y terceros interesados, evitando principalmente la suspensión de audiencias por inasistencia de las partes técnicas del procedimiento como lo hacen actualmente los agentes del ministerio público, policía, asesores jurídicos que a propósito no asisten a las audiencias perjudicando a la victima o al procesado.
+- Lucharé contra la corrupción y discriminación, implementando soluciones judiciales con una perspectiva inclusiva de genero, identidad de pueblos originales y derechos de los niños, niñas y adolescentes; fortaleciendo los mecanismos para mejorar el acceso a la justicia de las comunidades marginadas y poblaciones vulnerables a través de la promoción de servicios de asesoría legal gratuita y la implementación de tribunales móviles para que la justicia llegue a lugares remotos.
+- Por ello y ante la próxima elección extraordinaria para jueces y juezas me adhiero al interés nacional para brindar un acceso a la justicia de manera ágil, sencilla , imparcial y al alcance de las partes en conflicto en aras de una verdadera formación de respeto y fomento de la cultura de la legalidad, privilegiando la justica social y distributiva incentivando el uso de las tecnologías de acceso informático a los expedientes y audiencias vía remota por medios electrónicos.
+

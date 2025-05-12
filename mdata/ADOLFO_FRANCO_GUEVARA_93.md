@@ -1,0 +1,77 @@
+Nombre Candidato: ADOLFO FRANCO GUEVARA
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: francoguevaraadolfo@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información, Corrupción, Coursera, Derecho, Derecho Corporativo, Formación Continua., Justicia, Querétaro, Rendición de Cuentas, UAQ, UNAM
+Tags Propósito: Acceso a la justicia, Atención ciudadana, Confianza institucional, Eficiencia, Investigación administrativa, Itinerancia judicial, Justicia empática, Mecanismos alternativos de solución de controversias, Normativa interna, Resolución rápida, Responsabilidad administrativa, Transparencia, Tribunal de Disciplina Judicial., Verdad
+
+
+## Descripción del Candidato 
+
+Adolfo Franco Guevara es candidato a la Magistratura del Tribunal de Disciplina Judicial, postulándose a través del Poder Legislativo Federal. Cuenta con una formación académica en Derecho, siendo Licenciado por la Universidad Autónoma de Querétaro y Maestro en Derecho Corporativo por la Universidad Anáhuac Querétaro. Su motivación para buscar el cargo público radica en aportar su experiencia como abogado litigante en responsabilidades administrativas.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en una justicia empática, cercana a la población y expedita, enfocándose en escuchar a los ciudadanos y resolver los casos con rapidez. Sus propuestas incluyen limitar la duración de las investigaciones administrativas a seis meses, crear un centro de mecanismos alternativos de solución de controversias y establecer un programa de itinerancia para acercar el Tribunal a los usuarios y atender sus quejas directamente en los juzgados y tribunales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/FrancoGuevaraAdolfo
+- https://x.com/FrancoGuevaraAd?t=x6Y3jhIowQ9qhsUfC0TgWQ&s=09
+- https://www.instagram.com/francoguevaraadolfo?igsh=aGJocjI5c2xpeThn
+- https://youtube.com/@francoguevaraadolfo?si=GPRjOod36D-reuA-
+- https://www.tiktok.com/@francoguevaraadolfo?_d=secCgYIASAHKAESPgo8gqrAohWwZB6m2BLyj2FD0ayHrOrg2FcUb2D3peSEqUGbm2FgrLDHPZl5KgX8CYAyz2FH45bNNEjtr5eht2BpLlGgA3D&_svg=1&checksum=8cfc35b8f540ce12f57
+
+
+## Cursos
+
+- Taller 2: Justicia abierta y combate a la corrupción de la Red de Rendicion de Cuentas y el Programa Interdisciplinario,Curso  para servidores  en Municipio de Querétaro, 2007
+- ,Foro y Acceso a la Información Pública como herramienta útil en el Combate a la Corrupción
+- ,Curso en línea introducción a conceptos y perspectiva en UNAM y Coursera, 2020
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15686/7
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la U Autónoma de Querétaro y Maestro en Derecho Corporativo por la U Anáhuac Querétaro
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero aportar mi conocimiento y experiencia obtenidos como abogado litigante en responsabilidades administrativas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión se traduce en cuatro líneas estratégicas: JUSTICIA EMPÁTICA. Ponerme en los zapatos de los demás comunicándome de manera sencilla. SACAR EL ESCRITORIO A LAS CALLES. Salir a escuchar las quejas y denuncias de la gente. DESCUBRIR LA VERDAD Y RESOLVER EL CASO. Llegar con rapidez a la resolución del fondo de los casos. JUSTICIA POSIBLE. A partir de resultados concretos, satisfacer a la víctima y restaurar la confianza en la autoridad y en las instituciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad reclama una nueva forma de impartir justicia, más cercana a la población, más sencilla, más pronta y expedita, por parte de de juzgadores austeros. congruentes y comprometidos con los valores de la Verdad y la Justicia.
+
+
+## Propuestas
+
+- En reglamentación. o normatividad interna del Tribunal de Disciplina Judicial limitar la duración de la fase de investigación administrativa para integrar los Expedientes de Presunta Responsabilidad Administrativa a no más de 3 meses, con la posibilidad de una prórroga por 3 meses más. Es decir que la investigación de límite a no más de 6 meses como termino máximo para desahogarse y calificarse las conductas o emitirse acuerdo de concluyó archivo.
+- En reglamentación o normatividad interna del Tribunal de Disciplina Judicial crear el respectivo Centro de Mecanismos Alternativos de Solución de Controversias de conformidad a la vigente Ley General de Mecanismo Alternativos de Solución de Controversias.
+- Crear un robusto programa de itinerancia del Tribunal de Disciplina Judicial de.manera que los magistrados estemos gran parte de nuestro tiempo visitando PERSONALMENTE los tribunales y juzgados federales y escuchando a los usuarios, además de en los procedimientos jurídicos de visitas e inspecciones, en general mediante Jornadas de Atención y Escucha a la Ciudadanía. El Tribunal de Disciplina Judicial no debe esperar a que lleguen a él las quejas y denuncias, el Tribunal debe SALIR por ellas.
+

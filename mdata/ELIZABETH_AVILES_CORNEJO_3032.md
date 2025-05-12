@@ -1,0 +1,78 @@
+Nombre Candidato: ELIZABETH AVILES CORNEJO
+Cargo: Juezas/es de Distrito
+Entidad: QUERETARO
+Sexo: MUJER
+Telefono: 4421101840
+Correo Electronico: licelizabetha@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Arbitraje Comercial, Derecho Administrativo, Derecho Civil, Derechos Fundamentales, Derechos Humanos, Docente Universitaria, Escuela Judicial, Maestría, Mención Honorífica, Secretaría de Juzgado, Tribunal Colegiado, UNAM.
+Tags Propósito: Accesibilidad, Burocracia, Corrupción, Derechos Humanos, Dignidad, Discapacidad, Eficiencia, Experiencia, Formalismos, FunciónJurisdiccional, Género, Humanismo, Justicia, LenguajeAccesible, Modernización, Resolución, Servicio., Tecnología, Transparencia, Vulnerabilidad, Ética
+
+
+## Descripción del Candidato 
+
+ELIZABETH AVILES CORNEJO es candidata a Jueza/es de Distrito en Querétaro, postulada por el Poder Ejecutivo Federal. Cuenta con maestría en Derecho Civil y Administrativo, además de experiencia como docente universitaria. Su trayectoria profesional se extiende por más de 20 años en la función jurisdiccional.
+
+La candidata manifiesta su vocación de servicio y compromiso con la justicia, buscando un sistema más accesible, expedito y humano. Sus principales propuestas incluyen la simplificación de procesos y el uso de tecnologías para modernizar el sistema judicial, así como la capacitación constante de los operadores del sistema en derechos humanos y perspectiva de género para lograr sentencias justas y sensibles.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BieR6SxLe/?mibextid=wwXIfr
+- https://x.com/licelizabethavi?s=11
+- https://www.instagram.com/elizabethavilescornejo?igsh=MXN0YWk5b3NpaHo3Ng3D3D&utm_source=qr
+- https://www.tiktok.com/@elizabeth.aviles.cornejo?_t=ZM-8v2GXOTbc29&_r=1
+
+
+## Cursos
+
+- PROTECCIÓN DE DERECHOS FUNDAMENTALES (UNAM),ESPECIALIDAD EN SECRETARIA DE JUZGADO Y TRIBUNAL COLEGIADO (MENCIÓN HONORIFICA) ESCUELA JUDICIAL,PANEL SOBRE COLABORACIÓN Y ASISTENCIA JUDICIAL EN EL ARBITRAJE COMERCIAL
+- ESCUELA JUDICIAL,COMO HERRAMIENTA PARA LA IGUALDAD
+- ESCUELA JUDICIAL,SEMINARIO
+- PROFUNDIZANDO EN DERECHOS HUMANOS
+- ESCUELA JUDICIAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52386/11
+
+
+## Trayectoria Academica
+
+- MAESTRIA EN DERECHO CIVIL Y MAESTRIA EN DERECHO ADMINISTRATIVO (MENCIÓN HONORIFICA) DOCENTE UNIVERSITARIA
+
+
+## Motivo para buscar el Cargo Publico
+
+TENGO VOCACIÓN DE SERVICIO Y UN COMPROMISO CON LA JUSTICIA, ME RESPALDAN MAS DE 20 AÑOS DE EXPERIENCIA EN LA FUNCIÓN.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El setenta por ciento de la población percibe al sistema de justicia inaccesible e ineficaz; lleno de formalismos que no resuelven los problemas de las personas. Como juzgadora federal me comprometo firmemente a ejercer la función jurisdiccional con excelencia técnica, en el marco de la ley, con humildad y diligencia, pero sobre todo, con humanismo, respetando la dignidad de los ciudadanos y privilegiando el acceso a la justicia
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia efectiva debe ser humana, accesible y transparente; comprensible y cercana para todos. Creo en tribunales donde las personas puedan defender sus derechos sin trabas burocráticas. La modernización es clave, la tecnología debe ser una herramienta para simplificar procesos y acercar la justicia a los ciudadanos. Asimismo, creo que los jueces deben promover la ética en los litigantes. La colegiación y fiscalización de su labor coadyuvará a un sistema libre de corrupción.
+
+
+## Propuestas
+
+- Justicia más accesible y expedita. Para un acceso efectivo a la justicia, el juez debe eliminar los formalismos y trámites burocráticos. Es indispensable implementar mecanismos que permitan agilizar los procedimientos sin comprometer la calidad de las resoluciones. Además, es necesario que en las resoluciones se emplee un lenguaje simple y accesible a los ciudadanos, que resuelva los problemas jurídicos planteados, más allá de tecnicismos.
+- Uso de tecnología para modernizar el sistema judicial. La tecnología no es una opción, es una necesidad. un sistema judicial eficiente debe adoptar herramientas digitales que faciliten el acceso a la justicia y reduzcan la burocracia. Esto no solo mejora la transparencia, sino que también reduce tiempos de espera y facilita el acceso a la información. Muchas audiencias pueden realizarse en línea, sin afectar el debido proceso, con la finalidad de disminuir costos y tiempos de traslado.
+- Una justicia más humana y eficiente. La justicia no debe ser fria ni indiferente. Más allá de la legalidad, es fundamental que el sistema judicial tenga un enfoque humano, sensible y eficiente. Los jueces y operadores del sistema judicial deben recibir formación constante en derechos humanos, perspectiva de género, perspectiva de discapacidad y atención a grupos vulnerables. Esto permitirá sentencias justas y sensibles a las necesidades de los justiciables atendiendo a su contexto
+

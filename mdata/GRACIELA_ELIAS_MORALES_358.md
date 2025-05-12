@@ -1,0 +1,76 @@
+Nombre Candidato: GRACIELA ELIAS MORALES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8443126838
+Correo Electronico: eliasmoralesgraciela@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación jurídica, Derecho fiscal, Derecho penal, EFFJ, Formación jurídica., Licenciatura en derecho, Maestría en derecho, Oralidad, UNAM
+Tags Propósito: Acceso a la justicia, Comunicación, Derechos humanos, Eficacia, Expedición, Honestidad, Igualdad, Justicia, Lenguaje claro, Poder Judicial, Protección de derechos., Rectitud, Sentencias concisas, Suplencia de la queja, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Graciela Elías Morales es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal por el estado de Coahuila. Cuenta con Maestría en Derecho por la UNAM y ha realizado diversos diplomados y cursos en áreas como derecho fiscal, argumentación jurídica, oralidad y derecho penal, incluyendo formación por la EFFJ.
+
+Su motivación para el cargo público se centra en participar en la transformación de México y en la construcción de una justicia más humana y cercana a la gente. Su visión de la función jurisdiccional enfatiza la honestidad, transparencia y prontitud en la resolución de juicios, priorizando la protección de los derechos de las personas, especialmente las más vulnerables. Sus propuestas incluyen fortalecer el Poder Judicial, garantizar el acceso a la justicia para todos, simplificar la comunicación legal y agilizar los procesos judiciales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+http://gracielaeliasmorales.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18txzCNXEA/
+- https://x.com/gracielaeliasm?s=09
+- https://www.instagram.com/gracielaeliasmorales?igsh=MXhyZG13aWZuMWdldg==
+- http://www.youtube.com/@GracielaEliasMorales
+- https://www.tiktok.com/@gracielaeliasmorales?_t=ZM-8uvWLItQyxi&_r=1
+- https://whatsapp.com/channel/0029Vb53hKDHVvTWhwS7ko0Y
+
+
+## Cursos
+
+- Congreso de derecho fiscal (UAEM),Diplomado en Argumentación Jurídica EFFJ,Curso sobre Oralidad Civil, Mercantil y Familiar por la EFFJ,Diplomado en derecho penal por la UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52981/10
+
+
+## Trayectoria Academica
+
+- Soy licenciada y maestra en derecho por la UNAM, Especialista en curso básico de Formación por la EFFJ
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero estar con México en este proceso de cambio y construir juntos una justicia más humana y cercana a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En la función jurisdiccional lo más importante eres tú. Por ello, debe ejercerse con honestidad, rectitud, transparencia, escuchando a las personas y resolviendo con sensibilidad y de manera pronta los juicios. La función jurisdiccional es para servirte y proteger tus derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser sencilla y alcanzable para todos. También debe ser pronta y expedita, y garantizar el acceso de todas las personas en igualdad de condiciones. Además debe ejercerse siempre salvaguardando los derechos de las personas más vulnerables por cuestiones de sexto, edad, origen étnico, entre otras.
+
+
+## Propuestas
+
+- Construir de la mano de las personas un Poder Judicial Federal más sólido, incluyente, humano, transparente, eficaz y cercano a las personas.
+- Hacer que la justicia sea alcanzable parta todos, existen figuras como la suplencia de la queja que así lo permiten. También se deben establecer canales de comunicación con las personas que los mantengan informados de sus derechos. El dictado de las sentencias concisas y breves con un lenguaje sencillo que den prioridad a cuestiones de fondo sobre las de forma.
+- Resolver de manera pronta los asuntos. Una justicia que no es expedita no es justicia.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: IRINA ARELY CASTILLO FUENTES
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2221108013
+Correo Electronico: irinaarel3@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Actuaría, BUAP, Ciencias Penales, Juicios Orales, Maestría, Notaría
+Tags Propósito: Audiencias Virtuales, Capacitación, Defensa de Derechos, Derechos Humanos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Igualdad, Imparcialidad, Justicia, Legalidad, Población, Poder Judicial, Profesionalismo, Progresividad Penal, Prueba, Rezago Judicial, Sistema de Justicia, Tratados Internacionales., Ética, Ética Profesional
+
+
+## Descripción del Candidato 
+
+Irina Arely Castillo Fuentes es candidata a Jueza/es de Distrito por el Poder Legislativo Federal en Puebla. Abogada egresada de la BUAP, posee maestría en Ciencias Penales y en Juicios Orales, contando con cédula profesional. Su motivación para buscar el cargo público se centra en apoyar a la población y lograr un Estado de Derecho con acceso a la justicia.
+
+Su visión para la función jurisdiccional se basa en la ética, el profesionalismo y el apego a la legalidad, la imparcialidad y la igualdad. Sus propuestas incluyen la digitalización de procesos y audiencias virtuales para mejorar la eficiencia, agilizar los procesos judiciales para reducir el rezago, y fortalecer la capacitación continua en ética profesional y derechos humanos para el personal del Poder Judicial y abogados particulares.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/arely.castillo.752/about?locale=es_LA
+- https://x.com/ArelyCastilloMx?s=03
+- https://www.instagram.com/castilloarel?igsh=MXJjbm9vN2FsZjloZQ==
+- https://www.tiktok.com/@arel22901?_t=ZM-8v687XFBHMr&_r=1
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52647/11
+
+
+## Trayectoria Academica
+
+- Egresada por BUAP como Abogada, Notaria y Actuaría, Maestría en Ciencias Penales y Maestría en Juicios Orales
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero apoyar a la Población y lograr un verdadero Estado de Derecho y acceso a la Justicia pronta y expedita
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Trabajar y desempeñarme siempre con ética, profesionalismo y con estricto apego a los principios de legalidad, imparcialidad, igualdad, en pro de mejorar el Sistema de Justicia del Poder Judicial de la Federación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impulsar que la impartición de Justicia tenga un enfoque apegado a la realidad jurídica, evitando la vulnerabilidad de los elementos de prueba que impidan una adecuada defensa de derechos, lo anterior apegado en todo momento a los principios de imparcialidad legalidad, equidad e igualdad, evitando factores externos que puedan ponderar de manera errónea la impartición de Justicia; garantizando la progresividad en materia Penal.
+
+
+## Propuestas
+
+- Impulsar y fomentar la digitalización del total de actuaciones de los procesos, así fomentar la practica de audiencias virtuales accesibles a todas las partes involucradas, para lograr una eficaz y eficiente Impartición de Justicia.
+- Proponer e implementar estrategias para agilizar procesos y agilizar el rezago judicial.
+- Fortalecer y difundir la capacitación continua respeto a Ética Profesional y Derechos Humanos Dirigidas a el personal de Poder Judicial de la Federación así como a Abogados Particulares, con la finalidad de garantizar resoluciones Justas con respeto y perspectiva de Derechos Humanos y Tratados Internacionales.
+

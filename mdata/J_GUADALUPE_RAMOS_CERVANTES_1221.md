@@ -1,0 +1,74 @@
+Nombre Candidato: J. GUADALUPE RAMOS CERVANTES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MICHOACAN
+Sexo: HOMBRE
+Telefono: 4433901838
+Correo Electronico: ramoslupo@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Control de Convencionalidad, Derecho Laboral, Derecho Procesal, Derechos Humanos, Especialidad en Derecho., Grupos Vulnerables, Licenciatura en Derecho, Maestría en Derecho, Poder Judicial de la Federación, Procuración de Justicia, Seguridad Pública, Seguridad Social, Víctimas del Delito
+Tags Propósito: acceso a la justicia, capacidad, carrera judicial, confianza social, desarrollo, función jurisdiccional, honestidad, imparcialidad, justicia, mérito, paz social, profesionalismo, rapidez, sectores públicos, sectores sociales., tecnología
+
+
+## Descripción del Candidato 
+
+J. Guadalupe Ramos Cervantes es candidato a Magistratura de Tribunales Colegiados de Circuito en Michoacán, postulándose en la vía de En Funciones. Cuenta con Maestría en Derecho, complementada por diplomados en Derechos Humanos, Seguridad Pública, y materia de Seguridad Social, entre otros. Su trayectoria académica incluye una especialización en Derecho Procesal.
+
+Ramos Cervantes motiva su candidatura en la experiencia y preparación para impartir justicia imparcial. Su visión de la función jurisdiccional busca que el derecho y la justicia sirvan a la sociedad, promoviendo la paz social y el desarrollo del país. Sus propuestas incluyen la capacitación y profesionalización del personal judicial mediante un sistema de carrera, la intensificación del uso de herramientas tecnológicas para facilitar el acceso a la justicia, y la sensibilización de los sectores público y social hacia el respeto de la función jurisdiccional.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/J Guadalupe Ramos Cervantes
+- https://www.x.com/J Guadalupe Ramos
+- https://www.instagram.com/J Guadalupe Ramos Cervantes
+- https://www.tiktok.com/Ramos J. Guadalupe
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos, Seguridad Pública, Procuración de Justicia, Víctimas del Delito y Grupos Vulnerables,Diplomado en Materia de Seguridad Social,Curso Control de Convencionalidad, Dogmática y Jurisprudencia Comparada,Curso de Actualización sobre la Reforma en Materia de Justicia Laboral,Especialidad en Secretaría de Tribunal de Circuito y Juzgado de Distrito del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55255/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho Especialización en Derecho Procesal Maestría en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo la experiencia y preparación necesarias para impartir justicia imparcial y honesta en favor de las personas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr que el derecho y la justicia estén al servicio de la sociedad, como efectiva herramienta para dirimir controversias que coadyuve a lograr la paz social, además, que al resolver los conflictos dé certeza a los distintos sectores públicos y privados, para contribuir al desarrollo del país.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que cada asunto puesto en conocimiento de una persona juzgadora se resuelva con profesionalismo, rapidez, honestidad y de manera imparcial. Que sean las personas la consideración primordial en la toma de decisiones jurisdiccionales.
+
+
+## Propuestas
+
+- Capacitar y profesionalizar a las personas que laboran en los poderes judiciales, estableciendo un sistema de carrera judicial para todos los cargos, esto es, que cualquier persona pueda llegar, mediante sus méritos y capacidad a los más altos cargos, pues solo así se garantiza la experiencia y conocimientos para impartir justicia de calidad.
+- Intensificar el uso de herramientas tecnológicas, mediante la inversión necesaria, para facilitar el acceso a la justicia de todas las personas de este país, es decir, permitir la justicia a distancia.
+- Sensibilizar a los distintos sectores públicos y sociales a que respeten la función jurisdiccional, es decir, que los discursos de todos los funcionarios, desde la Presidenta de la República y a todos los niveles coadyuve a fortalecer la confianza social en las personas juzgadoras.
+

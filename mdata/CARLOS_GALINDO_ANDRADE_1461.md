@@ -1,0 +1,73 @@
+Nombre Candidato: CARLOS GALINDO ANDRADE
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2222608779
+Correo Electronico: aries21march@yahoo.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Actuarios, Capacitación, Especialización judicial, Extinción de Dominio, Formación., Poder Judicial de la Federación, Puebla, Secretarios de Juzgados, Suprema Corte de Justicia, UPAEP
+Tags Propósito: Accesibilidad, Bien común, Cercanía, Confianza institucional, Derechos fundamentales, Eficiencia, Escucha activa., Grupos vulnerables, Igualdad ante la ley, Independencia judicial, Justicia humana, Justicia social, Motivación reforzada, Orden jurídico, Paz social, Perspectiva de género, Seguridad jurídica, Tecnología digital, Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Galindo Andrade es candidato a Magistrado de Tribunales Colegiados de Circuito por el Poder Legislativo Federal en Puebla. Cuenta con licenciatura y un título profesional, además de diversas especializaciones y certificaciones en el ámbito judicial, incluyendo preparación para Actuarios, Secretarios de Juzgados y Extinción de Dominio. 
+
+Su motivación para buscar el cargo público se centra en la impartición de justicia con visión social y protección del bien común. Su visión de la función jurisdiccional prioriza la igualdad ante la ley, la protección de derechos fundamentales y la transparencia. Sus propuestas principales incluyen el fortalecimiento de la independencia y transparencia a través de tecnologías digitales, el acceso a la justicia priorizando a grupos vulnerables con perspectiva de género, y la propiciación de la cercanía y accesibilidad con los justiciables.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/carlos.galindoandrade
+- https://www.instagram.com/carlosgalindoand
+- https://www.tiktok.com/@carlos.galindo.an
+
+
+## Cursos
+
+- Especialización judicial Preparación y capacitación para Actuarios del Poder Judicial de la Federación,Preparación y capacitación para los Secretarios de Juzgados de Distrito,Preparación y capacitación para Secretarios de estudio y cuenta de la Suprema Corte de Justicia de la Nación,Certificación en Extinción de Dominio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53286/10
+
+
+## Trayectoria Academica
+
+- Realice todos mis estudios en la   de Puebla, en instituciones públicas y la universidad en la UPAEP
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi principal finalidad es la impartición de la justicia con visión social y protección al bien común
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar la igualdad ante la ley con apertura y cercanía con los justiciables, proteger los derechos fundamentales y mantener el orden jurídico. Ser imparcial, independiente y transparente para brindar seguridad jurídica al pueblo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser accesible, eficiente y humana, fortaleciendo la confianza en las instituciones y consolidando la paz social.
+
+
+## Propuestas
+
+- Fortalecimiento de la independencia y transparencia, implementandolos avances tecnológicos digitales de acceso público e informado
+- Acceso a la Justicia, priorizando atención a grupos vulnerables y con perspectiva de género, realizando una motivación reforzada que sustente las decisiones en tales supuestos
+- Propiciar las condiciones de cercanía y accesibilidad con los justiciables, escuchando sus inquietudes y puntos de vista, a fín de lograr un conocimiento completo e integral de cada caso en particular
+

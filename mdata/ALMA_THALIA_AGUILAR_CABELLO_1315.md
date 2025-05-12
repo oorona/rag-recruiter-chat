@@ -1,0 +1,82 @@
+Nombre Candidato: ALMA THALIA AGUILAR CABELLO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 8128751919
+Correo Electronico: almathaliaagc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Adjudicación Judicial, Derecho, Formación Judicial, Gestión Pública, Justicia., Metodologías Sociales, Perspectiva de Género, SCJN, Secretarios Poder Judicial, Sistema Penal Acusatorio, Tec de Monterrey
+Tags Propósito: Capacitación, Contexto Social, Derechos Humanos, Dignidad, Eficiencia, Fondo vs. Forma, Formalismos, Igualdad, Independencia, Justicia, Justicia Social, Patriotismo, Reparación de Conflictos, Resolución de Conflictos., Servicio Público, Ética
+
+
+## Descripción del Candidato 
+
+Alma Thalia Aguilar Cabello es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal y el Poder Judicial de la Federación en Nuevo León. Cuenta con Maestría en Gestión Pública Aplicada y una trayectoria académica destacada por el Tec de Monterrey. Su motivación para el cargo es contribuir a un sistema judicial responsable, ético y sensible al contexto social.
+
+La candidata propone una función jurisdiccional basada en la independencia, ética y profesionalismo, enfocando la impartición de justicia en la reparación de conflictos con apego a la ley y considerando el impacto social de las decisiones judiciales. Sus propuestas incluyen sensibilizar al personal judicial contra la discriminación, implementar programas de capacitación y herramientas tecnológicas para reducir el rezago, y priorizar el fondo sobre la forma en los procesos legales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/almathaliaagc
+- https://www.instagram.com/almathaliaagca/
+
+
+## Cursos
+
+- Especialidad: Curso básico de formación y preparación de Secretarios del Poder Judicial de la Federación
+- (2018),Diplomado en sistema penal acusatorio 4ª
+- edición
+- Escuela Federal de Formación Judicial (2022)
+- ,Seminario perspectiva de género y adjudicación judicial: una visión desde el PJF
+- Escuela Federal de Formación Judicial
+- ,Curso de actualización: teoría y práctica del sistema penal acusatorio a través de los precedentes de la SCJN
+- ,Diplomado: Metodologías sociales en el proceso penal
+- Para un acceso efectivo a la justicia
+- IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52198/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho y Maestra en Gestión Pública Aplicada por el Tec de Monterrey, graduada con honores
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo contribuir al sistema judicial de mi país, impartiendo justicia responsable, ética y sensible al contexto social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe erigirse en los principios de independencia, ética, profesionalismo y amor por el servicio público. Servir a la ciudadanía desde el ámbito jurisdiccional es un objetivo concreto al que todo operador jurídico aspira pues, ejercer la función de manera correcta haciendo lo que es debido, implica ser un verdadero patriota ya que se antepone el beneficio colectivo de nuestro país a los intereses personales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+A. Goddard menciona que  justicia es un fin natural de la vida  y refiere que es precisamente el juzgador quien deberá definir objetivamente lo que es justo, para así reparar los conflictos sociales. En ese sentido, considero que la impartición de justicia debe centrarse en que cada quien tenga lo que le corresponde, con apego al derecho, conciencia y responsabilidad del impacto que cada una de las decisiones judiciales tiene en el contexto social y particular de los ciudadanos.
+
+
+## Propuestas
+
+- Sensibilizar al personal a efecto de erradicar en la atención al público cualquier trato elitista o atentatorio contra la dignidad e igualdad de los ciudadanos justiciables y sus familias. Asimismo, atender en las sentencias cualquier discriminación de origen étnico o nacional, de género, edad, discapacidades, condición social, condiciones de salud, religión, opiniones, preferencias sexuales y estado civil, que menoscabe cualquiera de los derechos humanos de los que gozan las personas.
+- Capacitación jurídica y administrativa constante y obligatoria para el personal, así como implementación de programas informáticos que permitan reducir tiempos de trabajo para combatir el rezago en el órgano jurisdiccional y eficientar la producción de sentencias completas, debidamente fundadas, motivadas y apegadas a una verdadera justicia social.
+- Privilegiar en la medida de lo legalmente aplicable el fondo sobre la forma. Esto es, evitar reposiciones de juicio por formalismos innecesarios o que no otorguen un beneficio a largo plazo a las partes sino que, por el contrario, prolonguen la resolución de los conflictos, independientemente de la complejidad de los mismos.
+

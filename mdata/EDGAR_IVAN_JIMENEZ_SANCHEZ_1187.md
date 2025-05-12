@@ -1,0 +1,80 @@
+Nombre Candidato: EDGAR IVAN JIMENEZ SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5539804451
+Correo Electronico: edgar.jimenezs@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho Internacional de Derechos Humanos, Derecho Procesal Constitucional, Desafíos CoIDH., Diplomado, Licenciatura en Derecho, Maestría, Seminario Internacional, Sistema Interamericano de Derechos Humanos, UNAM, Universidad Iberoamericana, Universidad Panamericana, Universidad de Buenos Aires, Universidad de Salamanca
+Tags Propósito: acceso a la justicia, derechos., desigualdad, eficiencia, imparcialidad, independencia judicial, justicia, nepotismo, privilegios, profesionalismo, realidad social, servicio público, sistema judicial, transparencia, tribunales
+
+
+## Descripción del Candidato 
+
+Edgar Iván Jiménez Sánchez es candidato a Magistrado de Tribunales Colegiados de Circuito en México. Cuenta con Maestría en Derecho Procesal Constitucional por la Universidad Panamericana y estudios de especialización en Derecho Constitucional en la Universidad de Salamanca (España) y la Universidad de Buenos Aires (Argentina), además de diplomados en Derechos Humanos. 
+
+Su motivación para buscar el cargo es servir a la ciudadanía con profesionalismo y conciencia social, buscando un sistema judicial amable, accesible e imparcial que considere las desigualdades existentes. Sus propuestas incluyen fortalecer la independencia judicial, simplificar el acceso a los tribunales y basar las decisiones judiciales en la teoría, la práctica y la realidad del país.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/eijisa/?locale=es_LA
+- https://x.com/edgar_ijs
+- https://www.instagram.com/edgar_ijs/
+- https://www.tiktok.com/@edgar_ijs
+- https://mx.linkedin.com/in/edgar-ivC3A1n-jimC3A9nez-sC3A1nchez-83b7a954
+
+
+## Cursos
+
+- Curso de especialidad en Derecho Constitucional, Universidad de Salamanca, España;,Curso de Derecho Constitucional, Convencional y Procesal Constitucional
+- Universidad de Buenos Aires, Argentina;,Diplomado de Formación en el Sistema Interamericano de Derechos Humanos, Instituto de Investigaciones Jurídicas U
+- N
+- A
+- M
+- ,Diplomado en Derechos Humanos, Universidad Iberoamericana, Ciudad de México;,Seminario internacional  Nacional e Internacional, Desafíos  CoIDH
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53321/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho UNAM Maestría en Derecho Procesal Constitucional Universidad Panamericana
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la gente con profesionalismo y consciencia sobre la realidad que vive nuestro país. Justicia con dignidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Que las personas contemos con un tribunal amable, accesible, dispuesto a escuchar, imparcial e independiente y que tenga presente las desigualdades que existen en México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una justicia de puertas abiertas para todas las personas, que todo aquel que tenga un problema pueda acceder al servicio los órganos jurisdiccionales con la confianza de que el asunto se estudiara con profesionalismo, con conocimiento y con consciencia de la realidad que se vive a diario.
+
+
+## Propuestas
+
+- La función de los jueces debe considerar la teoría, la práctica y la realidad de México.
+- Se debe fortalecer la independencia judicial, desterrar el nepotismo y eliminar los privilegios.
+- Generar un sistema de acceso a los tribunales mas sencillo y rápido al servicio de todas las personas.
+

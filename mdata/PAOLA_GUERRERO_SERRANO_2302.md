@@ -1,0 +1,77 @@
+Nombre Candidato: PAOLA GUERRERO SERRANO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5662400770
+Correo Electronico: juezaguerrero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Concursos Mercantiles, Derecho Concursal, Extinción de Dominio, Formación Judicial, IFJ, Mención Honorífica, Poder Judicial Federal, Reforma Judicial 2021, UNAM, Violencia.
+Tags Propósito: Acceso a la Justicia, Atención Ciudadana, Derechos Humanos, Eficiencia Judicial., Grupos Minoritarios, Imparcialidad, Juicios Rápidos, Juicios de Amparo, Justicia, Justicia Digital, Legalidad, Lenguaje Sencillo, Paz Social, Principios Constitucionales, Resolución de Conflictos, Sentencias Realistas, Suspensiones, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Paola Guerrero Serrano es abogada egresada de la Universidad Nacional Autónoma de México, con grado de Mención Honorífica, y aspira al cargo de Jueza/es de Distrito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Cuenta con formación continua en áreas como extinción de dominio, derecho concursal, y la reforma judicial de 2021, además de especializaciones en formación para Secretarios del Poder Judicial Federal y prevención de violencia.
+
+Su motivación para buscar el cargo se basa en su deseo de contribuir al cambio dentro del Poder Judicial de la Federación y en su compromiso con la justicia y los derechos humanos. Sus propuestas se centran en lograr una función jurisdiccional apegada a los principios constitucionales, impartir justicia de manera imparcial y eficiente, y acercar la justicia a los ciudadanos a través de juicios rápidos, lenguaje accesible y atención prioritaria a grupos vulnerables. Además, propone agilizar los dictados de sentencias en juicios de amparo y crear un espacio digital para acompañar al justiciable.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/pao95588782?s=21&t=0DpRWxp17KCRqw3Yd9dBKQ
+- https://www.instagram.com/juezaguerrero?igsh=MXMwZXJzZHd6c2QzdA3D3D&utm_source=qr
+- https://www.tiktok.com/@paola.guerrero.serrano?_t=ZM-8uwVDuuf0oZ&_r=1
+
+
+## Cursos
+
+- Especialidad: Formación y Preparación de Secretarios del Poder Judicial Federal; Instituto de la Judicatura Federal
+- ,Diplomado: Para Generar Espacios Libres De Violencia; Escuela Federal De Formación Judicial
+- ,Certificación De Extinción De Dominio; Instituto De La Judicatura Federal, Extensión Jalisco
+- ,Curso: La Reforma Judicial 2021; Escuela Federal De Formación Judicial
+- ,Diplomado: En Derecho Concursal; IFJ, Instituto Federal De Especialistas de Concursos Mercantiles y la Barra Nacional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53535/11
+
+
+## Trayectoria Academica
+
+- Abogada egresada de la Universidad Nacional Autónoma de México, con grado de Mención Honorífica
+
+
+## Motivo para buscar el Cargo Publico
+
+Amo a mi país, para ayudar a mis semejantes, y ocupando este cargo se que puedo formar parte del cambio del PJF.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Lograr que la función jurisdiccional atienda a los principios constitucionales. Implementar estrategias que garanticen la protección de los derechos humanos para alcanzar la paz social mediante la justicia. Resolver conflictos jurídicos en estricto cumplimiento de las normas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia en todo momento con la firme convicción de que la función jurisdiccional nunca debe paralizarse. Alcanzar altos estándares en la impartición de justicia, resolviendo siempre los conflictos de manera imparcial y conforme a derecho. Garantizar en todo momento el respeto y cumplimento de los derechos y obligaciones previstos en la ley, así como la protección de los derechos humanos, para mantener el orden social mediante procesos legales y resoluciones justas.
+
+
+## Propuestas
+
+- Justicia cercana y tangible para los ciudadanos, a través de juicios rápidos con sentencias realistas, con lenguaje sencillo para que todos los ciudadanos las entiendan, emitidas con sensibilidad, protectoras de derechos humanos.
+- Atención prioritaria a los juicios relacionados con menores, personas adultas mayores, grupos vulnerables y personas que forman parte de grupos minoritarios. Escuchar a los ciudadanos que quieran conversar sobre los problemas que se ventilan en un órgano jurisdiccional federal en materia civil.
+- En juicios de amparo el 90 de las sentencias serán dictadas el mismo día que sea celebrada la audiencia constitucional, asimismo, se emitirán suspensiones justas y legales. Crear un espacio digital que lleve la justicia a las personas, a través del cual el justiciable se sepa acompañado.
+

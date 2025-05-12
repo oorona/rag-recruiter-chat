@@ -1,0 +1,72 @@
+Nombre Candidato: IAN GERARDO HERNANDEZ MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6145315874
+Correo Electronico: iangerardohernandezmartinez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Anticorrupción, Cumplimiento Normativo, Derecho, Derecho Constitucional, Derechos Humanos, Gestión Pública, Lavado de Dinero, Maestría., Suprema Corte de Justicia de la Nación, Transparencia, UACH, UNAM
+Tags Propósito: Acceso a la justicia, Ciudadanía, Comunicación clara, Convenios locales, Corrupción, Democracia, Eficiencia judicial, Idiomas indígenas, Orientación legal, Poder Judicial, Poliglotismo, Puertas abiertas., Rendición de cuentas, Transparencia, Tribunal de Disciplina Judicial, Voto popular
+
+
+## Descripción del Candidato 
+
+Ian Gerardo Hernandez Martinez es candidato a Magistrado de Tribunales Colegiados de Circuito por el Poder Judicial de la Federación, en el estado de Chihuahua. Cuenta con Maestría en Derechos Humanos y Derecho Constitucional, así como estudios en Gestión Pública (en curso) y diplomados en Cumplimiento Normativo, Transparencia, Lavado de Dinero y Anticorrupción, y en Amparo de la Suprema Corte de Justicia de la Nación. 
+
+Su motivación para buscar el cargo se basa en su preparación profesional y su compromiso con México. Su visión para la función jurisdiccional y la impartición de justicia se centra en acercar el Poder Judicial a la ciudadanía a través de la elección popular de sus integrantes y en fortalecer la transparencia y rendición de cuentas mediante la creación de un Tribunal de Disciplina Judicial. Sus propuestas incluyen la instalación de oficinas informativas del Poder Judicial en las cabeceras municipales, la elaboración de resoluciones de lectura fácil y ofrecer orientación a los ciudadanos, incluso fuera de su competencia directa.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://iangerardohernandez.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BWwf893aH/
+
+
+## Cursos
+
+- Diplomado en Cumplimiento Normativo, Transparencia, Lavado de Dinero y Anticorrupción UNAM,Diplomado en Amparo Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53493/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho UACH; Maestro en Derechos Humanos y Derecho Constitucional; Maestro en Gestión Pública (cursando)
+
+
+## Motivo para buscar el Cargo Publico
+
+Por que soy un profesional de la materia, toda mi vida me he preparado para esto y amo a mi México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Se enfoca en dos ejes principales: 1) Mayor cercanía con la ciudadanía a través de la elección del voto popular por sus integrantes, desde los Ministros hasta los Jueces de Distrito, buscando que el Poder Judicial sea más representativo y democrático. Y 2) Transparencia y Rendición de Cuentas por medio de la creación del Tribunal de Disciplina Judicial quienes supervisaran y sancionaran el desempeño de los juzgadores garantizando que las resoluciones se dicten con mayor rapidez y sin corrupción.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se enfoca en dos ejes principales: 1) Mayor cercanía con la ciudadanía a través de la elección del voto popular por sus integrantes, desde los Ministros hasta los Jueces de Distrito, buscando que el Poder Judicial sea más representativo y democrático. Y 2) Transparencia y Rendición de Cuentas por medio de la creación del Tribunal de Disciplina Judicial quienes supervisaran y sancionaran el desempeño de los juzgadores garantizando que las resoluciones se dicten con mayor rapidez y sin corrupción.
+
+
+## Propuestas
+
+- Crear junto con el Poder Judicial local convenios en cada una de las cabeceras municipales del estado a fin de que existan oficinas del PODER JUDICIAL para que informen a la ciudadanía cual es el estatus de su problema legal, siendo las personas responsables de cada oficina ser poliglotas de acuerdo a lo que se use en la región, por poner un ejemplo quien este a cargo de la oficina en ciudad Cuauhtémoc, Chih., deberá hablar castellano, alemán (menonitas) y rarámuri.
+- Que las resoluciones, todas, sean de lectura fácil, a manera que la madre o padre que son mayores de edad y que quizás no tuvieron estudios, sepan y comprendan por que estan sentenciando a su hijo.
+- Puertas abiertas, inclusive si no es de mi competencia el asunto tratado, poder orientarlos con quién lleve su asunto.
+

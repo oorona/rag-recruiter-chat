@@ -1,0 +1,80 @@
+Nombre Candidato: SERGIO ARTURO GODINEZ VEGA
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 7771350097
+Correo Electronico: sergioarturogv@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Cédula Profesional., Derecho Penal, Doctor en Derecho, Escuela Judicial Federal, Licenciado en Derecho, Mención Honorífica, Secretario de Juzgado, Técnico Laboratorista
+Tags Propósito: Acceso a la Justicia, Confianza, Derechos Humanos, Digitalización, Eficiencia, Empatía, Estabilidad Social, Función Jurisdiccional, Inteligencia Artificial, Jurisprudencia, Justicia, Legitimidad, Modernización, Pertenencia Social., Poder Judicial Federal, Sensibilidad Social, Servidores Públicos, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Sergio Arturo Godínez Vega es candidato a Juez/a de Distrito en Morelos, postulándose para el Poder Judicial de la Federación. Cuenta con un alto nivel de escolaridad, incluyendo un Doctorado en Derecho con mención honorífica, maestría y licenciatura en Derecho, así como formación especializada como Secretario de Juzgado y Tribunal desde 2007.
+
+El candidato expresa su motivación para el cargo como un deseo de servir a la sociedad con eficiencia y propone fortalecer la función jurisdiccional mediante la actualización continua del derecho, la incorporación de empatía y sensibilidad social, y el uso de la tecnología.  Sus propuestas también incluyen el cuidado y desarrollo de las habilidades de los servidores públicos del sistema judicial, y la adaptación tecnológica del Poder Judicial para mejorar el acceso a la justicia y la eficiencia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573553037168
+- https://x.com/sergioarturogv
+- https://www.instagram.com/sergioarturogv/
+- https://www.youtube.com/@sergioarturogvYT
+- https://www.tiktok.com/sergioarturogv
+- https://www.facebook.com/sergioarturogv
+
+
+## Cursos
+
+- Doctor en Derecho titulado con Mención Honorífica en El Colegio de Morelos, con cédula profesional 14453467
+- ,Maestro en Derecho con Orientación Terminal en Derecho Penal, con cédula profesional 7389620
+- ,Licenciado en Derecho en la Universidad Autónoma del Estado de Morelos, con cédula profesional 4908331
+- ,Curso de Secretario de Juzgado de Distrito y de Tribunal Colegiado, Escuela Judicial Federal, desde 2007
+- ,Técnico Laboratorista Industrial Farmacéutico, titulado por Promedio, con cédula profesional 9637477
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53165/11
+
+
+## Trayectoria Academica
+
+- Doctor en Derecho con Mención Honorífica, Maestro en Derecho, Licenciado en Derecho y Secretario de Juzgado y Tribunal
+
+
+## Motivo para buscar el Cargo Publico
+
+Me conformé como jurista para ser un Juez eficiente y con la mejor actitud de servicio a la sociedad, a que nos debemos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El Poder Judicial Federal debe legitimarse ante la sociedad mexicana como ente jurídico garante de confianza, eficacia y pertenencia social, resolviendo los conflictos jurídicos con justicia y de manera eficiente y pronta; pues con ese enfoque de función jurisdiccional que es necesario, se habrá de alcanzar la estabilidad armónica social que el Estado Mexicano, el pueblo y sus habitantes reclaman.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Para que la impartición de justicia pueda legitimarse ante el pueblo y sus habitantes, debe ser eficaz, con base en la experiencia y formación de los servidores públicos que lo conforman; humana, a través de las habilidades sociales de éstos; y moderna, haciendo uso de la tecnología; lo cual, evidentemente, redundará en el mejoramiento de la impartición de justicia en México y en la percepción social de la ciudadanía que merece una justicia eficiente, accesible y con pertenencia social.
+
+
+## Propuestas
+
+- La función jurisdiccional. Como Juez del Poder Judicial de la Federación, se habrá de actualizar y fortalecer continuamente la doctrina jurídica, fuentes del derecho y jurisprudencia; incorporando empatía y sensibilidad social con los ciudadanos que requieren de nuestros servicios, aplicando principios universales, derechos humanos y tratados internacionales de los que el Estado Mexicano forma parte, pero con legitimación social y ganándonos la confianza y reconocimiento del pueblo.
+- La condición humana del Poder Judicial de la Federación. Como juzgador federal se protegerá a las personas servidoras públicas que impulsan el sistema de impartición de justicia; porque son seres humanos que merecen cuidado y consideración, ya que para impartir justicia, se debe garantizar la misma a quienes contribuyen en otorgarla; dotándoseles de habilidades modernas (inteligencia emocional, manejo de conflictos y métodos de negociación) que trascenderán en una eficiente labor judicial.
+- La adaptación tecnológica del Poder Judicial de la Federación. El Poder Judicial Federal tiene la invaluable oportunidad de hacer un uso eficiente del avance de herramientas tecnológicas en beneficio directo de los ciudadanos y de los propios operadores jurídicos que lo conforman, principalmente con la digitalización y acceso por internet a los asuntos, como con el desarrollo de inteligencias artificiales en pro de la función e impartición de justicia, perceptible y sensible al pueblo.
+

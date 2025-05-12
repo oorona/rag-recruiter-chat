@@ -1,0 +1,87 @@
+Nombre Candidato: CARLOS ERNESTO ECHEVERRIA ALVARADO
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3319961040
+Correo Electronico: carlosecheverria1981@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Abuso Sexual, Derecho Penal, Derechos Niñez Adolescencia, Juicio Oral Penal, Justicia Penal Adolescentes, Maestría, Proceso Penal Acusatorio, Protección Integral, SCJN, U de G, UNAM, Universidad América Latina.
+Tags Propósito: Acceso a la Justicia, Confianza Ciudadana, Constitución Política, Derechos Humanos, Humanismo, Imparcialidad, Justicia, Plazos Legales, Proceso Penal., Reforma Judicial, Servicio Público, Tribunales, Tutela Efectiva, Ética
+
+
+## Descripción del Candidato 
+
+Carlos Ernesto Echeverria Alvarado es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Ejecutivo Federal. Cuenta con estudios de Maestría en Derecho Penal y cédula profesional como abogado. Ha realizado diversos cursos de actualización en áreas como juicio oral penal, justicia penal para adolescentes, derechos de la niñez y proceso penal acusatorio.
+
+Su motivación para buscar el cargo es contribuir a los objetivos de la Reforma Judicial. Su visión se centra en transformar la función jurisdiccional acercando la justicia a la sociedad, respetando los principios fundamentales y sirviendo a la gente. Sus propuestas incluyen resolver los asuntos con prontitud, garantizar la tutela efectiva de los derechos humanos en el proceso penal y mantener un compromiso de servicio público.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/carlos.echeverria.796774
+- https://x.com/Carlos810215
+- https://www.instagram.com/carlos.echeverriaa/
+- https://www.tiktok.com/@carlosecheverria1838
+
+
+## Cursos
+
+- Habilidades y destrezas en juicio oral penal
+- SCJN/Casa de la Cultura Jurídica de Guadalajara
+- 2024
+- ,Curso Especializado en Justicia Penal para Adolescentes
+- Educación Continua IIJ UNAM
+- 2024
+- ,Derechos de la Niñez y la Adolescencia
+- SCJN/Casa de la Cultura Jurídica de Guadalajara
+- 2024
+- ,Protección Integral de Niñas, Niños y Adolescentes que han sido victimas de abuso sexual en México
+- SCJN/CCJ/GDL
+- 2024,Curso de Proceso Penal Acusatorio y Oral
+- Universidad América Latina
+- Año 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52867/11
+
+
+## Trayectoria Academica
+
+- Abogado titulado de la U de G, Cedula Federal 5703286; y Maestría en Derecho Penal, Cedula Federal 14164896
+
+
+## Motivo para buscar el Cargo Publico
+
+Como ciudadano de a pie, de nuestra sociedad estoy comprometido con cumplir con los objetivos de la Reforma Judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ha llegado el momento de transformar tanto la visión como el servicio que tienen encomendados los tribunales. Hoy soplan nuevos vientos que inspiran esperanza y la posibilidad real de acercar la justicia a la sociedad. A partir de este día, las nuevas personas juzgadoras deberán responder únicamente a los principios fundamentales de justicia, siendo leales a ellos y teniendo como única vocación el servicio a la gente.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la impartición de justicia es que se cumplan los principios establecidos en el artículo 17 de nuestra Constitución Política de los Estados Unidos Mexicanos, es decir, que se imparta en los plazos y términos que fijen las leyes, donde los tribunales emitan sus resoluciones de manera pronta, completa e imparcial, y de forma gratuita, todo lo anterior en beneficio de las personas.
+
+
+## Propuestas
+
+- Resolver todos los asuntos con la mayor prontitud posible, en base a los valores de imparcialidad, ética y humanismo.
+- Garantizar la tutela efectiva de los derechos humanos de las víctimas e imputados, dentro del proceso penal, con estricto apego a la Ley.
+- Tener el compromiso claro de servir a la gente, quienes pueden depositar en mí su confianza, en el cargo público al que me estoy postulando.
+

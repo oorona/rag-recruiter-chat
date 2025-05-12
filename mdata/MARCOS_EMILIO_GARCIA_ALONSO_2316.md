@@ -1,0 +1,79 @@
+Nombre Candidato: MARCOS EMILIO GARCIA ALONSO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5512407172
+Correo Electronico: garciaalonsomarcosemilio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Audiencia Inicial, Delitos Sexuales, Derecho, Derecho Corporativo, Derecho Fiscal, Derecho Procesal Penal, Juicio Oral, Juicio de Nulidad, Licenciatura., Litigación, Maestría, Proceso Penal Acusatorio, Sistema Acusatorio Adversarial, Tribunal Contencioso Administrativo
+Tags Propósito: Acceso a la Justicia, Confianza Ciudadana, Defensa, Delincuencia organizada, Derechos Fundamentales, Derechos Humanos, Eficiencia, Equidad, Estado de Derecho, Fiscalia, Formación jurídica, Honestidad, Imparcialidad, Jueces sin rostro, Juicios abreviados, Juicios orales, Justicia, Protección de operadores de justicia, Publicidad, Rendición de cuentas, Resolución de conflictos., Responsabilidad Ética, Terminación anticipada, Transparencia, Transparencia judicial, Víctimas, Ética
+
+
+## Descripción del Candidato 
+
+MARCOS EMILIO GARCIA ALONSO es candidato a Juez/a de Distrito en la Ciudad de México, postulándose al Poder Judicial de la Federación y al Poder Legislativo Federal. Cuenta con Maestría en Derecho, especializándose en Derecho Procesal Penal, Corporativo y Fiscal, y ha completado diversos cursos en temas de litigación penal acusatoria y oral, incluyendo derechos humanos y procesos administrativos. 
+
+Su motivación para el cargo es servir con profesionalismo, ética y honestidad, independientemente de influencias externas. Su visión para la función jurisdiccional y la impartición de justicia se centra en la verdad, la equidad, la transparencia, el acceso a la justicia y el respeto a los derechos humanos. Sus propuestas incluyen el fortalecimiento de la implementación de jueces sin rostro para proteger a los operadores de justicia, la promoción de la publicidad como herramienta de rendición de cuentas, y garantizar juicios orales con pleno respeto a los derechos humanos, promoviendo mecanismos de terminación anticipada como los juicios abreviados.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/profile.php?id=61574739691991
+- https://x.com/juezmarcosemili?s=11&t=WPlJbFl9biHaZGy2kSHdkg
+- https://www.instagram.com/marcosemiliogarcia?utm_source=qr&igsh=MWwyeW1sYmR3eHFidw==
+- https://youtube.com/@marcosemiliogarciaalonso?si=vlKEroS3GexKn3lx
+- https://tiktok.com/@marcosemiliogarciaalonso?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Especialidad de formación de defensores en el sistema acusatorio adversarial,Diplomado en proceso penal acusatorio y oral
+- ,Taller de destrezas de litigación en la audiencia de juicio oral en delitos sexuales
+- ,Curso especializado en audiencia inicial
+- ,Curso en juicio de nulidad ante el tribunal de lo contencioso administrativo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53388/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho con Maestría en Derecho Procesal Penal, Derecho Corporativo y Derecho Fiscal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir de manera profesional, ética y honesta, sin influencias de factores sociales, económicos o políticos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un sistema jurisdiccional comprometido con la verdad, la equidad y la justicia, en el que cada acto procesal se realice con imparcialidad, transparencia y respeto a los derechos fundamentales. Buscamos una función jurisdiccional eficiente y accesible para todos, que garantice la resolución de los conflictos de manera pronta, justa y con una profunda responsabilidad ética, consolidando la confianza de la sociedad en la justicia como pilar del Estado de derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Ser un sistema de justicia accesible, transparente e imparcial, donde cada persona, independientemente de su origen, condición social o económica, reciba una resolución justa y equitativa. Promovemos la protección de los derechos humanos y el respeto a la dignidad de todas las personas, garantizando que la justicia sea pronta, eficiente y se imparte con integridad, consolidando la confianza de la sociedad en las instituciones
+
+
+## Propuestas
+
+- Trabajar en el fortalecimiento de propuestas para la implementación de jueces sin rostro, con el objetivo de proteger la integridad y seguridad de los operadores de justicia frente a los riesgos derivados de la delincuencia organizada. Esta medida busca garantizar la imparcialidad y autonomía judicial, evitando cualquier tipo de acercamiento o influencia de grupos criminales sobre asuntos relevantes, y reduciendo significativamente el riesgo de corrupción o favoritismo.
+- Privilegiar el principio de publicidad como una herramienta fundamental de rendición de cuentas ante la ciudadanía, promoviendo la transparencia y el acceso a la información judicial en todos los niveles del proceso. Este principio no solo debe garantizar que los ciudadanos estén informados sobre las decisiones y acciones del sistema de justicia, sino que también debe ser concebido como un espacio abierto para el aprendizaje y la formación de los nuevos estudiantes de derecho.
+- Garantizar que todos los juicios orales, tanto acusatorios como adversariales, se desarrollen con un respeto irrestricto a los derechos humanos, asegurando que la defensa, la fiscalía y la asesoría a las víctimas puedan presentar sus argumentos de manera libre y ética. Castigar al culpable y reparar el daño, promoviendo que los juicios abreviados tengan una mayor preponderancia, priorizando este mecanismo de terminación anticipada como una vía eficaz y justa para la resolución de los casos.
+

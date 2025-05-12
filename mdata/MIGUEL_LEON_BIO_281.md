@@ -1,0 +1,74 @@
+Nombre Candidato: MIGUEL LEON BIO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6862218405
+Correo Electronico: migueleonbio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Derecho Administrativo, Derecho Fiscal, Derechos Humanos, Doctorado, Género y Derecho, Justicia Constitucional, Maestría, OPDAT, Sistema Acusatorio, Tijuana., Tutela Jurisdiccional, UABC, Universidad Anáhuac, Universidad de Perugia, Universidad de Pisa
+Tags Propósito: Calidad, Capacitación, Constitución, Derechos Humanos, Eficiencia, Imparcialidad, Independencia, Justicia, Juzgador, Profesionalismo, Prontitud, Servicio, Sistema Judicial, Tratados Internacionales, Órgano Jurisdiccional.
+
+
+## Descripción del Candidato 
+
+Miguel León Bio es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Judicial de la Federación en Baja California. Cuenta con estudios de doctorado y especializaciones en Derecho, incluyendo énfasis en derecho fiscal y administrativo, justicia constitucional y derechos humanos, cursados en la UABC, la Universidad de Pisa (Italia) y la Universidad Anáhuac México Norte. 
+
+Su motivación para buscar el cargo se basa en su vocación de servicio. Sus propuestas principales incluyen la capacitación constante de juzgadores y su equipo, la implementación de un sistema para la resolución oportuna de casos basado en su experiencia de más de 10 años como juzgador federal, y la protección de los derechos de las personas justiciables conforme a la Constitución y tratados internacionales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15n19Rk3tC/?mibextid=JRoKGi
+- https://x.com/miguelbio28824?s=11&t=5y8XVulGDkKwi0b6i1l2QQ
+- https://www.instagram.com/migueleonbio?igsh=MTJsdGZwcXRtMWZjYQ==
+
+
+## Cursos
+
+- Especialidad en Derecho (con énfasis en derecho fiscal y administrativo), egresado de la UABC
+- ,Especialidad alta formación en justicia constitucional y tutela jurisdiccional de derechos, Universidad de Pisa, Italia,Desafíos de la Protección Multinivel de los Derechos Humanos, Universidad de Perugia, Italia,Género y Derecho, Universidad Anáhuac México Norte,Función del Juez Constitucional en el Sistema Acusatorio Experiencias Compartidas, OPDAT, San Juan, Puerto Rico
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53959/10
+
+
+## Trayectoria Academica
+
+- Egresado de la Facultad de derecho UABCTijuana, con 2 especilidades, maestría y doctorado en diversas universidades
+
+
+## Motivo para buscar el Cargo Publico
+
+Por vocación al servicio
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe realizarse con preparación, estudio, vocación de servicio y con calidad profesional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser imparcial, pronta y de calidad, impartida por juzgadores independientes y preparados profesionalmente para ello.
+
+
+## Propuestas
+
+- Capacitación constante del juzgador y su equipo de trabajo, para una impartición de justicia profesional de calidad.
+- Impartición rápida de justicia, mediante la implementación de un sistema con el personal del órgano jurisdiccional que esté a mi cargo, probado con más de 10 años como juzgador federal, para el estudio y resolución de los asuntos de manera oportuna.
+- Protección de los derechos de las personas justiciables, previstos en la constitución federal y tratados internacionales en materia de derechos humanos, sin restricción alguna, de manera independiente e imparcial.
+

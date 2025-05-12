@@ -1,0 +1,74 @@
+Nombre Candidato: JOSE SALVADOR DEL RIO HIDALGO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: HOMBRE
+Telefono: 2213571784
+Correo Electronico: chavadelriomx@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Amparo., Derecho, Derecho Constitucional, Derechos Humanos, Maestría
+Tags Propósito: Accesibilidad, Acceso a la Justicia, Anticorrupción, Capacitación Judicial, Celeridad, Confianza Ciudadana, Derechos Fundamentales, Derechos Humanos, Dignidad Humana, Eficiencia, Estado de Derecho, Estereotipos, Grupos Vulnerables, Humanismo, Independencia Judicial, Innovación Tecnológica, Integridad, Justicia, Justicia Restaurativa, Perspectiva de Género, Rendición de Cuentas, Sensibilidad Social, Sesgos de Género., Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Jose Salvador del Rio Hidalgo es candidato a un cargo en el Poder Ejecutivo Federal, proveniente de Puebla, con experiencia como Magistrado de Tribunales Colegiados de Circuito. Abogado con Maestría en Derecho, especializado en Derecho Constitucional, Derechos Humanos y Amparo, su motivación para postularse se centra en impartir justicia con independencia y garantizar el acceso equitativo a los derechos fundamentales.
+
+Su visión para la función jurisdiccional se basa en un sistema judicial moderno, transparente y accesible, con énfasis en la independencia judicial y la ética. Sus propuestas incluyen la implementación de un enfoque jurisdiccional con sensibilidad social, el impulso de mecanismos de rendición de cuentas y transparencia, y el fomento de programas de capacitación para servidores públicos judiciales en temas de derechos humanos y perspectiva de género.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572738395274
+- https://x.com/jsdelrio1
+- https://www.instagram.com/chavadelriomx/#
+- https://www.tiktok.com/@chavadelriomx
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55306/10
+
+
+## Trayectoria Academica
+
+- Abogado con Maestría en Derecho, con Orientación en Derecho Constitucional, Derechos Humanos y Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia con independencia garantizando tus derechos fundamentales y un acceso equitativo para todos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser el pilar que garantice el Estado de Derecho mediante la interpretación y aplicación imparcial de las leyes. Mi visión contempla un sistema judicial moderno, cercano a la gente, que resuelva conflictos con transparencia y celeridad. Busco una justicia accesible para todos, que proteja efectivamente los derechos fundamentales, combata la impunidad y genere confianza ciudadana. La independencia judicial y la ética serán los ejes rectores transformadores.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser un servicio público de excelencia, caracterizado por su eficiencia, accesibilidad y humanismo. Visualizo un sistema judicial donde las resoluciones sean oportunas, fundamentadas en derecho y comprensibles para la gente. Aspiro a consolidar una justicia que equilibre la seguridad jurídica con la sensibilidad social, centrada en la dignidad humana, como verdadero motor de transformación social y utilizando tecnología e innovación para acercar los servicios judiciales a todos los sectores.
+
+
+## Propuestas
+
+- Implementación de un enfoque jurisdiccional con sensibilidad social en la interpretación y aplicación de Ias leyes. Los juzgadores deben reconocer las distintas realidades sociales, económicas y culturales de México. La formación en derechos humanos permite valorar la importancia de contextualizar cada caso, y ello permite garantizar que las resoluciones, sin perder rigor jurídico, reconozcan que detrás de cada expediente hay personas con circunstancias particulares que merecen ser consideradas.
+- Impulsar mecanismos internos de rendición de cuentas y transparencia proactiva en la gestión judicial. Fomentar una cultura de integridad entre el personal judicial, con el compromiso de cero tolerancia a la corrupción y al tráfico de influencias, con una actuación personal basada en los más altos estándares éticos. Explorar la viabilidad de mecanismos (como encuestas de salida anónimas o buzones de sugerencias digitales) para recoger la percepción ciudadana sobre la calidad de la atención.
+- Fomentar el establecimiento de programas permanentes de capacitación para los servidores públicos judiciales, enfocado en derechos humanos, perspectiva de género, justicia restaurativa y grupos vulnerables, con la finalidad de asegurar la excelencia en la impartición de justicia con sensibilidad social; asegurar que todas las resoluciones se emitan libres de estereotipos y sesgos de género, analizando las relaciones asimétricas de poder y aplicando los estándares nacionales e internacionales.
+

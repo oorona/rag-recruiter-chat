@@ -1,0 +1,75 @@
+Nombre Candidato: FERNANDO COBOS GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 2293375918
+Correo Electronico: flayer120@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización profesional, Derecho de Amparo, Derechos Humanos, Desarrollo profesional., Diplomado, Formación Judicial, Sistema Nacional Anticorrupción, Suprema Corte de Justicia de la Nación, UNITEC
+Tags Propósito: accesibilidad, administración de justicia, apoyo a la discapacidad, atención humanizada, derechos humanos, desarrollo profesional, eficiencia judicial, empatía, grupos vulnerables, honestidad, igualdad, imparcialidad, inclusión, justicia, justicia social, reforma judicial, rendición de cuentas., transformación judicial, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+FERNANDO COBOS GONZALEZ es candidato a Jueces/es de Distrito en la Ciudad de México, postulándose al Poder Judicial de la Federación. Cuenta con un doctorado concluido y ha realizado diversos diplomados en áreas como Derecho de Amparo, Sistema Nacional Anticorrupción y Derechos Humanos, a través de instituciones como la UNITEC y la Suprema Corte de Justicia de la Nación.
+
+Su motivación para el cargo público se centra en apoyar a las personas vulnerables que enfrentan injusticias y abusos de poder.  Propone un enfoque humanizado en la administración de justicia, priorizando la empatía y la atención a las necesidades de los grupos vulnerables, incluyendo aquellos con discapacidad.  Asimismo, busca mejorar la eficiencia interna del órgano jurisdiccional, promoviendo la igualdad de condiciones laborales y el desarrollo profesional de los empleados para mejorar la atención al público. Su perfil completo y curriculum vitae están disponibles en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/14J8p1mg5r/?mibextid=wwXIfr
+- https://x.com/flayer120_cobos?s=21&t=m1srKfmGgV7rmAJsLeBkDQ
+- https://www.instagram.com/fernando_cobos_g?igsh=c2xncjU1cnM1dWVr&utm_source=qr
+- https://www.tiktok.com/@fernando.cobos.gonzalez?_t=ZM-8uuuipwY63r&_r=1
+- https://www.threads.net/@fernando_cobos_g?igshid=NTc4MTIwNjQ2YQ==
+
+
+## Cursos
+
+- Universidad Tecnológica de México   UNITEC Diplomado en Derecho de Amparo,Suprema Corte de Justicia de la Nación   Diplomado Juicio de Amparo,Escuela Federal de Formación Judicial Diplomado en Sistema Nacional Anticorrupción y Responsabilidades,Suprema Corte de Justicia de la Nación Diplomado La Suprema Corte y los Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52957/11
+
+
+## Trayectoria Academica
+
+- Siempre con constancia y dedicación, aprovechando el tiempo para ocuparlo en actualizarme y buscar nuevos retos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque realmente sé que puedo ayudar a las personas y más a las vulnerables que enfrentan injusticias y abusos de poder.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En el ámbito profesional, soy testigo de cómo una decisión estudiada puede devolver la esperanza a quien no tuvo un procedimiento justo o a quien una autoridad no le brindó determinado servicio como por ejemplo el de salud; por lo que mi compromiso es continuar con esas buenas actuaciones y sobre todo difundir las labores del Poder Judicial de la Federación para que más ciudadanos estén enterados de que estamos para defender sus derechos y que la justicia está a su alcance.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El mayor aprendizaje sobre desigualdad y resiliencia me lo ha dado mi hijo, tener un niño con discapacidad me ha mostrado la dificultad que pueden presentar los grupos sensibles en materia de salud así como los grupos vulnerables en materia de derechos humanos para acceder a la justicia; de ahí, que mi compromiso es el no descuidarlos, por el contrario, atenderlos y escucharlos, para ello la puerta de mi oficina estará siempre abierta para que se acerquen y resolver de una manera más humanizada.
+
+
+## Propuestas
+
+- Los expedientes no deben de verse como simples números, sino atenderse como lo son, un problema que tiene una persona, que solo desea ser escuchada para que su problemática sea resuelta de una manera justa y pronta, por lo que se debe de privilegiar la empatía, la justicia y la imparcialidad. Creo en la honestidad, la lealtad y el compromiso inquebrantable con el pueblo, no tengo miedo de luchar por lo que es justo, porque sé que la justicia es el pilar de una sociedad democrática.
+- Trabajar para que las leyes sean aplicadas con rectitud, velando por los grupos vulnerables y asegurando que la justicia llegue a todos, sin distinción. No puedo prometerte una justicia pronta y expedita, ya que ello ya se encuentra contemplado en el artículo 17 de la Constitución Política de los Estados Unidos Mexicanos, o bien, decirte los plazos o términos en que resolveré tu asunto, ya que todas las normativas también los prevén.
+- El tener un órgano jurisdiccional en el que se administre el tiempo y actividades, en el que todos trabajemos por igual y en los mismos horarios, que no exista distinción de horarios por cargos o actividades inequitativas, además se promueva el impulso de las personas para que crezcan profesionalmente, lo que repercutirá en una buena atención al público con gente más preparada y empática; además, apoyar a las nuevas generaciones a su ingreso y que continúen siendo parte de esta transformación.
+

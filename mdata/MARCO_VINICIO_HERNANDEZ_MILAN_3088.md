@@ -1,0 +1,79 @@
+Nombre Candidato: MARCO VINICIO HERNANDEZ MILAN
+Cargo: Juezas/es de Distrito
+Entidad: SAN LUIS POTOSI
+Sexo: HOMBRE
+Telefono: 4446675517
+Correo Electronico: mvhm_9@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Administración Pública, Correiduría Pública, Derecho, Derecho Notarial, Docencia, Licenciatura, Maestría, UASLP, UDEP, Valuación Inmobiliaria
+Tags Propósito: Constitución, acceso a la justicia, ciudadanía, derechos de las mujeres, derechos humanos, género, igualdad, imparcialidad, independencia, inmediatez procesal., justicia, justicia federal, justicia pronta, legalidad, objetividad, probidad, resoluciones, transparencia, violencia de género
+
+
+## Descripción del Candidato 
+
+Marco Vinicio Hernandez Milan es candidato a Juez/a de Distrito para San Luis Potosí, postulándose a través del Poder Legislativo Federal. Cuenta con Maestría en Administración con énfasis en Gestión Pública y es Licenciado en Derecho, además de ser docente a nivel Maestría y Licenciatura. Su formación complementaria incluye especialidades en Valuación Inmobiliaria, Correduría Pública y Derecho Notarial.
+
+El candidato expresa su motivación para buscar el cargo en su compromiso con la justicia y la transformación del sistema en México.  Su visión de la función jurisdiccional se centra en el compromiso profesional, ético y el apego a los principios de imparcialidad e independencia.  Sus propuestas principales incluyen agilizar los procesos judiciales, aplicar una perspectiva de género en sus decisiones y acercar la justicia a la ciudadanía a través de una comunicación clara y accesible.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574639107828&sk=about_contact_and_basic_info
+- https://www.instagram.com/marco_vinicio_hdz_milan/
+- https://www.tiktok.com/@marco_vinicio_hdz_milan
+
+
+## Cursos
+
+- Especialidad en Valuación Inmobiliaria
+- Universidad Autónoma de Zacatecas,Diplomado en Correduría Pública
+- Colegio Nacional de Correduría Pública,Diplomado en Derecho Notarial
+- Escuela Internacional de Derecho y Jurisprudencia
+- Ciudad de México
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53545/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Maestría en Administración énfasis Gestión Pública
+- UASLP
+- Docente Maestría y Licenciatura UDEP
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy un ciudadano preparado y comprometido con la justicia, buscando transformar la impartición de justicia en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ejercicio de tan honorable y relevante cargo implica un compromiso profesional, ético y personal, es el juzgador federal el garante de nuestra Constitución y las leyes emanadas de la misma, por lo tanto, la responsabilidad en el encargo de dicha función es un elemento primordial para el desempeño de la misma, la toma de decisiones por parte del juzgador, debe ser siempre con apego a los principios de imparcialidad, probidad, objetividad e independencia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es el faro que orienta siempre a una Nación, son sus principios de seguridad y legalidad los pilares de dicha justicia social, que debe ser expresada en resoluciones apegadas a derecho y que deben tener al centro y como elemento principal de las mismas al ciudadano que es protegido por nuestras disposiciones constitucionales y tratados internacionales; el eje rector de la impartición de justicia debe ser siempre: TODOS LOS DERECHOS PARA TODAS LAS PERSONAS.
+
+
+## Propuestas
+
+- Hacer realidad el precepto de una impartición de justicia pronta y expedita, ceñirse a los tiempos establecidos en ley, de manera estricta, para la emisión de resoluciones, apegadas a derecho, pero siempre basándose en los principios de inmediatez procesal, favoreciendo en todo momento a los justiciables que buscan la protección de la justicia federal.
+- Juzgar con verdadera perspectiva de género, estoy convencido que la brecha existente entre hombres y mujeres por las anquilosadas estructuras sociales que durante muchos años, dejaron de lado al sexo femenino, deben desaparecer definitivamente, y debe atenderse siempre, a la realidad social que nos muestra la enorme violencia e indolencia que las autoridades han tenido para con las mujeres en nuestro querido México.
+- Acercar la justicia a la ciudadanía, los mexicanos, miran con desdén a sus autoridades judiciales, ya que no hay una relación entre los justiciables y la autoridad jurisdiccional, el juez federal, debe estar siempre en cercanía con estos justiciables, explicando siempre, de manera adecuada y entendible, los derechos que le asisten y que le otorga nuestra Constitucion Política, resoluciones coherentes y con un lenguaje que permita al ciudadano, entender, de manera clara, lo que su Juez resuelve.
+

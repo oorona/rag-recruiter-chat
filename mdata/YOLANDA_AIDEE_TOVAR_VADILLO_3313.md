@@ -1,0 +1,78 @@
+Nombre Candidato: YOLANDA AIDEE TOVAR VADILLO
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 2291391103
+Correo Electronico: tovarvayolanda87@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Buen Gobierno, CEJAV, Colegio de Notarios, Contraloría, Derecho Notarial, Estándar EC1038, Intervención de conflictos, Justicia Alternativa, Licenciatura en Derecho, Mediación, Servicio Público, Universidad Veracruzana., Ética Pública
+Tags Propósito: bloque de constitucionalidad., control de convencionalidad, derechos humanos, dignidad humana, imparcialidad, independencia judicial, jurisprudencia constitucional, justicia, moral, normas constitucionales, objetividad, orden internacional, profesionalismo, ética
+
+
+## Descripción del Candidato 
+
+Yolanda Aidee Tovar Vadillo es candidata a Jueza/és de Distrito en Veracruz, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura en Derecho por la Universidad Veracruzana y un título profesional. Ha completado diversos cursos de especialización en mediación, derecho notarial, ética en el servicio público y justicia alternativa.
+
+Su motivación para buscar el cargo es contribuir a mejorar la impartición de justicia, enfocándose en la dignidad humana. Su visión de la función jurisdiccional se basa en principios de independencia, imparcialidad y profesionalismo, vinculando la justicia con la ética y la preservación de la dignidad humana. Sus propuestas incluyen complementar el control de convencionalidad en la justicia local, considerar la inaplicación de normas que contravengan el orden internacional y reflexionar sobre la integración de derechos reconocidos por la jurisprudencia al bloque de constitucionalidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/166MiMMDE9/?MIbextid=wwXlfr
+- https://www.instagram.com/yolandatova87?igsh=NHW3a3l2b3FsbWw1
+- https://youtube.com/@yolandatovarvadillo?si=Ega8waSFktlnjQP6
+- https://www.tiktok.com/@yolandatovarvadil?_t=ZM-8w6X64txW1m&_r=1
+
+
+## Cursos
+
+- CURSO DE INTERVENCIÓN PARA LA SOLUCIÓN DE CONFLICTOS CON BASE AL ESTÁNDAR EC1038 DEL COLEGIO DE MEDIACIÓN EN VER
+- ,CERTIFICACION MEDIADORA CEJAV,CURSO DE ESPECIALIZACIÓN EN DERECHO NOTARIAL EN EL COLEGIO DE NOTARIOS PÚBLICOS DEL EDO
+- DE VERACRUZ
+- ,CURSO DEL BUEN GOBIERNO Y ÉTICA EN EL SERVICIO PÚBLICO IMPARTIDO POR LA CONTRALORÍA DEL EDO
+- ,CERTIFICACIÓN COMO  POR EL CENTRO ESTATAL DE JUSTICIA ALTERNATIVA DEL ESTADO DE VER
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55443/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO UNIVERSIDAD VERACRUZANA
+
+
+## Motivo para buscar el Cargo Publico
+
+Poseo un genuino interés de contribuir y mejorar la impartición de justicia enalteciendo la dignidad humana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La labor jurisdiccional debe regirse bajo los principios fundamentales como la independencia, imparcialidad, objetividad y profesionalismo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe estar estrechamente ligada con la ética y la moral, considero que preservar la dignidad humana se debería de convertir en el objetivo central de la labor del juzgador, pues para lograr una armonía entre las personas sólo pueden construirse cuando se respetan los derechos que a cada uno le corresponden.
+
+
+## Propuestas
+
+- COMPLEMENTAR ADECUADAMENTE EL MECANISMO PARA EL CONTROL DE CONVENCIONALIDAD QUE REALIZA LA JUSTICIA LOCAL.
+- INAPLICACION DE NORMAS CONSTITUCIONALES QUE SE CONTRAPONGAN CON EL ORDEN INTERNACIONAL.
+- REFLEXIONAR ACERCA DE LA IMPORTANCIA QUE REVISTEN LOS DERECHOS RECONOCIDOS POR LA JURISPRUDENCIA CONSTITUCIONAL E INTERNACIONAL Y LOS QUE HAN SIDO RECONOCIDOS COMO DERECHOS CONSTITUCIONALES ESTATALES PARA ASI ADVERTIR SU IDONEAIDAD DE PERTENCENCIA AL BLOQUE DE CONSTITUCIONALIDAD.
+

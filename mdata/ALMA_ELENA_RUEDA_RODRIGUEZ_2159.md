@@ -1,0 +1,79 @@
+Nombre Candidato: ALMA ELENA RUEDA RODRIGUEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: almaelenacandidata@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Administración y Procuración de Justicia, Conciliación, Derecho del Trabajo, Doctorado, Especialidad, Formación Judicial, Italia., Justicia Laboral, Mediación, Normas Internacionales del Trabajo, OIT, Poder Judicial, Universidad Complutense de Madrid, Universidad Nacional Autónoma de México, Universidad de Bérgamo
+Tags Propósito: acceso a la justicia, audienas claras, cercanía, claridad, derechos, empatía, imparcialidad, independencia, independencia judicial, integridad, justicia, justicia digna, justicia humana, lenguaje claro, principios, protección de derechos, rapidez, resolución de conflictos, resolución oportuna., responsabilidad, sistema judicial, transparencia, trato digno, valores, ética
+
+
+## Descripción del Candidato 
+
+Alma Elena Rueda Rodríguez es candidata a Jueza de Distrito en la Ciudad de México, postulándose a través del Poder Legislativo Federal. Abogada con un Doctorado por la Universidad de Bérgamo, Italia, y diversas especializaciones en áreas como administración de justicia, derecho laboral y mediación. Su motivación para buscar el cargo público es transformar la justicia en una realidad independiente, rápida y justa.
+
+Su visión de la función jurisdiccional se centra en la protección de derechos, el equilibrio de poder y el servicio a la sociedad, buscando una justicia cercana, humana y eficaz. Sus propuestas incluyen la emisión de resoluciones claras y oportunas, un acercamiento más humano en los tribunales, y un ejercicio de la función judicial independiente, sin compromisos con partidos o grupos de poder, enfocándose en la ley y los derechos de las personas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://almaelenacandidata.wixsite.com/alma-elena
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574201580704
+- https://x.com/elenaruedar
+- https://www.instagram.com/almaelenaruedarodriguez
+- https://www.tiktok.com/@alma.elena.rueda?_t=ZS-8uQHGeCFcVb&_r=1
+- https://www.linkedin.com/in/alma-elena-rueda-rodrC3ADguez-39800274/?originalSubdomain=mx
+
+
+## Cursos
+
+- Especialidad en Administración y Procuración de Justicia, UNAM,Especialidad en Derecho del Trabajo y Justicia Laboral
+- Escuela Federal de Formación Judicial,Programa de Formación sobre Normas Internacionales del Trabajo
+- Organización Internacional del Trabajo (OIT),Diplomado para Formación de Mediadores y Conciliadores Privados
+- Poder Judicial del Estado de México
+- ,Diplomado   Universidad Complutense de Madrid / UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55242/11
+
+
+## Trayectoria Academica
+
+- Abogada (UNAM) con dos especialidades (UNAM y Escuela Judicial) y Doctorado por la Universidad de Bérgamo, Italia
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser jueza para que la justicia deje de ser promesa y se vuelva realidad: independiente, rápida y justa.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no es solo aplicar leyes; es proteger derechos, equilibrar el poder y servir a la sociedad. Quien juzga debe hacerlo con independencia, responsabilidad y cercanía. Una jueza no solo resuelve conflictos: también da voz a quienes no la tienen. La justicia debe ser entendible, humana y eficaz. Por eso creo en una función judicial que escucha, actúa y transforma.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no debe vivirse como una espera o un privilegio. Debe ser una experiencia digna, reparadora y humana. Impartir justicia es ponerse del lado de quien ha sido ignorado o afectado, y actuar con valor para proteger sus derechos. Creo en una justicia que escucha, que actúa con firmeza y que nunca olvida a quien la necesita. Una justicia que no se detiene presiones o intereses. Porque quien imparte justicia, debe ser ejemplo de ella.
+
+
+## Propuestas
+
+- Una de las principales demandas de quienes acuden a los tribunales es recibir justicia en un tiempo razonable y en un lenguaje claro. Muchas personas enfrentan procesos dolorosos y, además, se topan con un sistema lento y lleno de obstáculos. Las sentencias, redactadas con exceso de formalismos, no siempre se entienden. Esto aleja a la ciudadanía. Mi compromiso es dictar resoluciones claras, justas y oportunas, que den respuestas reales a quienes más lo necesitan.
+- Yo lo veo en mi trabajo diario. Muchas personas llegan a los tribunales sintiéndose solas, confundidas o sin ser escuchadas. Mi compromiso es ejercer una justicia cercana y humana. No seré la jueza que se encierra en su oficina. Mi tribunal tendrá las puertas abiertas para quienes buscan una respuesta, con respeto y sin miedo. Promoveré audiencias claras, trato digno y sin barreras. Habrá total transparencia. Porque la justicia no se esconde: se construye con presencia y empatía.
+- Soy una mujer independiente. No tengo compromisos con partidos, sindicatos ni grupos de poder. Mi único compromiso es con la ley, con los derechos de las personas y con mi conciencia ética. Ejerceré la función judicial con integridad, sin aceptar presiones ni recomendaciones. Defenderé la justicia con decisiones libres, basadas en principios, no en intereses. La independencia no se dice, se demuestra.
+

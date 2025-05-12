@@ -1,0 +1,75 @@
+Nombre Candidato: DIANA ARACELI CHAVEZ MANJARREZ
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: MUJER
+Telefono: 6441030388
+Correo Electronico: aracelichavezm24@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho., Derechos Humanos, Extinción de Dominio, Género, Legislación Administrativa, Legislación Penal, Poder Judicial, Reforma Fiscal, Universidad Autónoma de Sonora, Violencia
+Tags Propósito: abierta, actualización legal, adultos mayores., campesinos, democracia, derechos humanos, expedita, función jurisdiccional, globalización, igualdad social, inclusión, justicia pronta, justicia social, legalidad, niños, objetiva, obreros, paz social, pensamiento social, perspectiva de género, poder judicial humano, principio pro homine, tecnología, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Diana Araceli Chavez Manjarrez es candidata a Jueza/es de Distrito por el Poder Legislativo Federal en Sonora. Licenciada en Derecho por la Universidad Autónoma de Sonora, cuenta con trayectoria en el Poder Judicial del Estado y Federal, y ha realizado cursos en áreas como violencia, legislación penal y administrativa, derechos humanos y perspectiva de género.
+
+Su motivación para buscar el cargo se basa en aplicar las herramientas adquiridas para impartir justicia social. Su visión se centra en una función jurisdiccional pronta, expedita, abierta y objetiva, sustentada en la legalidad y los derechos humanos, así como en la necesidad de un Poder Judicial actualizado en conceptos de derechos humanos. Sus propuestas incluyen un Poder Judicial más humano, incluyente y con perspectiva de género, así como uno más cercano a la población vulnerable.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/@diana.araceli.chavez.2025
+- https://www.instagram.com/aracelim1967?igsh=MXg4Nnl3ZnFnbW50eg==
+
+
+## Cursos
+
+- Curso para Generar Espacios Libres de Violencia,Actualización Legislativa Módulo Materia Penal
+- ,Actualización Legislativa Módulo Materia Administrativa Impacto de la Reforma Fiscal Federal,Extinción de Dominio
+- Ley Federal de Extinción de Dominio, Reglamentaria del Artículo 22 Constitucional
+- ,Taller Interpretación y Aplicación de los Tratados e Instrumentos Internacionales de Derechos Humanos Sobre Género
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52847/11
+
+
+## Trayectoria Academica
+
+- Egresada en derecho por la Universidad Autónoma de Sonora, desempeñando cargos en el Poder Judicial del Estado y Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Al forjarme tanto en el Poder Judicial del Estado y Federal, he obtenido las herramientas para impartir justicia social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La globalización y el avance tecnológico, como el acceso a internet en diversos puntos de nuestra sociedad deben ir acorde con una justicia pronta, expedita, abierta y objetiva, pero sustentada en la legalidad y acorde a los derechos humanos; ello, con la finalidad de que la ley de se aplique en equilibrio, y así mantener la paz social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El avance democrático de nuestro país, la visión del pensamiento social en México requieren una justicia, no solamente de puertas abiertas para escuchar al justiciable, sino de personal preparado y capacitado en la actualización de la ley, la presencia de conceptos de derechos humanos, como principio pro homine, perspectiva de género, igualdad social, entre otros, que puedan garantizar la función jurisdiccional, justa, objetiva y equilibrada.
+
+
+## Propuestas
+
+- Un poder judicial federal más humano, incluyente y juzgar con perspectiva de género.
+- Un poder judicial federal que este cerca de la clase más vulnerable: obreros, campesinos, niños y adultos mayores
+- No proporcionó
+

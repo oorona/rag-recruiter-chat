@@ -1,0 +1,72 @@
+Nombre Candidato: ARISTOTELES AGUSTIN GONZALEZ VELAZQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: juezaristoteles@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Doctorado, España, Especialidades, Estudios concluidos., Formación académica, Licenciatura, Maestrías, México
+Tags Propósito: Accesibilidad, Confianza Ciudadana, Derechos, Dignidad, Escucha, Esperanza, Honestidad, Igualdad, Imparcialidad, Juicio de Amparo, Justicia, Lenguaje Claro, Magistrado, Poder Judicial, Prontitud, Protección de Derechos., Resolución de Conflictos, Servicio Humano, Transformación
+
+
+## Descripción del Candidato 
+
+ARISTOTELEZ AGUSTIN GONZALEZ VELAZQUEZ es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Legislativo Federal en Aguascalientes. Cuenta con un extenso background académico, incluyendo licenciatura, dos especialidades, tres maestrías y un doctorado en Derecho, con estudios realizados en México y España.
+
+Su motivación para buscar el cargo se centra en servir con honestidad, defender la justicia y honrar la confianza ciudadana.  Su visión de la función jurisdiccional la define como un servicio responsable y humano, con énfasis en la cercanía y el respeto.  Entre sus propuestas destacan la pronta resolución de juicios de amparo, la comunicación de las resoluciones con un lenguaje claro y accesible, y un compromiso con la protección de los derechos de aquellos en situación de desigualdad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/aristoteles.gonzalez/
+- https://www.instagram.com/aristotelesgo/
+
+
+## Cursos
+
+- La información académica se encuentra detallada en el curriculum
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53442/10
+
+
+## Trayectoria Academica
+
+- Licenciatura, 2 especialidades, 3 maestrías y doctorado en Derecho (estudios concluidos); formación en México y España
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado para servir con honestidad, defender la justicia y honrar la confianza de la ciudadanía
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Concibo la función jurisdiccional como un servicio responsable y humano. Implica juzgar con sensibilidad, cercanía y respeto, sabiendo que detrás de cada expediente hay una vida y una historia. Mi visión es que cada decisión refleje compromiso, imparcialidad y humanidad, para que las personas sean escuchadas y tratadas con dignidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Creo en una impartición de justicia cercana, accesible y comprometida con la dignidad de todas las personas. Mi visión es que la justicia no sea un trámite frío, sino una herramienta que transforme vidas, proteja derechos y fortalezca la confianza en el Poder Judicial de la Federación. Porque cuando la justicia es humana, no sólo resuelve conflictos: también sana, reconcilia y da esperanza.
+
+
+## Propuestas
+
+- Mi propuesta es que, en el juicio de amparo, las resoluciones sean prontas, porque cuando la justicia se demora, se debilita la confianza ciudadana en el Poder Judicial. La justicia debe ser respuesta, no espera.
+- Mi propuesta es que la justicia de amparo se comunique con un lenguaje claro y cercano. No basta con dictar resoluciones, también debemos asegurarnos de que cada persona entienda las razones de la decisión. La justicia debe ser un puente, no un laberinto.
+- Mi propuesta es que la impartición de justicia sea un compromiso real con quienes enfrentan desigualdad. Garantizaré que sus voces sean escuchadas y sus derechos protegidos, para que la justicia no sea un privilegio de unos cuantos. La justicia debe ser escucha, no silencio.
+

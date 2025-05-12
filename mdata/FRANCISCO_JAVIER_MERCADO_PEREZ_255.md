@@ -1,0 +1,75 @@
+Nombre Candidato: FRANCISCO JAVIER MERCADO PEREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6643037845
+Correo Electronico: francisco.mercado.bc@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Anáhuac, Derecho de Empresas, Docencia, Trayectoria Académica., UABC, Universidad Xochicalco
+Tags Propósito: Accesibilidad, Capacitación, Confianza Ciudadana, Conflictos de Interés, Constitución Mexicana., Corrupción, Criterios Uniformes, Derechos Humanos, Digitalización, Eficiencia, Estado de Derecho, Expientes, Imparcialidad, Independencia Judicial, Justicia, Lenguaje Comprensible, Modernización, Precedentes, Procesos Transparentes, Rendición de Cuentas, Transparencia
+
+
+## Descripción del Candidato 
+
+Francisco Javier Mercado Pérez es candidato a Magistrado de Tribunales Colegiados de Circuito por Baja California, postulándose desde el Poder Legislativo Federal. Es abogado con Maestría en Derecho de Empresas, y cuenta con experiencia docente en la Universidad Xochicalco. Su motivación para buscar el cargo es continuar la transformación del Poder Judicial, enfocándose en una justicia transparente, imparcial y cercana a la ciudadanía.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en la transparencia, la modernización del sistema, la agilización de procesos y el fortalecimiento de la independencia judicial. Sus propuestas incluyen la publicación accesible de precedentes, el uso de lenguaje jurídico comprensible, la digitalización de trámites, la capacitación continua de magistrados y el fortalecimiento de mecanismos para evitar conflictos de interés. Más información sobre su trayectoria se encuentra disponible en su curriculum vitae: [https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54113/10](https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54113/10).
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/FJMercadoBC
+- https://x.com/fjmercadomx
+- https://www.instagram.com/franciscomercado.bc/
+- https://www.tiktok.com/@fjmercadomx
+- https://www.twitch.tv/fjmercadomx
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54113/10
+
+
+## Trayectoria Academica
+
+- Abogado por la UABC (Mexicali), Maestro en Derecho de Empresas (Anáhuac) y docente 5 años en Universidad Xochicalco
+
+
+## Motivo para buscar el Cargo Publico
+
+Para continuar la transformación del Poder Judicial. Por una justicia transparente, imparcial y cercana a la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe forjar un Poder Judicial transparente, imparcial y accesible, donde la justicia no solo se imparta, sino que se perciba con legitimidad. Es fundamental erradicar la corrupción y fortalecer la confianza ciudadana mediante procesos transparentes, sentencias claras y criterios previsibles. La modernización de las instituciones que imparten justicia y esta nueva cercanía con la sociedad garantizarán que la justicia sea un verdadero pilar del Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe forjarse sobre procesos transparentes, imparciales y accesibles. La ciudadanía debe confiar en que las resoluciones se basan en la ley, sin influencias externas. Es fundamental modernizar el sistema, agilizar procedimientos y fortalecer la independencia judicial. Solo con una justicia clara y cercana a la sociedad, podemos consolidar un Poder Judicial legítimo y recuperar la confianza en el Estado de Derecho.
+
+
+## Propuestas
+
+- El colegiado debe garantizar resoluciones mediante procesos transparentes y fundamentados en criterios claros. Se impulsará la publicación accesible de precedentes y el uso de lenguaje jurídico comprensible para fortalecer la confianza ciudadana. Además, se establecerán mecanismos de rendición de cuentas para asegurar que cada fallo refleje una justicia imparcial, libre de influencias externas y alineada con los derechos emanados de nuestra Constitución Mexicana.
+- Para mejorar el colegiado, es clave modernizar su operación con tecnología que agilice la gestión de expedientes y reduzca tiempos de resolución. Se fomentará la digitalización de trámites y sesiones, permitiendo acceso oportuno a las partes. Asimismo, se promoverá la capacitación continua de magistrados y la implementación de metodologías que optimicen la deliberación, garantizando fallos más eficientes y fundamentados en criterios uniformes y predecibles.
+- La independencia del colegiado es esencial para garantizar resoluciones justas y sin presiones externas. Se fortalecerán los mecanismos que eviten conflictos de interés. Además, se promoverá la actualización constante en criterios jurisprudenciales y derechos humanos, asegurando que cada decisión sea imparcial y responda a las necesidades de una sociedad en constante evolución.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: GERSHOM URIEL LOPEZ AQUINO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: gershom.uriel13@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Título profesional
+Tags Educación: Código Nacional de Procedimientos Penales, Derechos Humanos, Derechos Humanos México, Derechos Sociales, Doctor en Derecho Procesal Constitucional, Grupos Vulnerables, Juicios Orales, Justicia Alternativa, Justicia Constitucional, Justicia Sup ranacional, Metodología Comparación Jurídica, Reforma Constitucional, Sistema Interamericano, UABC, Universidad de Bolonia., Universidad del Rosario
+Tags Propósito: Acceso a la justicia, Atención ciudadana, Atención humanizada, Calidad del servicio, Derechos humanos, Desarrollo profesional, Dignidad, Eficiencia judicial, Equidad, Función jurisdiccional, Imparcialidad, Independencia, Justicia accesible, Liderazgo ético, Pronta resolución, Responsabilidad social., Servidor público, Transparencia
+
+
+## Descripción del Candidato 
+
+GERSHOM URIEL LOPEZ AQUINO es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Judicial de la Federación en Baja California. Cuenta con doctorado en Derecho Procesal Constitucional y Derechos Humanos por la UABC y ha participado en diversos cursos y seminarios relacionados con derechos humanos, justicia alternativa y procesos penales.
+
+Su motivación para el cargo se centra en acercar la justicia a la población, con un enfoque en los derechos humanos. Propone una función jurisdiccional entendida como un servicio a la sociedad, enfatizando la accesibilidad, la imparcialidad y el respeto a la dignidad humana. Sus propuestas incluyen ser un magistrado de puertas abiertas, ejercer un liderazgo ético y eficiente, y garantizar una atención humanizada por parte del personal del tribunal.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/gershomlopez25/?igsh=MWhuOHN2dHdmOWVyNg3D3D#
+
+
+## Cursos
+
+- Taller ¿DERECHOS HUMANOS Y GRUPOS VULNERABLES: SU PROTECCIÓN EN EL SISTEMA INTERAMERICANO¿, U
+- del Rosario, Colombia
+- ,Curso ¿Metodología de la comparación jurídica
+- Modelos de Justicia Constitucional, Supranacional, Universidad de Bolonia,Diplomado en Juicios Orales y el Código Nacional de Procedimientos Penales,Seminario ¿Hacia 10 años de la Reforma Constitucional de junio de 2011
+- El futuro de los Derechos Humanos en México,Seminario internacional Justicia Alternativa y Derechos Sociales, UABC
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54172/10
+
+
+## Trayectoria Academica
+
+- Soy Doctor en Derecho Procesal Constitucional y Derechos Humanos por la máxima casa de estudios de Baja California, UABC
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado para hacer la justicia más cercana y accesible, con un enfoque centrado en los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no debe entenderse como un privilegio, sino como una labor al servicio de la sociedad. Los Magistrados no son una élite de eruditos, sino servidores públicos que deben asumir su responsabilidad con humildad, vocación de servicio y cercanía con la población. Mi visión de la función jurisdiccional es que cada decisión refleje un verdadero compromiso con los derechos y la dignidad de las personas, para contribuir a la consolidación de una sociedad más justa y equitativa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no debe ser lejana ni burocrática, sino una garantía efectiva de equidad y dignidad para todos. Su impartición exige imparcialidad e independencia, asegurando que cada resolución sea justa y libre de influencias externas. Los Magistrados deben cumplir con la impartición de justicia pronta y expedita y hacer efectiva la frase judicial que todo el que se queje con justicia tenga un tribunal que lo escuche, lo ampare y lo proteja contra el fuerte y el arbitrario.
+
+
+## Propuestas
+
+- Ser un Magistrado de puertas abiertas y sensible a la realidad social que enfrentan las personas que acuden resolver sus controversias: Escuchar activamente a las personas involucradas en el proceso, prestando atención y respeto a la información que proporcionan. Y dedicar tiempo para atender a los diversos sectores de la población, acercando los temas de la justicia a la sociedad.
+- Como Magistrado, me comprometo a ejercer un liderazgo basado en la ética, la eficiencia y el respeto a los derechos humanos. Garantizaré una administración de justicia eficaz mediante la correcta aplicación de las disposiciones normativas y la optimización del trabajo del personal jurisdiccional: Fomentar un trato respetuoso y apegado a principios éticos en la interacción con el personal. Identificar necesidades de formación y fomentar el desarrollo profesional del equipo jurisdiccional.
+- Me comprometo a garantizar que el personal del Tribunal brinde una atención respetuosa, eficiente y humanizada a todas las personas que acuden en busca de justicia. Implementar mecanismos para evaluar la calidad del servicio y la interacción del personal con los usuarios. Atender quejas y sugerencias para mejorar la atención y garantizar un trato digno y accesible.
+

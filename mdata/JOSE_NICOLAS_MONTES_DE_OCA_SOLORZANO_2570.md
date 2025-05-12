@@ -1,0 +1,71 @@
+Nombre Candidato: JOSE NICOLAS MONTES DE OCA SOLORZANO
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3326707579
+Correo Electronico: licnicolasmontesdeoca@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado UdeG, Derecho Civil, Derecho Laboral, Derecho Mercantil, Derecho Procesal, Doctor en Derecho, Justicia Alternativa, Maestro en Derecho, Medicina Legal, Seguridad Social, UNIVA, Universidad Panamérica, Universidad de Guadalajara.
+Tags Propósito: Ciudadanía., Constitución, Corrupción, Elecciones 2025, Fortaleza, Honestidad, Humanismo, Impartición de Justicia, Justicia, Lealtad, Nepotismo, Poder Judicial, Principios Humanos, Privilegios, Prudencia, Renovación Poder Judicial, Sueldos, Templanza, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Nicolas Montes de Oca Solorzano es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Legislativo Federal. Cuenta con doctorado en Derecho y una trayectoria académica que incluye especialidades en Derecho Laboral y Procesal, además de diversos diplomados en áreas como Justicia Alternativa y Medicina Legal.
+
+Su motivación para buscar el cargo se centra en impartir justicia basada en principios éticos y en la erradicación de la corrupción, el nepotismo y los privilegios en el Poder Judicial. Sus propuestas principales incluyen la aplicación de principios humanísticos en la toma de decisiones judiciales, la eliminación de prácticas corruptas y la revisión de los altos salarios en el Poder Judicial, buscando un sistema más justo y cercano al ciudadano.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://www.josenicolasmontesdeocasolorzano.com
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Especialidad en Derecho Laboral y de la Seguridad Social en la Universidad Panamericana, en el año 2012,Especialidad en Derecho Procesal Civil y Mercantil también en la Universidad Panamericana, año 2014,Diplomado en Materia Laboral por la Universidad del Valle de Atemajac ¿ UNIVA,Diplomado en Justicia Alternativa por el Instituto de Justicia Alternativa del Estado de Jalisco,Diplomado en Medicina Legal por la Universidad de Guadalajara
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54095/11
+
+
+## Trayectoria Academica
+
+- Abogado UdeG, Especialidad en Derecho Laboral Universidad Panamericana, Maestro en Derecho UdeG y Doctor en Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero impartir justicia en base a los más altos principios que debe vivir el ser humano. Quiero erradicar la corrupción
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Sobre el Poder Judicial quiero comentarles que como todo poder ha tenido sus aciertos; pero también muchas deficiencias que han lastimado al pueblo de México, como la corrupción, el nepotismo; es decir, que sólo los parientes o personas cercanas a quienes forman parte del poder judicial pueden ingresar a ejercer esa función. Sueldos estratosféricos , en fin, vicios que tendrán que ser erradicados y el primer paso es la renovación del Poder Judicial Federal en las elecciones del año 2025.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Formo parte del proceso de renovación del Poder Judicial, ya que he sido designado por la Cámara de Diputados del Poder Legislativo Federal como candidato a Juez de Distrito en materia del trabajo para las próximas elecciones; estoy preparado para ejercer ese cargo; ya que mi trayectoria académica y profesional me respalda; pero sobre todo, soy una persona que ha vivido como tú los vicios, las carencias, la falta de sensibilidad del Poder Judicial y en alguna medida nos hemos sentido agraviados.
+
+
+## Propuestas
+
+- Considero que la impartición de justicia en México debe ser en base a la aplicación de los más altos principios del ser humano, Justicia, Prudencia, Fortaleza, Templanza, Humanismo, Honestidad, Fidelidad y Lealtad; estos principios, olvidados e ignorados por los impartidores de justicia en la actualidad, se pueden desentrañar y se encuentran contenidos en nuestra Constitución Política de los Estados Unidos Mexicanos.
+- La impartición de justicia en base a la aplicación de los principio que todo ser humano debe vivir en su cotidianidad. Si el Juez también los aplica y los vive en su quehacer judicial, el pueblo de México se vera en gran medida beneficiado.
+- Erradicar la corrupción, los privilegios, el nepotismo y los compadrazgos en el Poder Judicial de la Federación. Erradicar los sueldos estratosféricos y ofensivos que agravian al ciudadano, al que nos deberemos por efecto de la elección judicial.
+

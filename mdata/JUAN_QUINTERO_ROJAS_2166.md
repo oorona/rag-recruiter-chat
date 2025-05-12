@@ -1,0 +1,72 @@
+Nombre Candidato: JUAN QUINTERO ROJAS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 3331060616
+Correo Electronico: licenciadojuanquintero@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Consejo de la Judicatura Jalisco, Contador Público, Código Nacional de Procedimientos Civiles y Familiares, Derecho, Doctorado., Litigación Oral, Maestría en Derecho, Materia Civil, Métodos Alternos de Solución de Conflictos, Seminario Iberoamericano, Tecnológico de Monterrey, Universidad de San Diego
+Tags Propósito: Actualización jurídica, Capacitación judicial, Derecho, Estadística judicial, Formación continua, Función jurisdiccional, Imparcialidad, Justicia, Juzgadores., Legalidad, Poder judicial, Profesionalismo, Reconocimiento a juzgadores, Resolución de conflictos, Unificación de criterios, Ética
+
+
+## Descripción del Candidato 
+
+Juan Quintero Rojas es candidato a Juez/a de Distrito en la Ciudad de México, postulado por el Poder Ejecutivo Federal. Cuenta con 23 años de experiencia en el poder judicial y posee estudios de Doctorado, además de una cédula profesional. Su trayectoria académica incluye formación en Derecho y Contaduría Pública, complementada con diversos cursos y seminarios en áreas como litigación oral, métodos alternos de solución de conflictos y derecho procesal civil.
+
+Su motivación para el cargo se basa en su experiencia y la convicción de que una impartición de justicia efectiva es posible. Sus propuestas se centran en fortalecer la capacitación continua de los juzgadores, unificar criterios a través de cursos y seminarios anuales, e implementar un sistema de evaluación que reconozca el desempeño sobresaliente en la función jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/juanquintero
+- https://www.instagram.com/jquinteror04
+
+
+## Cursos
+
+- Diploma expedido por el Tecnológico de Monterrey, curso Código Nacional de Procedimientos Civiles y Familiares, año 2025,Constancia expedida por el Consejo de la Judicatura del Estado de Jalisco, seminario en Materia Civil, septiembre 2024,Seminario Métodos Alternos de Solución de Conflictos expedida por el Consejo de la Judicatura del estado de Jalisco 2024,Constancia emitida por la Universidad de San Diego, por asistencia al ¿Curso de Litigación Oral para  año 2023,¿IV Seminario Iberoamericano de Derecho Abogar y Juzgar en el siglo XXI¿ Universidad de Salamanca España, año 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55177/11
+
+
+## Trayectoria Academica
+
+- Soy Abogado y Contador Público, curse la Maestría en Derecho, así como dos Doctorados
+
+
+## Motivo para buscar el Cargo Publico
+
+Tengo 23 años en el poder judicial, y considero bajo mi experiencia personal, que la impartición de justicia es posible
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de función jurisdiccional, considero que es la facultad que nos otorga el Estado a los juzgadores, a efecto de impartir justicia, logrando que los conflictos de intereses que se susciten entre los particulares sean dirimidos bajo los ordenamientos jurídico vigentes, y se otorgue al ciudadano la justicia y legalidad que merece. como jueces tenemos la obligación de resolver los conflictos que nos determina el Estado con el debido interés profesional, ética y justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Más que una propuesta considero que mi intervención en este momento, es para precisar como lo mencione en el apartado anterior, que la impartición de justicia real, imparcial, ética y profesional es posible, tengo diez años como juez de primera instancia, y puedo asegurar que cualquier Juzgador, sea Juez, Magistrado, Ministro, etcétera, debe capacitarse constantemente a efecto de que su intervención a la ciudadanía sea siempre la más justa y apegada a derecho.
+
+
+## Propuestas
+
+- Capacitación constante a los juzgadores, desde mi experiencia personal, la capacitación es parte fundamental de un Juez, Magistrado, Etcétera. Lo anterior, tomando en consideración que el derecho se actualiza día a día, y si un juzgador no se actualiza, corre el riesgo de que sus resoluciones sean revocadas por el superior cuando así es jurídicamente posible.
+- Tener un mecanismo de cursos, seminarios, talleres, etcétera, donde se unifiquen criterios mínimo anualmente, a efecto de que el justiciable tenga conocimiento de que, tal como sea resulto un asunto en particular, otro de iguales características no sea resuelto contrario al diverso.
+- Contar con un sistema de estadística donde sea posible determinar mediante el procedo adecuado, que juzgadores son susceptibles de tener algún reconocimiento por sobresalir en su labor como juzgador.
+

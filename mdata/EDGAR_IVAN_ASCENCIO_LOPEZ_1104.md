@@ -1,0 +1,73 @@
+Nombre Candidato: EDGAR IVAN ASCENCIO LOPEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3325829363
+Correo Electronico: edgar.ivan.ascencio.eia@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuaría, Ambiente Laboral, Comunicación Escrita, Derechos Humanos, Expresión Oral, Formación Judicial, Género, Igualdad, Justicia, Poder Judicial Federal, Violencia.
+Tags Propósito: accesibilidad, bienestar, cohesión social, derecho administrativo, derechos fundamentales, dignidad, equidad, formación judicial, humanismo, imparcialidad, justicia, justicia administrativa, justicia al servicio de todos., realidad social, sistema judicial, transparencia, trato digno, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Edgar Iván Ascencio López es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal para el estado de Jalisco. Cuenta con Maestría en Derechos Humanos, Justicia y Género, y formación específica para Secretarios del Poder Judicial de la Federación. Su trayectoria académica y profesional se centra en el ámbito judicial y en la defensa de los derechos humanos.
+
+El candidato manifiesta su motivación para el cargo como la promoción de la justicia desde un enfoque humano, equitativo y respetuoso. Sus propuestas incluyen fortalecer la confianza en el sistema de justicia administrativa, priorizar la formación continua de los jueces en derecho administrativo con sensibilidad social, y asegurar que las resoluciones judiciales protejan los derechos fundamentales de todos los ciudadanos, buscando un sistema judicial cercano, justo y transparente.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://instagram.com/lic.edgarascencio
+- https://tiktok.com/@edgarascencio
+
+
+## Cursos
+
+- Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación, Instituto de la Judicatura Federal,Comunicación Escrita y Expresión Oral, Universidad Nacional Autónoma de México,Género como Herramienta para la Igualdad, Escuela Federal de Formación Judicial,Mejora del Ambiente Laboral y Para Generar Espacios Libres de Violencia, Escuela Federal de Formación Judicial,Maestría en Derechos Humanos, Impartición de Justicia y Género
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52366/10
+
+
+## Trayectoria Academica
+
+- Maestra en Derechos Humanos, Justicia y Género, con formación en actuaría y secretarios para el Poder Judicial Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado de Circuito para promover la justicia desde un enfoque humano, equitativo y con respeto a los dere
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ir más allá de aplicar la ley de manera técnica, buscando siempre la justicia con un enfoque humanista. Cada decisión debe considerar la dignidad, los derechos fundamentales y las circunstancias individuales de las personas involucradas. La imparcialidad y la equidad son esenciales, pero también lo es el respeto a la humanidad de quienes acuden al sistema judicial, asegurando que todos reciban un trato justo, respetuoso y acorde a su situación personal y social.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La visión de la impartición de justicia debe centrarse en el respeto a la dignidad de las personas, reconociendo sus derechos fundamentales y contextos particulares. La justicia debe ser accesible, imparcial y capaz de promover la inclusión y la equidad, no solo mediante la aplicación de la ley, sino también atendiendo las necesidades sociales y emocionales de los individuos. Esto busca transformar el sistema judicial en un verdadero motor de cohesión social y
+
+
+## Propuestas
+
+- Mi propuesta es fortalecer la confianza de los mexicanos en el sistema de justicia administrativa, asegurando que los procesos sean rápidos, accesibles y transparentes. Promoveré una gestión judicial que se base en la honestidad, la imparcialidad y la claridad, para que todos, especialmente los más vulnerables, sientan que el Estado está del lado de la justicia y que sus derechos son protegidos sin distinción alguna.
+- Como Magistrado de Circuito, trabajaré por una formación continua y actualizada de los jueces en derecho administrativo, priorizando la comprensión de las realidades sociales y económicas del país. Esto permitirá tomar decisiones que no solo sean jurídicas, sino también sensibles a las circunstancias del pueblo mexicano, con un enfoque humanista que valore el bienestar de las personas.
+- Mi compromiso es que cada resolución administrativa se base en un principio de equidad, buscando que las decisiones judiciales protejan los derechos fundamentales de todos los ciudadanos. Me enfocaré en un sistema judicial cercano, justo y transparente que garantice que las personas reciban un trato digno, reconociendo que la justicia debe estar al servicio de todos.
+

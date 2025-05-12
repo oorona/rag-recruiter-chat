@@ -1,0 +1,80 @@
+Nombre Candidato: MARCOS ARTURO ORTIZ HERNANDEZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5537345426
+Correo Electronico: mortiz.her@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Concurso Escolarizado, Formación Actuarios, Formación Secretarias de Juzgado, Género e Igualdad, Ingeniería en Computación, Instituto Pakal., Licenciatura en Derecho, Oficial Judicial, Poder Judicial de la Federación, Prueba Pericial, UNAM
+Tags Propósito: acceso a la justicia, armonización, conciliación, coordinación legislativa., corrupción, derechos humanos, eficiencia, estándares internacionales, igualdad, imparcialidad, independencia judicial, integridad, justicia, justicia efectiva, justicia pacífica, justicia restaurativa, justicia rápida, justicia universal, nepotismo, resolución de conflictos, tecnología, transparencia, ética
+
+
+## Descripción del Candidato 
+
+MARCOS ARTURO ORTIZ HERNANDEZ es candidato a Jueces/as de Distrito en la Ciudad de México, postulándose al Poder Judicial de la Federación. Cuenta con licenciatura en Derecho e Ingeniería en Computación. Su motivación para buscar el cargo es contribuir a resolver litigios que reduzcan la desigualdad social y la desventaja procesal. 
+
+Su visión se centra en una función jurisdiccional que escuche a las partes sin formalismos, proteja los derechos humanos y garantice una impartición de justicia eficiente, efectiva y rápida. Entre sus propuestas destacan el dictado de sentencias de lectura fácil, la erradicación del nepotismo y la corrupción, el uso de tecnologías, el fortalecimiento de la comunicación entre autoridades a través de medios electrónicos y la promoción de la justicia restaurativa como alternativa para la solución de conflictos. Su curriculum vitae detallado está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/arturo.oh.3/
+- https://x.com/MortizHer
+- https://www.instagram.com/mortizh/
+- https://www.tiktok.com/@marcosarturoortizh
+
+
+## Cursos
+
+- Curso de Formación para Personas Secretarias de Juzgado de Distrito, Concurso Escolarizado, Edición 2022
+- ,Curso de Formación para personas Actuarias del Poder Judicial de la Federación, ciclo escolar 2021
+- ,Vencedor en el Segundo Concurso Abierto de Oposición para acceder al curso de Oficial Judicial del PJF
+- ,Curso Género como Herramienta para la Igualdad, octava edición (jurisdiccional)
+- ,Curso para generar espacios libres de X y Curso de la Prueba Pericial 12ª edición
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54200/11
+
+
+## Trayectoria Academica
+
+- Con mucho esfuerzo y dedicación hice dos carreras
+- Licenciado en Derecho (Instituto Pakal) e Ing
+- en Computacion (UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para ayudar a resolver litigios que reduzcan la desigualdad social y desventaja procesal.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Escuchar a las partes sin formalismos, que la ciudadanía sienta un espacio seguro al momento de iniciar un proceso legal. Busco la protección de los derechos humanos, pues en los últimos años se ha visto un deterioro en la impartición de justicia que, en ocasiones provoca un perjuicio mayor a las partes con el retardo del dictado de la sentencia, pretendo que la resolución de los conflictos sea justa, pacifica e inmediata, buscando siempre la imparcialidad y la independencia judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Buscar que a través de los mecanismos, plazos legales establecidos en las normas mexicanas y cercanía a la gente, la impartición de justicia sea eficiente, efectiva y rápida, garantizando que las decisiones se ajusten a estándares internacionales de derechos humanos. Que la justicia sea universal sin estigmatizaciones que provoquen discriminación entre las partes. Actuar bajo los principios de integridad, ética, honestidad e imparcialidad. Estudiar día con día, porque el derecho evoluciona.
+
+
+## Propuestas
+
+- Escuchar a las partes; dictado de sentencias de lectura fácil; erradicar el nepotismo; cero corrupción; uso de tecnologías; motivar a los servidores públicos que construyan carrera judicial, para que desempeñen sus funciones cabalmente; A través de concursos internos se elegirán a los mejores perfiles, mismos que se encargarán de promover foros informativos una vez al mes con los justiciables, esto para acercar a la gente con nuestro trabajo.
+- Implementar y fortalecer el uso de tecnologías que permitan entre autoridades responsables y juzgados federales una mayor comunicación, evitar el desgaste de papel y dilaciones procesales, así como sustituir las notificaciones personales a través de medios electrónicos que ayuden a las partes la menor movilización y pérdida de tiempo.
+- Buscar la construcción de canales de coordinación con el poder legislativo, respetando en todo momento la independencia, pero fortaleciendo la armonización entre diversos órganos, para impulsar una agenda que contemple la justicia restaurativa, como una alternativa para solución de conflictos, fomentando la conciliación y reparación del daño, esto es, motivando a las partes que acudan a la conciliación como primer recurso.
+

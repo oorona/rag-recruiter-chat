@@ -1,0 +1,75 @@
+Nombre Candidato: HECTOR OSCAR SANCHEZ OJEDA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: YUCATAN
+Sexo: HOMBRE
+Telefono: 9991522775
+Correo Electronico: hector.sanchezoj@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Derecho de Amparo, Derechos Humanos, EFFJ, Experiencia Profesional., Formación, Instituto de la Judicatura, Licenciatura, Maestría, Poder Judicial de la Federación, Proyección Humana y Organizacional, Reforma Constitucional, Reforma Laboral, Universidad Iberoamericana
+Tags Propósito: Acceso a la Justicia., Capacitación, Condiciones Laborales, Corrupción, Eficiencia, Humanización, Igualdad, Impartición de Justicia, Justicia Federal, Legalidad, Ley, Protección, Reforma Integral, Sensibilización, Simplificación, Sociedad, Tecnología, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Héctor Oscar Sánchez Ojeda es candidato a Magistratura de Tribunales Colegiados de Circuito en Yucatán, postulándose desde el Poder Ejecutivo Federal. Cuenta con 24 años de experiencia en el Poder Judicial de la Federación, siendo Licenciado y Maestro en Derecho de Amparo. Su trayectoria académica se complementa con diversos diplomados y cursos en áreas como proyección humana organizacional, reforma constitucional en materia de amparo, derechos humanos y reforma laboral.
+
+Su motivación para el cargo público se basa en su honestidad, valores y experiencia. Propone acercar la justicia federal a grupos vulnerables mediante la sensibilización y humanización de la función jurisdiccional, enfocándose en el análisis de circunstancias personales y la capacitación del personal judicial. Además, busca impulsar criterios que protejan a los quejosos, optimizar recursos a través de la tecnología y fomentar una reforma integral de la justicia con mayor interacción entre los poderes judiciales federal y estatal.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/hectorsanchezoj
+- https://www.instagram.com/hector_sanchezoj/
+- https://www.tiktok.com/@hector_sanchezoj
+
+
+## Cursos
+
+- Diplomado en Proyección Humana y Organizacional del Poder Judicial de la Federación por la Universidad Iberoamericana
+- ,Curso La Reforma Constitucional en Materia de Amparo y su Ley Reglamentaria por la EFFJ del Instituto de la Judicatura F,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Curso Los Derechos Humanos: Evolución y Perspectiva Contemporánea, impartido por la Universidad de las Américas Puebla,Jornadas de Introducción relativas a la Reforma Laboral: Análisis de los Retos y Perspectivas impartidas por el IJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55118/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Maestro en Derecho de Amparo con 24 años de experiencia en el Poder Judicial de la Federación
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona honesta, con valores, sensible a las necesidades humanas, con años de experiencia y capacidad para ello.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es buscar el acercamiento de la Justicia Federal a la gente mas vulnerable mediante la sensibilización y humanización de la función Jurisdiccional de tal manera que las resoluciones puedan sean emitidas siempre dentro del marco de la Ley, pero con un mayor análisis de las circunstancias personales, a fin de que no solo se aplique la Ley, sino que se interprete siempre en un mayor beneficio para la sociedad, considerando fundamental para ello la capacitación humana del personal del PJF.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Considero que la impartición de Justicia debe estar al alcance de todas las personas, sin importar su condición social, genero, etc., siempre dentro de lo establecido en las Leyes, pero buscando un verdadero sentido de justicia, de manera tal que la aplicación de la ley no llegue a ser paradójicamente injusta, velando por los grupos más vulnerables socialmente como los menores, las mujeres, las personas con bajos recursos económicos y las víctimas, sin permitir abusos de ninguna de las partes.
+
+
+## Propuestas
+
+- Impulsar criterios que permitan una mayor apreciación de las condiciones personales de los quejosos de manera tal que se permita una protección mayor de la Ley sobre las personas afectadas. Lo cual se puede lograr no solo con la emisión reiterada de resoluciones más humanas, mas claras y sencillas para el mejor entendimiento de los justiciables, sino también con una mejor y mayor capacitación del personal jurisdiccional, que logre sensibilizar sobre la realidad de los sucesos que se reclamen.
+- Impulsar la implementación de la tecnología existente que permita generar una mayor eficiencia y el uso de menos recursos materiales como la energía eléctrica, el papel, los toners, de manera tal que el Poder Judicial Federal pueda integrar y resolver los asuntos en un menor tiempo, con menos recursos y cargas extenuantes, no solo del personal jurisdiccional, sino también de las partes que intervienen en los juicios, mediante la simplificación del acceso electrónico a los expedientes.
+- Buscar la implementación de un enfoque de reforma integral de la Justicia en nuestro país, de manera que los juzgadores y personal de los Poderes Judiciales tanto Federal como Estatal, tengan mayor capacitación e interacción entre sí, al grado que ello permita la solución de los asuntos con mayor transparencia, rapidez y legalidad posible. A lo cual debe sumarse una mejor vigilancia, pero también mejores condiciones laborales para evitar casos de corrupción entre el personal jurisdiccional.
+

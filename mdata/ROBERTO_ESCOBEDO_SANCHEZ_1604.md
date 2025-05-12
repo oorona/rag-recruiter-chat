@@ -1,0 +1,77 @@
+Nombre Candidato: ROBERTO ESCOBEDO SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6675744163
+Correo Electronico: robertoes28@live.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuaría, Discapacidad, Educación Continua., Formación, Impartición de Justicia, Ley de Amparo, Poder Judicial de la Federación, Sensibilización, Trayectoria, Versiones Públicas
+Tags Propósito: agilidad, argumentación, claridad, concreción, contundencia, crecimiento profesional., digitalización, entendimiento, expediente electrónico, interés superior del menor, justicia, justificación, motivación, personal judicial, perspectiva de género, resolución, rigorismo, sensibilidad, síntesis, trato digno
+
+
+## Descripción del Candidato 
+
+ROBERTO ESCOBEDO SANCHEZ es candidato a Magistratura de Tribunales Colegiados de Circuito en SINALOA, postulado por el Poder Ejecutivo Federal. Cuenta con licenciatura y cédula profesional, así como 21 años de experiencia en la impartición de justicia, complementada con cursos sobre formación en el Poder Judicial, la Nueva Ley de Amparo y temas de discapacidad.
+
+Su motivación para el cargo es la resolución efectiva de asuntos con estudio y sensibilidad. Propone sentencias claras y concisas, la optimización del expediente electrónico y un trato digno y motivador para el personal de los tribunales. Su visión de la función jurisdiccional enfatiza resoluciones concretas y la resolución del fondo del asunto, mientras que en la impartición de justicia busca aplicar principios como el interés superior de los menores y la perspectiva de género, evitando rigorismos innecesarios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/@roberto.madrid.395
+- https://www.x.com/@RobertoEsc42532
+- https://www.instagram.com/robaries33
+- https://www.youtube.com/@Robaries33
+- https://www.tiktok.com/@robe_esc
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Diálogos para la Instrumentación de la Nueva Ley de Amparo,Actuarios modalidad virtual,Taller de Elaboración de Versiones Públicas
+- ,Talle de sensibilización y toma de conciencia sobre los derechos de las personas con discapacidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53147/10
+
+
+## Trayectoria Academica
+
+- 21 años de participar en la impartición de justicia, siempre estudiando y dando lo mejor de mi
+
+
+## Motivo para buscar el Cargo Publico
+
+Me apasiona llegar al punto de resolver un asunto de la mejor manera, con mucho estudio y sensibilidad de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Las resoluciones deben de ser concretas y contundentes, que las entienda cualquier persona, además de que siempre se debe tratar de resolver los asuntos en el fondo del asunto, tratando de evitar reposiciones de procedimiento cuando sean innecesarias. Consideró que cuando algún tema lo amerita sí debe realizarse una argumentación y justificación necesaria para sustentar la determinación que se llegue a tomar, pero en la medida de lo posible las sentencias no deben ser extensas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la impartición de justicia debe tenerse muy en cuenta que los asuntos son personas, en las que si bien habrá que darle la razón a quien la tenga, lo cierto es que debe uno adoptar todas las herramientas y protocolos que hagan una justicia real para quien más lo necesita, ya sea en la aplicación del interés superior de los menores, la perspectiva de género y en temas generales dejando de lado los rigorismos injustificados
+
+
+## Propuestas
+
+- Las sentencias es el producto de los tribunales y por ello deben ser fáciles de entender por cualquier persona, lo que requiere dejar a un lado las palabras rimbombantes que ni siquiera se usan en una charla común, es evidente que la cuestión técnica no puede dejarse a un lado, pero sí se puede buscar que cualquier determinación sea entendible para los interesados, por lo que puede hacerse una síntesis en cada sentencia que explique de manera sencilla la determinación
+- La implementación del expediente electrónico ya es una realidad en los órganos jurisdiccionales, pero aún se continua con la integración del expediente físico, por ello los órganos jurisdiccionales debemos realizar un verdadero análisis de como mejor el expediente digital, ya que actualmente no es un sistema ágil.
+- Sin lugar a duda, lo que mucho se ha padecido en la institución es la falta de sensibilidad de los titulares con el personal de los propios tribunales, creo firmemente que se les debe motivar y alentar para el crecimiento de sus talentos, con trato digno, no como capataces, pues la justicia no se debe presumir para el exterior, sino también en el interior.
+

@@ -1,0 +1,81 @@
+Nombre Candidato: JOSEPH IRWING OLID ARANDA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: josepholid.2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: ABA ROLI., Abogado, Argumentación Jurídica, Doctorando, ITEESO, Infancia, Justicia Constitucional, Litigación Oral, Maestro, Mediación, Negociación, Nova Spania, Profesor, Razonamiento Jurídico, Tutela Jurisdiccional, UDG
+Tags Propósito: amparo, audiencias., derechos, empatía, inmediatez, jueces, justicia, justicia cercana, justicia completa, justicia pronta, justicia social, metodologías de trabajo, oralidad, procesos, procesos penales, reforma judicial, rendición de cuentas, resolución de conflictos, sensibilidad, tejido social, transparencia, verdad
+
+
+## Descripción del Candidato 
+
+Joseph Irving Olid Aranda es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Ejecutivo y Legislativo Federal. Es abogado con Maestría y actualmente doctorando, además de profesor en el ITESO. Su trayectoria académica incluye formación en justicia constitucional, razonamiento jurídico y técnicas de mediación, así como estudios en la Universidad de Pisa, la Universidad Externado de Colombia y la UDG.
+
+El candidato expresa como motivación para el cargo el deseo de impartir justicia con sensibilidad social. Su visión de la función jurisdiccional destaca la importancia de la cercanía, la transparencia, la rendición de cuentas y la búsqueda de la verdad y la justicia. Sus propuestas centrales incluyen una justicia cercana a las partes, que priorice la resolución pronta de los conflictos y busque una solución completa e integral, evitando tecnicismos que obstaculicen el acceso a la justicia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/olid.jal/
+- https://x.com/j_olar
+- https://www.instagram.com/joseph_olid/
+- https://www.youtube.com/@josepholar4653
+- https://www.tiktok.com/@j_olar
+- https://mx.linkedin.com/in/joseph-i-olid-aranda-73935a141
+
+
+## Cursos
+
+- Curso de Alta Formación en Justicia Constitucional y Tutela Jurisdiccional de los Derechos por la Universidad de Pisa
+- ,Curso sobre Razonamiento Interpretativo y Argumentación Jurídica por la Universida Externado de Colombia
+- ,Jornadas Internacionales de Infancia por el Supremo Tribunal de Justicia del Estado de Jalisco
+- ,Taller en Técnicas de Mediación y Negociación por ABA ROLI y la Universidad Panamericana, Campus Guadalajara
+- ,Taller en Técnicas, Habilidades y Destrezas en Litigación Oral para Estudiantes y Profesores por ABA ROLI y la UDG
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54060/11
+
+
+## Trayectoria Academica
+
+- Abogado por la UDG, Maestro por Nova Spania, Doctorando en Nova Spania y Profesor en el ITESO
+
+
+## Motivo para buscar el Cargo Publico
+
+Impartir justicia es el más alto honor para un abogado, pero hacerlo con sensibilidad social es una mayor virtud.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no solo se trata de tramitar conflictos con base en lo que las leyes dicen, sino que debe haber sensibilidad social frente a los casos y las causas que todos los días llegan a los juzgados. En el caso específico del ámbito penal, se requiere que los jueces simple y llenamente busquen la verdad y la justicia, pues es lo que el pueblo necesita. La función debe ser no solo transparente, sino también cercana, bajo un proceso de rendición de cuentas permanente y pedagógico.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia no ha sido aplicada con sensibilidad social; por ello, los jueces deben considerar que cada caso es una historia de vida. En el caso de Amparo debe haber una justicia completa e integral, que evite la prolongación indebida de los asuntos y que haga efectivos los derechos de las partes; por su parte, en el Proceso Penal se requiere que la oralidad e inmediación sean ejercidas con mayor empatía hacia las partes involucrados, pugnando por restaurar el tejido social.
+
+
+## Propuestas
+
+- Justicia cercana: Las partes procesales deben de sentir que el Juez es una persona cercana al conflicto, que lo entiende a detalle y que su resolución es acorde con la necesidad de estas para ser escuchadas; esto implica evitar todo tipo de trato hostil hacia las partes, mantener las puertas abiertas y tener mayor sensibilidad en el desahogo de audiencias o trato con las partes, para que estas adviertan que el Juez es una persona que les escucha y analiza sus planteamientos con seriedad.
+- Justicia pronta: Con la reforma judicial se incluyeron algunas disposiciones para que los procesos no se alarguen tanto, mientras que algunos podrían tratar de excusarse en la carga de trabajo, se propone aplicar metodologías de trabajo y resolución que permitan que las controversias se resuelvan pronto. El Juez no debe ser complaciente con malas prácticas de las partes que propician obstaculización de los procesos y que genera que estos se alarguen innecesariamente.
+- Justicia completa: Aunque se trata de un derecho ya previsto en ley, los jueces debemos tomar con seriedad su contenido y hacerlo efectivo en el día a día; se debe buscar la solución del fondo frente a la forma, evitando tecnicismos arcaicos que han propiciado cadenas interminables de recursos o amparos; además, en la solución de conflictos penales, se debe entender que toda conducta y procesamiento penal impacta en la vida de las personas, lo cual debe atender el Juez hacia las partes.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: SILVINO HERNANDEZ HERNANDEZ
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación Jurídica, Derecho Administrativo Sancionador, Derecho Constitucional, Derecho Electoral, Derechos Humanos, Formación Continua., Licenciatura en Derecho, Sistema Interamericano de Derechos Humanos, UNAM, UNILEON
+Tags Propósito: Accesibilidad, Constitución, Democracia, Derechos políticos electorales, Diversidad cultural, Eficiencia, Equidad, Imparcialidad, Inclusión, Independencia, Justicia electoral, Participación ciudadana., Pueblos indígenas, Sistema electoral, Transparencia, Violencia política de género
+
+
+## Descripción del Candidato 
+
+Silvino Hernandez Hernandez es candidato a la Magistratura de las Salas Regionales del Tribunal Electoral del Poder Judicial de la Federación, postulándose por el Poder Legislativo Federal. Cuenta con especialidad en Derecho Constitucional, maestría en Argumentación Jurídica y licenciatura en Derecho, además de diversos cursos en materia electoral, derechos humanos y derecho administrativo sancionador.
+
+Su motivación para buscar el cargo es la aspiración a un Tribunal Electoral independiente e imparcial que sirva a la ciudadanía. Propone fortalecer la difusión de las funciones del Tribunal y los derechos político electorales, erradicar la violencia política en razón de género y colaborar en un sistema electoral más equitativo y respetuoso con la diversidad cultural, incluyendo la defensa de los derechos de los pueblos y comunidades indígenas.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/Licsilvino
+- https://x.com/silherh?s=11
+- https://www.instagram.com/silvino.hernandez.96?igsh=MWthemkyanN5d3Rneg3D3D&utm_source=qr
+- https://www.tiktok.com/@silvino.h..hernan?_t=ZM-8v6SIspftNX&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Electoral,Curso sobre Derecho Administrativo Sancionador Electoral,Curso La Motivación de la Prueba,Curso para la Promoción y Defensa de los Derechos Humanos en México,Curso de Formación en el Sistema Interamericano de Derechos Humanos Dr
+- Héctor Fix Zamudio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/16515/9
+
+
+## Trayectoria Academica
+
+- Máster en Argumentación Jurídica (Unileon); Especialidad Derecho Constitucional (UNAM); Licenciatura en Derecho (UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Anhelo un Tribunal que imparta justicia electoral de manera independiente e imparcial que sirva al interés de la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Tribunal integrado por Magistrados independientes e imparciales, que resuelvan los conflictos en estricto apego a los principios y reglas establecidas en la Constitución Federal y en las leyes de la materia, favoreciendo en todo momento la interpretación más favorable de los derechos político electorales de la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de una justicia electoral más accesible, pronta y eficiente, en la que se garantice los derechos político electorales de la ciudadanía acorde a los principios y valores en el marco de una democracia constitucional.
+
+
+## Propuestas
+
+- Fortalecer la difusión de las funciones y facultades del Tribunal Electoral, y los derechos político electorales que tiene toda la ciudadanía, a través de todos los medios de comunicación disponibles, en la que se utilice un lenguaje accesible, claro y comprensible, dirigida a toda la población en general, para que se involucre cada vez más en los asuntos públicos.
+- Erradicar la violencia política en razón de género, desde el ámbito de atribuciones del Tribunal Electoral, para que el acceso a los cargos públicos de las mujeres sea más justa, equitativa e inclusiva, donde puedan participar sin discriminacion ni desventajas.
+- Colaborar en la construcción de un sistema electoral más equitativo y respetuoso con la diversidad cultural del país, particularmente, mediante la defensa, promoción y garantía de los derechos político electorales de los pueblos y comunidades indígenas, en la que se promueva un entorno más inclusivo y justo.
+

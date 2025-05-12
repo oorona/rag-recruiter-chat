@@ -1,0 +1,73 @@
+Nombre Candidato: KARLA GUADALUPE GUZMAN GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: NUEVO LEON
+Sexo: MUJER
+Telefono: 3328899706
+Correo Electronico: karlaguzmangzz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogada, Gente, Leyes, Necesidades, Universidad Autónoma de Nuevo León
+Tags Propósito: Acceso a la justicia, Agilidad, Burocracia, Capacitación, Celeridad, Confianza, Derechos, Digitalización, Eficiencia, Expedientes, Igualdad, Justicia, Modernización, Procedimientos, Resolución de conflictos, Resolución rápida, Simplificación, Sistema judicial., Transparencia, Trámites
+
+
+## Descripción del Candidato 
+
+KARLA GUADALUPE GUZMAN GONZALEZ es candidata a Jueza/es de Distrito por Nuevo León, postulándose a través del Poder Legislativo Federal. Abogada egada de la Universidad Autónoma de Nuevo León, su motivación para buscar el cargo público es trabajar por una justicia justa, cercana y sin privilegios, asegurando que todas las personas sean escuchadas.
+
+Su visión se centra en una justicia accesible, eficiente y orientada a la resolución de problemas, con menos burocracia y trámites. Sus propuestas incluyen agilizar trámites rezagados, fortalecer los procesos administrativos a través de la digitalización y la automatización, y promover la capacitación constante del personal judicial.  Más información sobre su trayectoria y propuestas está disponible en su curriculum vitae: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53531/11 y en sus redes sociales: https://www.facebook.com/KarlaGuzmanGonzalez; https://www.instagram.com/karla_guzman_gzz/.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/KarlaGuzmanGonzalez
+- https://www.instagram.com/karla_guzman_gzz/
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53531/11
+
+
+## Trayectoria Academica
+
+- Abogada por la Universidad Autónoma de Nuevo León
+- Conozco las leyes y sobre todo conozco las necesidades de la gente
+
+
+## Motivo para buscar el Cargo Publico
+
+Para trabajar por una justicia justa, cercana y sin privilegios. Que nadie se quede sin ser escuchado.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ponerse al servicio de la gente. Menos trámites, menos burocracia y más soluciones claras y rápidas. Trabajaré para que jueces, abogados y gobierno colaboren en un sistema transparente donde prime la verdad, la igualdad y la confianza. Justicia que se vea y se sienta.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Quiero que cualquier persona, sin importar su condición, encuentre puertas abiertas y respuestas rápidas. Trato humano, procedimientos sencillos y resultados justos. Que la gente confíe en que sus derechos serán protegidos sin demoras ni opacidad.
+
+
+## Propuestas
+
+- Agilidad en trámites rezagados. Priorizar la resolución de expedientes que han quedado sin respuesta, garantizando que ningún asunto permanezca en el olvido. Implementaré estrategias para optimizar tiempos procesales y estableceré mecanismos de seguimiento para que cada caso avance sin dilaciones. La justicia debe ser pronta y expedita, por lo que trabajaré en reducir rezagos y agilizar resoluciones pendientes.
+- Fortalecimiento de procesos administrativos. Mejorar los procesos administrativos con herramientas que permitan un análisis eficiente de los asuntos en trámite. Promoveré la digitalización, automatización y simplificación de trámites, reduciendo la carga burocrática. La modernización del sistema judicial debe garantizar mayor claridad y efectividad en la gestión de cada caso, asegurando procedimientos más ágiles y organizados.
+- Capacitación constante del personal. La calidad de la justicia depende del conocimiento y preparación de quienes la imparten. Se debe impulsar programas de capacitación continua para el personal, asegurando que cuenten con herramientas actualizadas y criterios sólidos para la toma de decisiones.
+

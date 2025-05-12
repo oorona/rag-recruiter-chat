@@ -1,0 +1,74 @@
+Nombre Candidato: EDWIN ANDREE HERNANDEZ SALCIDO
+Cargo: Juezas/es de Distrito
+Entidad: NAYARIT
+Sexo: HOMBRE
+Telefono: 3112540822
+Correo Electronico: hernandezandree4@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Especialización, Formación Judicial, Impartidor, Juicio Amparo., Justicia Laboral, Licenciatura, Maestría, Oficial Judicial, Poder Judicial de la Federación, Universidad Autónoma de Nayarit
+Tags Propósito: Bienestar, Claridad, Confianza, Constitución, Derechos, Empatía, Escuchar, Igualdad, Justicia, Leyes, Privilegios., Proceso judicial, Prontitud, Respeto, Servir, Transparencia, Vulnerables
+
+
+## Descripción del Candidato 
+
+Edwin Andree Hernandez Salcido es candidato a Juez/a de Distrito en Nayarit, postulado por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho y cédula profesional, complementada con especialización en reforma en materia de justicia laboral y formación para acceder a la categoría de Oficial Judicial del Poder Judicial de la Federación. Su motivación para el cargo público se basa en su amor por el país y su vocación de servicio.
+
+Su visión de la función jurisdiccional se centra en el bienestar de las personas por encima del tecnicismo legal, buscando una justicia justa en el proceso, no solo en la sentencia. Sus propuestas incluyen actuar con respeto a la Constitución y leyes, especialmente en la protección de grupos vulnerables; comunicar la justicia de manera clara y comprensible; y restaurar la confianza en el sistema judicial eliminando privilegios.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/andree.hernandezsalcido
+- https://www.instagram.com/andree.hdez/
+- https://www.tiktok.com/@andree.hdez?lang=es
+
+
+## Cursos
+
+- especialización sobre la reforma en materia de justicia laboral impartido por la escuela Federal de Formación Judicial,impartidor del módulo  Legal  en diplomados en la Universidad Autónoma de Nayarit,habilitado para acceder a la categoría de Oficial Judicial del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54270/11
+
+
+## Trayectoria Academica
+
+- LICENCIATURA EN DERECHO
+- MAESTRÍA EN JUICIO DE AMAPRO ESPECIALIZACIÓN SOBRE LA REFORMA EN MATERIA DE JUSTICIA LABORAL
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo amor por nuestro país y vocación para escuchar y servir a las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Todas las personas juzgadoras deben tener en cuenta que que la finalidad máxima del derecho es el bienestar de las personas, de ahí que la función jurisdiccional debe estar encaminada en servir a las personas por encima de cualquier tecnicismo legal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no solamente debe ser justa al dictar una sentencia, sino que debe ser justa durante todo el proceso judicial. Para lograrlo, se debe tratar con respeto y empatía a todas las personas que participan en un proceso jurisdiccional. La poca atención y empatía provocan paradójicamente que la justicia sea injusta, no tanto por la forma en que se resolvió la controversia sino por el trato que se dio a las personas durante el proceso.
+
+
+## Propuestas
+
+- Actuar con respeto absoluto a nuestra Constitución y demás leyes aplicables, a fin de lograr una justicia efectiva, adecuada y procurada en los tiempos actuales, sin desestimar en ningún caso la protección que la propia normatividad entrega a los grupos vulnerables.
+- Quiero cambiar la forma de comunicar la justicia a las personas. Busco una justicia clara en la que las y los ciudadanos comprendan cabalmente los motivos legales por los que en su caso se les da o niega la razón. Asimismo, procuraré una justicia pronta impartida dentro de los términos y plazos legales, vigilando durante la tramitación del juicio que las partes no sufran daños graves por el transcurso indebido del tiempo.
+- Busco que el nuevo ejercicio de la función jurisdiccional encuentre por fin la justicia anhelada por un pueblo que ya poco o nada cree en ella. Se anhela que se termine con los privilegios y que regrese la razón y la confianza que por tantos años se perdió o estuvo extraviada.
+

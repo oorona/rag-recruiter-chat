@@ -1,0 +1,75 @@
+Nombre Candidato: MARIA AURORA LOMELI GONZALEZ
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Carrera Judicial., Cursos, Derecho del Trabajo, Especialización, Igualdad de Género, Licenciatura en Derecho, Maestrías, Reforma Judicial, Seguridad Social, Violencia
+Tags Propósito: acceso a la justicia, agilidad procesal, autonomía judicial, confianza ciudadana, derechos, dignidad humana, equidad, estado de derecho, imparcialidad, independencia judicial, innovación, justicia cercana, justicia laboral, justicia social, lenguaje jurídico, principios éticos, resolución de conflictos., sistema judicial, tecnología, transparencia, ética
+
+
+## Descripción del Candidato 
+
+MARIA AURORA LOMELI GONZALEZ es candidata a Jueces/es de Distrito en Puebla, postulándose a través del Poder Judicial de la Federación. Cuenta con cédula profesional y una trayectoria académica que incluye licenciatura en derecho, dos maestrías, una especialidad y más de treinta cursos, entre ellos en derecho del trabajo, seguridad social, igualdad de género y la reforma judicial de 2021.
+
+Su motivación para buscar el cargo es servir con ética, garantizar derechos y fomentar la justicia laboral para contribuir a una sociedad más justa. Propone simplificar el lenguaje jurídico para facilitar la comprensión ciudadana, agilizar los procesos judiciales con apoyo de la tecnología y fortalecer la imparcialidad y autonomía judicial para fortalecer la confianza en las instituciones. Su visión de la función jurisdiccional se centra en un sistema judicial cercano, imparcial, transparente y eficiente en la resolución de conflictos laborales, respetando los derechos humanos y promoviendo el equilibrio social.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16AUUJRzBe/
+- https://www.instagram.com/aurora_lomeli_?igsh=MWM4MHU1NnZ3c21jYg==
+- https://www.tiktok.com/@auroralomeli3?_d=secCgYIASAHKAESPgo8yBYm2rKgiBjCGdD9672gWHx9EeuRaZbWtLc2WflVE5uEUEi2BGmR2SNRjeP5l6If2FRhBoyn1Ye0yiTTdbGgA3D&_svg=1&checksum=c58cb4de802f14ac7f12996ebd0704186
+
+
+## Cursos
+
+- Curso la Carrera Judicial en el Derecho del Trabajo,Diplomado en Seguridad Social 3ª Generación,Curso Género como Herramienta para la Igualdad
+- Tercera Edición,Curso Para Generar Espacios Libres De Violencia,Curso la Reforma Judicial 2021
+- Segunda Edición
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53934/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho, dos maestrias, una especialidad y mas de treinta cursos
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con ética, garantizar derechos, fomentar justicia laboral y contribuir a una sociedad más justa y equitativo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional es contar con un sistema judicial cercano, imparcial y transparente que tome decisiones rápidas y justas. La justicia laboral implica resolver conflictos respetando derechos humanos, laborales y contribuyendo al equilibrio social. Creo firmemente en la independencia judicial y neutralidad para fortalecer la confianza ciudadana, promoviendo un Estado de derecho sólido y accesible.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia es brindar soluciones rápidas, claras e imparciales, garantizando que todas las personas accedan efectivamente a sus derechos. Concibo la justicia como un medio para lograr equilibrio social, proteger la dignidad humana y promover equidad. Creo en una justicia humana, sin tecnicismos innecesarios y sensible a las necesidades ciudadanas, fortaleciendo la confianza institucional.
+
+
+## Propuestas
+
+- Justicia cercana y ciudadana: Propongo simplificar el lenguaje jurídico para que las sentencias y resoluciones sean claras, cortas y comprensibles para toda la ciudadanía. Mi objetivo es acercar la justicia a las personas, eliminando barreras técnicas innecesarias.
+- Agilidad en los procesos judiciales: Busco implementar prácticas innovadoras, apoyadas en la tecnología, para agilizar los trámites y reducir significativamente los tiempos en la resolución de conflictos laborales, garantizando justicia rápida y efectiva.
+- Fortalecimiento de la imparcialidad y autonomía: Me comprometo a promover una cultura judicial basada en principios éticos sólidos, asegurando que las decisiones se tomen con absoluta independencia, sin presiones externas, fortaleciendo así la confianza ciudadana en la justicia y las instituciones.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: RICARDO NAVA FLORES
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5529091910
+Correo Electronico: ricardonavaf@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Capacitación, Doctorado, Escuela Federal de Formación Judicial, Formación, INDEPAC., Licenciatura en Derecho, Maestría, Poder Judicial de la Federación, Recursos Ilícitos, Secretarios, Sentencias, Sistema Penal Acusatorio, Tribunal Electoral, UNAM
+Tags Propósito: calidad técnica., confianza, demandas del pueblo, función jurisdiccional, imparcialidad, independencia, instituciones, justicia, legitimación, ley, orden social, patriotismo, profesionalismo, pronta expedita, sociedad mexicana, ética
+
+
+## Descripción del Candidato 
+
+Ricardo Nava Flores es candidato a Juez/a de Distrito en la Ciudad de México, postulándose desde el Poder Ejecutivo Federal. Cuenta con estudios de Licenciado en Derecho por la UNAM, así como maestría y doctorado por INDEPAC, y ha realizado diversas especializaciones y cursos en el Poder Judicial de la Federación, incluyendo formación en el Sistema Penal Acusatorio y redacción de sentencias.
+
+Su motivación para buscar el cargo se centra en impartir justicia con valores de independencia, imparcialidad y profesionalismo. Su visión se orienta a un sistema judicial cercano a la sociedad, que responda a sus demandas garantizando una justicia pronta, expedita e imparcial. Sus propuestas incluyen garantizar el acceso a la justicia, priorizar el servicio a las personas en la aplicación de la ley, y buscar la legitimación y confianza de la sociedad en su desempeño. Más información sobre su trayectoria se encuentra disponible en su currículum vitae: [https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54555/11](https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54555/11) y en sus redes sociales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1SFvGrRpG7/?mibextid=wwXIfr
+- https://x.com/ricardonavaflo2?s=11
+- https://www.instagram.com/ricardo.nava.flores?igsh=MTNud2hjMzR4aXl2MA3D3D&utm_source=qr
+- https://www.tiktok.com/@ricardo.nava.flores?_t=ZM-8v4yopR18L8&_r=1
+
+
+## Cursos
+
+- Especialidad en curso básico de formación y preparación de secretarios del Poder Judicial de la Federación 2020,Curso de formación para personas secretarias de Tribunal de Circuito del Poder Judicial de la Federación 2022,VIII Taller de redacción de sentencias
+- Tribunal Electoral del Poder Judicial de la Federación 2020,Programa integral de capacitación en el Sistema Penal Acusatorio INACIPE 2018,Operaciones con recursos de procedencia ilícita OPDAT México 2017
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54555/11
+
+
+## Trayectoria Academica
+
+- Licenciado en derecho por la UNAM, especialidad Escuela Federal de Formación Judicial, maestría y doctorado INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Para impartir justicia reflejando valores de independencia, imparcialidad, excelencia, objetividad y profesionalismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un juez cercano a la sociedad mexicana, pues debemos recordar que la justicia es pilar fundamental para el orden social. Que la impartición de justicia responda a las demandas del pueblo y por ende, garantice una justicia pronta, expedita e imparcial y con ello lograr la confianza de las personas que acuden a los tribunales y de la ciudadanía en general.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desempeño de la función jurisdiccional, a partir del esfuerzo de dar a cada quien lo que le es debido, es decir la emisión de sentencias basadas en la letra o interpretación de la ley, demostrando así, la calidad técnica y ética de mi persona juzgadora, pues debo decir que además de amar a mi país, respetar sus instituciones, tengo la firme convicción que la función de juez, debe ser desempeñada de forma leal y patriótica.
+
+
+## Propuestas
+
+- Que la impartición de justicia responda a las demandas del pueblo y por ende, garantice una justicia pronta, expedita e imparcial.
+- Reconocer que en cada momento del desempeño de la función judicial, se debe ser consciente de que la ley se hizo para servir a las personas, de modo que serán estas quienes constituyen el motivo primordial de la justicia.
+- Reflejar la legitimación y confianza depositada por electores, a través de la aprobación del desempeño por la sociedad mexicana.
+

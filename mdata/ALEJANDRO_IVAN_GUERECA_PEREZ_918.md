@@ -1,0 +1,77 @@
+Nombre Candidato: ALEJANDRO IVAN GUERECA PEREZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: DURANGO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: agueper@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Penal, Doctorado, Facultad de Derecho, Graduación., Juicio de Amparo, Maestría, Mercadotecnia, Negocios Internacionales, Posgrado, UAD, UNAM, Universidad Juárez del Estado de Durango
+Tags Propósito: acceso a la justicia, eficiencia judicial, función jurisdiccional, imparcialidad, lenguaje claro, nepotismo, orientación legal., políticas de puertas abiertas, rapidez judicial, sentencias concisas, transparencia, trato humano
+
+
+## Descripción del Candidato 
+
+Alejandro Ivan Guereca Perez es candidato a Magistratura de Tribunales Colegiados de Circuito en Durango, postulándose ante el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con estudios concluidos a nivel de Doctorado en Derecho por la Universidad Juárez del Estado de Durango, complementados con diversas maestrías y un diplomado en Juicio de Amparo.
+
+Su motivación para buscar el cargo se basa en su gusto por la función jurisdiccional y su experiencia. Su visión para la función jurisdiccional se centra en acercar los tribunales a la ciudadanía, promoviendo un trato humano y políticas de puertas abiertas. Propone combatir el nepotismo, emitir sentencias en el menor tiempo posible y redactarlas de forma concisa y en un lenguaje accesible para facilitar su comprensión.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alejandro.guereca.58
+- https://x.com/aguerecap
+- https://www.instagram.com/agueper/?hl=es-la
+- https://www.tiktok.com/@alejandro_guereca
+- https://www.facebook.com/profile.php?id=61574397839615
+
+
+## Cursos
+
+- DIPLOMADO EN EL JUICIO DE AMPARO IMPARTIDO POR LA UNIVERSIDAD AUTÓNOMA DE MÉXICO,MAESTRÍA EN MERCADOTECNIA Y NEGOCIOS INTERNACIONALES EN LA UNIVERSIDAD AUTÓNOMA DE DURANGO,ESPECIALIDAD EN DERECHO PENAL EN LA UNIVERSIDAD JUÁREZ DEL ESTADO DE DURANGO,MAESTRÍA EN DERECHO EN LA UNIVERSIDAD JUÁREZ DEL ESTADO DE DURANGO
+- GRADO OBTENIDO EL 6 DE MAYO DE 2021,DOCTORADO EN DERECHO EN LA UNIVERSIDAD JUÁREZ DEL ESTADO DE DURANGO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53588/10
+
+
+## Trayectoria Academica
+
+- Me gradué de la Facultad de Derecho de la Universidad Juárez del Estado de Durango, en la que también cursé posgrados
+
+
+## Motivo para buscar el Cargo Publico
+
+Me gusta la función jurisdiccional, además tengo la experiencia y conocimientos para desempeñar el cargo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Esta reforma debe ser aprovechada para que la función jurisdiccional sea más cercana a la gente, que todos los funcionarios públicos den un trato humano y respetuoso a las personas que acuden a los tribunales con la finalidad de solucionar sus problemas; se implementes políticas de puertas abiertas, en las que tanto los titulares como los demás servidores reciban, sin previa cita, a todo aquel que tenga alguna duda sobre su procedimiento y procuren orientarlo, dentro del marco legal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser más rápida, para que los ciudadanos vean a los tribunales como verdaderas instituciones a las que pueden acudir para resolver sus problemas legales. Las sentencias deben ser concisas y redactadas en lenguaje simple, para que a todos los gobernados se les facilite entenderlas, sin requerir la ayuda de un experto en derecho.
+
+
+## Propuestas
+
+- Combatir el nepotismo.
+- Emitir sentencias en el menor tiempo posible.
+- Sentencias breves y redactadas en un lenguaje simple.
+

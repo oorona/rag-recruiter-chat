@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE LUIS CEBALLOS DAZA
+Cargo: Magistratura Salas Regionales del TE del PJF
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Análisis Político, CIDE, Democracia, Derecho Constitucional, Diplomado Internacional, Escuela Libre de Derecho, Experto en justicia electoral, Factores Culturales., ITAM, Justicia electoral, Licenciatura en Derecho, Maestría en Derecho, Riesgo Ideológico, TEPJF, UATX, UNAM
+Tags Propósito: acceso a la justicia, atención directa, democracia, derechos ciudadanos, derechos humanos., diálogo institucional, enfoque contextual, exclusión histórica, exhaustividad, inclusión, justicia cercana, justicia completa, justicia con perspectiva de derechos, justicia digital, justicia eficaz, justicia electoral, justicia pronta, justicia restaurativa, lenguaje claro, lenguas indígenas, optimización de tiempos, pluralidad, sensibilidad, sentencias accesibles
+
+
+## Descripción del Candidato 
+
+José Luis Ceballos Daza es candidato a Magistratura de Salas Regionales del TE del PJF. Cuenta con una trayectoria académica en Derecho, siendo Licenciado por la UNAM y Maestro en Derecho Constitucional por la UP (mención honorífica), con especialización en justicia electoral. Su motivación para buscar el cargo se centra en lograr una justicia electoral accesible, imparcial y efectiva que fortalezca la democracia.
+
+Su visión para la función jurisdiccional y la impartición de justicia se basa en garantizar los derechos de la ciudadanía, acercando la justicia a la sociedad y promoviendo un sistema democrático sólido. Sus propuestas incluyen una justicia con perspectiva de derechos que fomente la inclusión y el diálogo, así como una justicia más eficaz, pronta y cercana a la sociedad, con sentencias accesibles y en formatos diversos, incluyendo traducciones a lenguas indígenas.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/joseluis.ceballosdaza
+- https://x.com/jlceballosdaza?t=NH1H-_WzWNZlzm1_gmw9MA&s=08
+- https://www.instagram.com/jlceballosdaza?igsh=eHBqOWh4czdmdmdl
+- https://www.youtube.com/channel/UCs_8CnQPG8WvPptyxpkVjHA
+- https://www.tiktok.com/@jlceballosdaza?_t=ZM-8uUegwOHDEs&_r=1
+- https://www.linkedin.com/in/josC3A9-luis-ceballos-daza-03815999/?originalSubdomain=mx
+
+
+## Cursos
+
+- Justicia electoral en la Ciudad de México, organizado por Tribunal Electoral de la Ciudad de México,Análisis Político Estratégico organizado por CIDE,Factores de Riesgo Ideológico y Cultural en las Sociedades Democráticas, organizado por TEPJF
+- ,XIX Seminario Eduardo García Máynez, organizado por el ITAM, Escuela Libre de Derecho, TEPJF, UNAM y UATX
+- ,Diplomado Internacional sobre Derecho Constitucional y Democracia, organizado por el TEPJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15409/9
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UNAM) y Maestro en Derecho Constitucional (UP, mención honorífica)
+- Experto en justicia electoral
+
+
+## Motivo para buscar el Cargo Publico
+
+La justicia electoral debe ser accesible, imparcial y efectiva, garantizando derechos y fortaleciendo la democracia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional en materia electoral es, ante todo, una garantía efectiva para la ciudadanía, al servicio de la sociedad. Su propósito es proteger los derechos, asegurando que el acceso a la justicia no sea una aspiración teórica, sino una realidad tangible. La cual debe concebirse como un espacio de deliberación donde la voz de la ciudadanía, y en especial de quienes han sido históricamente excluidos, sea tomada en cuenta en la construcción de decisiones justas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia electoral debe contribuir a cerrar la brecha entre la sociedad y el gobierno. Un sistema democrático sólido exige que la ciudadanía perciba la justicia como un pilar que protege sus derechos y no como una instancia distante e inaccesible. Para lograrlo, la labor jurisdiccional debe garantizar que todas las personas y los actores políticos encuentren en ella un espacio imparcial, accesible y eficiente, donde sus derechos sean protegidos y sus voces escuchadas.
+
+
+## Propuestas
+
+- Justicia con perspectiva de derechos: pluralidad, sensibilidad y enfoque contextual. Fomentar la escucha activa y el acercamiento con comunidades y sectores históricamente excluidos. Sensibilizar a la función jurisdiccional ante los contextos específicos de cada Estado. Construcción de criterios jurisdiccionales que vayan más allá de la norma y respondan a la realidad social. Promover el diálogo institucional con organismos, colectivos y personas expertas en derechos humanos y democracia.
+- Justicia más eficaz, pronta, completa y cercana a la sociedad. Optimizar los tiempos de resolución, asegurando que los procedimientos sean ágiles sin comprometer la calidad ni la exhaustividad del análisis. Fortalecer los criterios de exhaustividad en las sentencias. Desarrollar mecanismos de atención directa, audiencias públicas accesibles y herramientas digitales que permitan un seguimiento claro de los casos. Impulsar mecanismos de justicia restaurativa en materia electoral.
+- Sentencias accesibles y amigables. Redacción clara y sencilla en sentencias y resoluciones. Uso de formatos accesibles y traducciones a lenguas indígenas. Difusión de debates jurisdiccionales en lenguaje claro, mediante resúmenes accesibles, infografías y materiales que expliquen los alcances de cada decisión. Fortalecimiento de la justicia digital, con herramientas que permitan a la ciudadanía consultar y entender la información jurisdiccional de manera sencilla e intuitiva.
+

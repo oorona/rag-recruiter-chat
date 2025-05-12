@@ -1,0 +1,74 @@
+Nombre Candidato: JUAN ALBERTO IBARZABAL MENDOZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5540731022
+Correo Electronico: soyibarzabal@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización., Actuaría, Capacitación, Cursos, Formación, Juicio de Amparo, SCJN, Secretariado, Violencia
+Tags Propósito: acceso a la justicia, bienestar social, contexto social, derechos humanos., dignidad humana, eficiencia judicial, equidad, especialización judicial, función jurisdiccional, justicia, justicia restaurativa, mediación, resolución de conflictos, servicio público, transparencia
+
+
+## Descripción del Candidato 
+
+Juan Alberto Ibarzabal Mendoza es candidato a Magistrado de Tribunales Colegiados de Circuito para la Ciudad de México, postulándose a través del Poder Legislativo Federal. Cuenta con licenciatura y cédula profesional, y ha realizado diversos cursos de formación en áreas como formación para secretarios, acreditación de actuarios, prevención de violencia y juicio de amparo.
+
+Su motivación para el cargo se basa en un compromiso con la justicia, la equidad y el bienestar social. Su visión de la función jurisdiccional enfatiza la aplicación de la ley considerando el contexto social y la búsqueda de soluciones más humanas y restaurativas. Sus propuestas incluyen la capacitación especializada de los integrantes del Poder Judicial, la implementación de especializaciones en gestión de casos y mediación, y el reforzamiento de los mecanismos de apoyo a la función jurisdiccional.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18Gr91Pbag/?mibextid=wwXIfr
+- https://x.com/soyibarzabal?s=21
+- https://www.instagram.com/soyibarzabal?igsh=enNod3JuZnhxb29u&utm_source=qr
+- https://www.tiktok.com/@soyibarzabal?_t=ZM-8v6D3YyECqV&_r=1
+
+
+## Cursos
+
+- Curso Básico de Formación para personas secretarias 2023,Curso de acreditación de actuarios 2022,Curso para generar espacios libres de violencia,Diplomado de formación sobre el juicio de amparo   SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53888/10
+
+
+## Trayectoria Academica
+
+- Siempre he buscado prepararme y actualizarme constantemente, por lo que me gusta tomar constantemente cursos formativos
+
+
+## Motivo para buscar el Cargo Publico
+
+Deseo ser Magistrado porque tengo un compromiso con la justicia, la equidad y el bienestar de la sociedad
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El servicio público debe entenderse como un sistema que no solo busca la aplicación de la ley de manera técnica y objetiva, sino que también tiene en cuenta el contexto social, económico, cultural y psicológico de las personas involucradas en un conflicto legal. Para ello deben buscarse soluciones más humanas y menos punitivas. Mi visión sobre este enfoque podría estructurarse en varios aspectos clave como lo son la justicia restaurativa y el acceso a la justicia de manera equitativa.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser un proceso transparente, accesible y equitativo para todos los individuos, sin importar su estatus social, económico o cultural. A su vez debe centrarse en la restauración de los derechos y la dignidad humana.
+
+
+## Propuestas
+
+- Capacitar y especializar a todos los integrantes del Poder Judicial de la Federación, ello se traducirá en decisiones más eficientes en la resolución de conflictos.
+- Implementar especializaciones en la gestión de casos y mediación.
+- Reforzar los mecanismos que ayudan en la función jurisdiccional.
+

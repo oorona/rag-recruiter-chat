@@ -1,0 +1,73 @@
+Nombre Candidato: CLAUDIA VALERIA DELGADO URBY
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8444384930
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Catedrática, Derecho, Doctorado, Igualdad de Género, Juez., Juicio de Amparo, Licenciatura, Maestría, Reforma Laboral, Seguridad Social, UNAM, Violencia
+Tags Propósito: acceso directo, comunicación ciudadana, empatía, escucha activa, fondo del expediente, humanismo, justicia accesible, juzgador cercano., procedimiento, resolución de casos, respeto, transparencia
+
+
+## Descripción del Candidato 
+
+Claudia Valeria Delgado Urby es candidata a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulada por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado concluidos y una trayectoria académica como licenciada, Maestra en Derecho y catedrática, además de experiencia como Juez. 
+
+Su motivación para buscar el cargo es acercar la justicia a la ciudadanía, más allá del ámbito legal. Su visión de la función jurisdiccional y la impartición de justicia se basa en la empatía, el humanismo y la accesibilidad, proponiendo la eliminación de intermediarios para el acceso a los juzgadores, la divulgación de su labor a través de contenido informativo y la resolución de expedientes enfocándose en el fondo del asunto antes que en formalidades procesales.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61569504551323
+- https://www.instagram.com/valeria.urby/
+- https://www.tiktok.com/@valeria.urby
+
+
+## Cursos
+
+- Especialidad sobre la Reforma en Materia de Justicia Laboral,Diplomado en Seguridad Social,Diplomado en el Nuevo Juicio de Amparo,Curso Género como herramienta para la igualdad,Curso para generar espacios libres de violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52743/10
+
+
+## Trayectoria Academica
+
+- Soy licenciada y Maestra en Derecho; solo pendiente examen de grado del Doctorado en la UNAM, catedrática y juez
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero que la justicia se sienta cercana y accesible para las y los ciudadanos y no solo para los abogados
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El ser juzgadora no debe ser solamente contar con muchos conocimientos jurídicos y saber aplicarlos sino además tener la empatía y el humanismo de analizar y resolver cada caso entendiendo la trascendencia que la resolución tiene en la vida de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia debe realizarse no solo desde los conocimientos de derecho, sino también desde una mente abierta a la realidad de cada persona, oídos atentos que escuchen directamente las necesidades de los justiciables y un acceso directo entre el juzgador y las personas de cada caso. El juzgador siempre debe tener las puertas abiertas para recibir a cualquier persona que quiera exponer su caso y al fallar cada expediente debe hacerlo desde la empatía y el respeto que cada historia merece
+
+
+## Propuestas
+
+- Que no exista impedimento alguno para que cualquier persona pase directamente con el juzgador, sin intermediarios y sin citas
+- Que la persona juzgadora continúe creando contenido para informar de manera sencilla a la ciudadanía de su labor
+- Que se evite lo más posible resolver asuntos por violaciones al procedimiento y se busque en la mayoría de los casos resolver el fondo del expediente
+

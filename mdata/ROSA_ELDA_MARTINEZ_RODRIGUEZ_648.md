@@ -1,0 +1,73 @@
+Nombre Candidato: ROSA ELDA MARTINEZ RODRIGUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5538985160
+Correo Electronico: contacto@rosaeldamr.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Administración de Proyectos, CNDH, Coaching, Derecho, Diplomado, Experiencia, Gobierno, Género, Hablar en Público, Justicia, Lenguaje Ciudadano, Liderazgo, Oratoria, Servicio Público., UNAM, Universidad Anáhuac
+Tags Propósito: acceso a la justicia, calidad, capacitación, cercanía al pueblo, consulta ciudadana, corrupción, dilación procesal, estado de derecho, igualdad, inteligencia emocional, justicia, paz social, perspectiva de género, poder judicial, prontitud, rezago, seguridad social, tiempos procesales., transparencia
+
+
+## Descripción del Candidato 
+
+ROSA ELDA MARTINEZ RODRIGUEZ es candidata al Poder Legislativo Federal, postulándose para Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México. Cuenta con una trayectoria de más de 22 años en el ámbito legal, incluyendo más de 16 años en el servicio público. Su motivación para buscar el cargo público es contribuir a la creación de un sistema judicial más cercano a la ciudadanía, que garantice la protección y el equilibrio a través de la justicia.
+
+Sus propuestas incluyen la capacitación en inteligencia emocional y perspectiva de género para jueces, el combate a la dilación procesal y la promoción de la cercanía entre jueces y ciudadanos a través de días de consulta, buscando así transparentar el sistema y facilitar la denuncia de irregularidades. Cuenta con una maestría concluida y diversos cursos en temas como impartición de justicia con perspectiva de género, liderazgo y técnicas de comunicación.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+https://rosaeldamr.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/people/Rosa-Elda-MartC3ADnez-RodrC3ADguez/pfbid0UohKaQdC4eb9A7yGHPhRgGbh9jX5WTLzo5Ak9Yroe5NJDDQ4bdi4FnSuoZqY9VaTl/?rdid=IyetFJEs2afj9bn0&share_url=https3A2F2Fwww.facebo
+- https://www.instagram.com/rosaeldamr/?igsh=bnN6N25ndjMxcWt2#
+
+
+## Cursos
+
+- Diplomado de Impartición de Justicia con perspectiva de género impartido por la CNDH,Coaching y liderazgo impartido por la UNAM,Técnicas para hablar en público impartido por la UNAM,Administración de Proyectos impartido por la UNAM,Curso de Lenguaje Ciudadano impartido por la Universidad Anáhuac
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54298/10
+
+
+## Trayectoria Academica
+
+- Soy una abogada, apasionada del derecho con experiencia de más de 22 años y más de 16 años en el gobierno
+- ¡Amo servir!
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero contribuir a la creación de un poder judicial, más cercano al pueblo, que proteja y equilibre desde la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es la potestad que le fue conferida al estado, para ello es dotado de un andamiaje que es el poder judicial, mismo que se encontrará dividido en los diferentes niveles y materias para que mediante, dicha estructura, se realice la impartición de justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Este es el objetivo principal de la función de justicia, la cual deberá de tener características primordiales, como lo es, ser pronta y expedita, con ello se puede lograr preservar el estado de derecho y la seguridad social, con lo que se genera un estado de paz social.
+
+
+## Propuestas
+
+- Al analizar la reciente reforma del sistema judicial, considero que no se ha logrado uno de sus fines principales, que es contar con una justicia igualitaria, para ello como persona juzgadora siendo parte activa del pueblo, impulsaré la capacitación en áreas como la inteligencia emocional y juzgar con perspectiva, para minimizar la distancia de los grupos minoritarios a una impartición de justicia.
+- Se debe ser más severo y tomar con más seriedad el tema de la dilación procesal, castigando aquellos que lleven acabo acciones tendientes a retrasar la impartición de justicia, es importante terminar con el rezago que existe, una impartición de justicia pronta y expedita es fundamental, pero es importante que la misma sea de calidad, razón por la que como Magistrada vigilaré que no retrase la celebración de audiencias sin un motivo real y ceñirse a la Ley en los tiempos procesales.
+- Promoveré la cercanía de las personas juzgadoras al pueblo en general al crear  día de consulta tu  y en el cual se puede consultar dudas relativas al manejo del mismo, siendo importante que la persona juzgadora responsable atienda estos días, dicha dinámica deberá darse en un espacio abierto, con la finalidad de transperentar evitando posibles actos de corrupción, facilitando que el ciudadano reporte cualquier anomalía y la haga del conocimiento del juzgador.
+

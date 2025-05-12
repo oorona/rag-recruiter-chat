@@ -1,0 +1,76 @@
+Nombre Candidato: JORGE PRINCE GARCIA
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6862255390
+Correo Electronico: lic.jorgeprince@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: CJF, Derecho, Escuela Judicial, Formación Jurisdiccional, ITESM, PJF, Promedio 9.3, Secretarios de Tribunal
+Tags Propósito: Accesibilidad, Acceso a la justicia, Atención al justiciable, Carga laboral., Claridad resoluciones, Derechos humanos, Eficiencia, Equidad, Experiencia, Gestión jurisdiccional, Humanización justicia, Imparcialidad, Independencia judicial, Justicia pronta, Legalidad, Legitimidad, Lenguaje sencillo, Modernización, Poder Judicial, Trámite interno
+
+
+## Descripción del Candidato 
+
+Jorge Prince García es candidato a Juez/a de Distrito en Baja California, postulando a través del Poder Judicial de la Federación. Licenciado en Derecho por el ITESM, cuenta con formación especializada en funciones jurisdiccionales por la Escuela Judicial del CJF, incluyendo cursos de formación para Secretarios de Tribunal y del PJF.
+
+Su motivación para aspirar al cargo es servir con imparcialidad y experiencia, defendiendo la independencia del Poder Judicial. Su visión se centra en una función jurisdiccional técnica, basada en la experiencia, formación, legalidad, imparcialidad y protección de los derechos humanos. Sus propuestas incluyen el uso de lenguaje claro en las resoluciones judiciales, la consolidación de mecanismos de atención accesible para personas sin representación legal y el impulso a la modernización de los trámites internos para mejorar la eficiencia y la prontitud de la justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574128635599
+- https://www.youtube.com/@jorgeprinceg
+
+
+## Cursos
+
+- Curso de formación para Secretarios de Tribunal de Circuito (Escuela Judicial del CJF, 2022)
+- Promedio 9
+- 3
+- ,Curso básico de formación y preparación de Secretarios del PJF (Escuela Judicial del CJF, 2017)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54687/11
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por el ITESM; formación especializada en funciones jurisdiccionales por la Escuela Judicial del CJF
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro al cargo para servir con imparcialidad y experiencia, defendiendo la independencia del Poder Judicial.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es una labor técnica que exige experiencia, formación y conocimiento acumulado a lo largo de una carrera judicial. Requiere además un compromiso firme con la legalidad, la imparcialidad y la protección de los derechos humanos. Mi visión es contribuir con resoluciones que garanticen el acceso a la justicia, el respeto a los derechos fundamentales y refuercen la legitimidad del Poder Judicial ante la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una función esencial del Estado que exige independencia, profesionalismo y apego irrestricto a la legalidad. Se ejerce con sensibilidad social, sin ceder a presiones externas ni intereses particulares. Su legitimidad se fortalece cuando las resoluciones son claras, oportunas y comprensibles, y cuando la ciudadanía encuentra en los juzgadores a personas preparadas, accesibles y comprometidas con el orden constitucional.
+
+
+## Propuestas
+
+- Reforzar el uso de lenguaje sencillo y claro en las resoluciones judiciales, procurando que las personas justiciables puedan comprender con mayor facilidad el sentido y los efectos de las decisiones. Esto ya se exige actualmente, mi compromiso es procurarlo siempre, pues mejora la comunicación con la ciudadanía, reduce barreras en el acceso a la justicia y fortalece la confianza en el quehacer jurisdiccional.
+- Consolidar mecanismos de atención accesible y respetuosa hacia las personas que acuden sin representación legal, brindando orientación básica sobre el estado de sus asuntos dentro de los márgenes legales y sin sustituir la labor de defensa. Esta práctica humaniza la función jurisdiccional y contribuye a que el Poder Judicial sea percibido como cercano, comprensivo y sensible a las desigualdades reales.
+- Impulsar la modernización y optimización de trámites internos y formas de trabajo que fortalezcan la organización, distribución equitativa de carga y fluidez de la fuerza laboral. Una dinámica interna más eficiente impacta directamente en la ciudadanía al permitir una justicia pronta y expedita. La mejora continua en la gestión jurisdiccional es clave para ofrecer un servicio digno, accesible y alineado con las exigencias sociales actuales.
+

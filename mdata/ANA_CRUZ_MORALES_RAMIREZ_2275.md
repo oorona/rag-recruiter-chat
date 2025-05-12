@@ -1,0 +1,75 @@
+Nombre Candidato: ANA CRUZ MORALES RAMIREZ
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Delitos Financieros, Derecho, Derecho Internacional, Derechos Humanos, Equidad de Género, Juicios Orales, Sistema Acusatorio., Suprema Corte de Justicia, Violencia
+Tags Propósito: Constitución, LGBTT+, conflicto de interés, corrupción, derechos humanos, discapacidad, eficiencia, equilibrio, estadística judicial, exhaustividad, imparcialidad, justicia, migración, nepotismo, perspectiva de género, rapidez, re-victimización, resolución judicial., seguridad jurídica, sistema judicial, tercera edad, vulnerabilidad, víctimas
+
+
+## Descripción del Candidato 
+
+Ana Cruz Morales Ramirez es candidata a Jueza/es de Distrito en la Ciudad de México, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Juicios Orales y Sistema Acusatorio, además de diplomados en Derecho Internacional de los Derechos Humanos y especialización en áreas de la Suprema Corte de Justicia de la Nación, entre otras capacitaciones en temas de derechos humanos y delitos financieros. 
+
+Su motivación para buscar el cargo se basa en un compromiso con la justicia y la sociedad, respaldado por su experiencia. Su visión para la función jurisdiccional y la impartición de justicia se centra en la aplicación de principios constitucionales y derechos humanos, así como en la eficiencia, exhaustividad y perspectiva de grupos vulnerables. Sus propuestas incluyen garantizar un juzgado libre de corrupción y nepotismo, impartir justicia imparcialmente protegiendo a las víctimas y evitando la re-victimización, y convertirse en un modelo de impartición de justicia equilibrando exhaustividad y eficiencia estadística.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574588461674
+- https://www.instagram.com/anacruzmx2025?igsh=bnNnemwwajJmdnhk&utm_source=qr
+- http://www.youtube.com/@AnaMoralesRamirez-y8l
+- https://www.tiktok.com/@ana.cruz.morales5?_t=ZM-8uwMxUVnKQp&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho Internacional de los Derechos Humanos,Curso de Especialización de Secretario de Estudio y Cuenta de la Suprema Corte de Justicia de la Nación
+- ,Curso sobre Delitos Financieros, Bancarios, Bursátiles y Mercantiles,Curso Equidad de Género,Curso para Generar Espacios Libres de Violencia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53852/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, Maestría en Juicios Orales y Sistema Acusatorio
+
+
+## Motivo para buscar el Cargo Publico
+
+Ser juez es más que un cargo es un compromiso con la justicia y la sociedad, mi experiencia me han dado las herramientas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Un Juzgado de Distrito en materia penal al recibir las solicitudes para la investigación de delitos que requieren control judicial, por seguridad jurídica debe verficar que cumplan los requisitos que señalen los ordenamientos aplicables al caso, y emitir las resoluciones correspondientes atendiendo la expeditez, exhaustividad, análisis y ponderación de derechos humanos necesarios, en pro de una justicia eficaz y real.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia tiene un sustento sólido en los principios establecidos en la Constitución de los Estados Unidos Mexicanos, el sistema universal de derechos humanos, el sistema interamericano de derechos humanos, así como en las leyes secundarias; la cual se debe aplicar con la eficiencia, exhaustividad, rapidez, eficacia, con la ponderación de derechos humanos y la perspectiva de grupos vulnerables.
+
+
+## Propuestas
+
+- Garantizar un juzgado sin corrupción, para lograrlo se erradicará el nepotismo del mismo, facilitando que las personas no se vean afectadas por temas de ineficacia derivada del influyentísimo, y no priorizar a quienes tengan el capital económico, sino a la ciudadanía con pocos recursos
+- Impartir justica sin mirar a quien se juzga, es decir, sin atender asuntos personales o con conflicto de interés, para ello se usarán protocolos donde se de protección a las víctimas, asegurando procesos sin revictimización, con perspectiva de género, discapacidad, migrantes, personas de la tercera edad, comunidad LGBTT+
+- Ser un ejemplo para la nación en la impartición de justicia, al ponderar todas las circunstancias de los hechos ilícitos, y sus implicaciones en la sociedad, y dar equilibrio entre la exhaustividad de las resoluciones y la estadística judicial
+

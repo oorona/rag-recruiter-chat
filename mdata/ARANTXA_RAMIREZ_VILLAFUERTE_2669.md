@@ -1,0 +1,74 @@
+Nombre Candidato: ARANTXA RAMIREZ VILLAFUERTE
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: 5536993681
+Correo Electronico: aramirzvi@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Título profesional
+Tags Educación: Acceso a la Información, Comercio Exterior, Derecho Civil, Derecho Mercantil, Justicia Administrativa, Licenciatura en Derecho, Poder Judicial, Protección de Datos Personales, Transparencia, UNAM.
+Tags Propósito: Capacitación, Dedicación, Derechos, Disciplina, Estado de derecho, Función jurisdiccional, Imparcialidad, Justicia, Justiciables, Protección de derechos, Resolución, Sensibilidad, Servir al país., Ética
+
+
+## Descripción del Candidato 
+
+Arantxa Ramirez Villafuerte es candidata a Jueza de Distrito por el Poder Ejecutivo Federal. Es licenciada en Derecho por la Universidad Nacional Autónoma de México y cuenta con estudios de posgrado en Justicia Administrativa, un Diplomado en Comercio Exterior, y diversos cursos de formación en el Poder Judicial de la Federación, transparencia y derecho civil/mercantil.
+
+Su motivación para buscar el cargo es servir al país a través de la impartición de justicia, enfocándose en la cercanía y confianza.  Su visión de la función jurisdiccional destaca la importancia de velar por los derechos de los justiciables y comprender las particularidades de cada caso, mientras que su propuesta se centra en escuchar las necesidades de los justiciables, proteger sus derechos y promover la capacitación constante de los juzgadores.  Puede ser contactada a través de sus perfiles en redes sociales y correo electrónico (aramirzvi@gmail.com).
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61572538992444&sk=map
+- https://www.instagram.com/aramirzvi?igsh=MXBsem9wb2N6NjJ4Ng3D3D&utm_source=qr
+- https://www.tiktok.com/@arantxa_ramirezvi?_t=ZM-8v4U6NZgs2o&_r=1
+
+
+## Cursos
+
+- Maestría en Justicia Administrativa,Especialidad Curso Básico de Formación y Preparación de Secretarios y Secretarias del Poder Judicial de la Federación
+- ,Diplomado en Comercio Exterior,Curso de inducción en materia civil y mercantil tercera edición,Curso de Transparencia y Acceso a la Información Pública y Protección de Datos Personales
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54421/11
+
+
+## Trayectoria Academica
+
+- Egresada de la Licenciatura en Derecho de la Facultad de Derecho de la Universidad Nacional Autónoma de México
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Jueza para servir a este país a través de la impartición de justicia de manera cercana y confiable.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional implica velar por los derechos de los justiciables, contribuyendo a la búsqueda de un estado de derecho a través de las resoluciones que se dicten pero a su vez conlleva conocer las particularidades de cada caso y sensibilizarse ante las situaciones que originan las controversias, así como acceder a escuchar las peticiones que surjan. La función jurisdiccional cambia la vida de las personas, por ello es necesario ejercer la labor con dedicación y disciplina.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Dos aspectos relevantes de la impartición de justicia son la imparcialidad y la ética, por ello, los juzgadores deben ser sensibles pero firmes en sus determinaciones, así como estar preparados para resolver los asuntos conforme a derecho. Por ello, expreso mi compromiso en esta labor y en caso de tener el honor de ser elegida para desempeñar tan digno cargo al que aspiro, refrendo mi dedicación y vocación para servir a mi país.
+
+
+## Propuestas
+
+- Escuchar las necesidades de los justiciables, de manera sensible y humana.
+- Velar por la efectiva protección de los derechos de los justiciables.
+- Capacitación constante de los juzgadores para el dictado de resoluciones.
+

@@ -1,0 +1,75 @@
+Nombre Candidato: MARIA MONTSERRAT RICARDEZ BALCAZAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TABASCO
+Sexo: MUJER
+Telefono: 9932315150
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Actuaria, Convencionalidad Tratados Internacionales, Derechos Humanos, Formador de Formadores, Función Jurisdiccional, Género, Jueza de Control, Jueza de Enjuiciamiento, Juicio de Amparo, Justicia Oral Penal, SCJN, Sistema de Justicia Penal Acusatorio, Universitat Pompeu Fabra
+Tags Propósito: Accesibilidad, Administración de justicia, Calidad humana, Cercanía ciudadana, Confianza pública, Daño, Eficiencia, Imparcialidad, Integridad, Justicia restaurativa, Norma, Redes sociales, Reforma judicial, Reparación., Resolución de conflictos, Sentido común, Tejido social, Transparencia, Tribunal Colegiado, Ética
+
+
+## Descripción del Candidato 
+
+MARIA MONTSERRAT RICARDEZ BALCAZAR es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para el estado de Tabasco. Cuenta con un doctorado concluido y 26 años de experiencia en la función jurisdiccional, habiendo desempeñado roles como actuaria, jueza de control y, actualmente, jueza de enjuiciamiento. 
+
+Su motivación para buscar el cargo radica en su capacidad y experiencia para servir a la sociedad. Sus propuestas se centran en mejorar la accesibilidad del sistema judicial, la aplicación de sentencias con sentido común y la promoción de una cultura judicial basada en la ética y la integridad. Destaca su interés en la justicia restaurativa y el uso de redes sociales para informar a la ciudadanía sobre temas jurídicos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19t4gLYkYu/
+- https://www.instagram.com/ricardez_balcazar_maria_montse?igsh=OTdsMTB2OTl5aDRs
+- https://www.tiktok.com/@ricardezbalcazarmontse?_t=ZM-8v4kNtgSlAz&_r=1
+- https://www.facebook.com/share/1BbUqJyYHF/
+
+
+## Cursos
+
+- Docente certificado por examen en temas de SSTEMA DE JUSTICIA PENAL ACUSATORIO, por el Comité de Implementación (SEGOB),Certificación por la Agencia Española en el curso FORMADOR DE FORMADORES EN JUSTICIA ORAL PENAL EN MÉXICO,Convencionalidad Derechos Humanos Tratados Internacionales y su aplicación en el Sistema Penal Universitat Pompeu Fabra,Formación Inicial en Materia de Género, impartido por el Instituto Estatal de las Mujeres
+- ,Diplomado NUEVO JUICIO DE AMPARO EN EL SISTEMA JURIDICO MEXICANO, impartido por la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54818/10
+
+
+## Trayectoria Academica
+
+- 26 años en la función jurisdiccional, inicié en 1999 como actuaria, fui jueza de control, y hoy jueza de enjuiciamiento
+
+
+## Motivo para buscar el Cargo Publico
+
+Cuento con la capacidad, experiencia y estudios necesarios para seguir sirviendo a la Sociedad en un Tribunal Colegiado
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La reforma judicial es el parteaguas no solo para que la ciudadania conozca de cerca a sus juzgadoras y juzgadores, sino también es el momento idóneo para que nosotros, como administradores de justicia tengamos esa calidad humana que tanto proclama la sociedad, siendo necesario además, que mostremos calidez, no solo en el contacto físico, con las personas que acuden a nosotros como partes procesales, sino en nuestras resoluciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Esta nueva e histórica forma de elegir a los administradores y administradoras de justicia, así como la modificación a la estructura del Poder Judicial, definitivamente cambiará la concepción que tiene la sociedad no solamente de los operadores jurídicos, sino de los procesos en si, pues al haber la cercanía, accesibilidad, y conocimiento en la búsqueda y elección de los mejores perfiles, esto también se reflejará en la eficiencia, efectividad, y transparencia de la resolución de los procesos.
+
+
+## Propuestas
+
+- Accesibilidad: Mayor cercanía y atención a la ciudadania, no solo en el recinto judicial, sino aprovechar la apertura en las redes sociales para informar sobre temas jurídicos y soluciones de conflicto para ayudar a despresurizar el sistema.
+- Emitir sentencias con sentido común, sin faltar a la imparcialidad ni al espíritu de la norma, resolviendo el conflicto legal y apoyar a la reconstrucción del tejido social, aplicando la justicia restaurativa, para no solo sancionar, sino reparar realmente el daño causado, que muchas veces no es solo económico.
+- Fomentar una cultura judicial basada en la ética, la integridad y el compromiso, para reforzar con ello, la confianza pública en el sistema.
+

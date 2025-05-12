@@ -1,0 +1,79 @@
+Nombre Candidato: JULISSA GONZALEZ ROJAS
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: 5564663484
+Correo Electronico: juezajulissa@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Abogada, Argumentación Jurídica, Capacitación Judicial, Derecho Civil, Derecho Mercantil, Derechos Humanos, EFFJ, Experiencia Profesional., FLACSO, Procedimientos Civiles, UNAM
+Tags Propósito: acceso, atención ciudadana, capacitación, confianza, derechos humanos, eficiencia, equidad., imparcialidad, integridad, justicia, lenguaje sencillo, ley, resolución de casos, respeto, transformación, transparencia, trato digno, vulnerabilidad, vulnerables, ética
+
+
+## Descripción del Candidato 
+
+Julissa Gonzalez Rojas es candidata a Jueza/es de Distrito en Ciudad de México, postulándose por En Funciones. Abogada especializada en Derecho Civil y Derechos Humanos, cuenta con maestría concluida y formación continua en áreas como Derechos Humanos, Derecho Mercantil y actualización en procedimientos civiles y familiares. 
+
+Su motivación para buscar el cargo público es contribuir a la transformación del sistema de justicia en México, haciéndolo más accesible y confiable. Su visión se centra en un servicio ciudadano eficiente y justo, con un trato digno y un lenguaje claro. Sus propuestas incluyen acercar la justicia a la ciudadanía a través de la atención personalizada, garantizar la imparcialidad en la aplicación de la ley y priorizar la atención a grupos vulnerables.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/julissa.gonzalez.792
+- https://x.com/julissaglez?s=21&t=u2wNrk2Qpl9lTHVhNh1NAQ
+- https://www.instagram.com/julissaglez?igsh=MTMyNnZpaWNkczhxZQ3D3D&utm_source=qr
+- https://www.tiktok.com/@julissa.gonzalez136?_t=ZM-8v68BU2VVl0&_r=1
+- https://www.linkedin.com/in/julissa-gonzalez-rojas/
+
+
+## Cursos
+
+- Especialidad en Derechos Humanos y Democracia, FLACSO México
+- ,Diplomado en Derecho Mercantil, FES Acatlán UNAM
+- ,Curso de Inducción Administrativa para Juezas y Jueces de reciente adscripción, EFFJ
+- ,Curso Habilidades para Exposición y Argumentación en audiencias y juicios orales, EFFJ
+- ,Curso de Actualización sobre el Código Nacional de Procedimientos Civiles y Familiares, EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53093/11
+
+
+## Trayectoria Academica
+
+- Abogada especializada en Derecho Civil y Derechos Humanos, con vocación de servicio y experiencia probada
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero formar parte de la transformación de la justicia en México, más cercana y confiable.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar a la ciudadanía que el personal de los juzgados se encuentra a su servicio, que son personas capacitadas para el análisis y resolución de casos, de manera eficiente y justa. Además, asegurar que recibirán siempre un trato amable y disposición para ser escuchados y atender cada uno de sus casos. Acercar la justicia con un trato digno y lenguaje sencillo, evitando formalismos, tecnicismos o palabras rebuscadas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Otorgar confianza a la ciudadanía de que sus casos serán analizados y resueltos por personas íntegras, capacitadas y éticas, que actuarán en todo momento conforme a la ley y garantizando el respeto de sus derechos humanos.
+
+
+## Propuestas
+
+- Acercar la justicia a todas las personas, a través de la atención personal a las partes, para escuchar sus circunstancias particulares y su visión del caso; garantizando un trato digno, amable, con un lenguaje sencillo, sin tecnicismos, ni palabras rebuscadas.
+- Aplicación de la ley sin ningún tipo de presión o interés externo; siempre actuando con absoluta integridad, transparencia e imparcialidad.
+- Atención prioritaria y rápida a casos que afecten derechos de personas vulnerables (niños, adultos mayores, mujeres en situación de violencia, víctimas de discriminación, personas con discapacidad, entre otros).
+

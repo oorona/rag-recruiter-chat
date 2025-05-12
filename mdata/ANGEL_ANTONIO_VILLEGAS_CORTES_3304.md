@@ -1,0 +1,71 @@
+Nombre Candidato: ANGEL ANTONIO VILLEGAS CORTES
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionado, sin datos
+Tags Propósito: No proporcionado, ausencia, falta de propuestas, indefinido., inexistente, nulo, silencio, sin programa, sin visión, vacío
+
+
+## Descripción del Candidato 
+
+Ángel Antonio Villegas Cortes es candidato a Juez/a de Distrito en Veracruz, postulándose para el Poder Judicial de la Federación. Es de sexo masculino y no proporcionó información de contacto ni detalles sobre su formación académica, trayectoria profesional, motivaciones para el cargo, o propuestas en materia jurisdiccional y de impartición de justicia.
+
+Su estatus en el sistema es actualmente "Sin captura", lo que indica que la información requerida para completar su perfil no ha sido registrada.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

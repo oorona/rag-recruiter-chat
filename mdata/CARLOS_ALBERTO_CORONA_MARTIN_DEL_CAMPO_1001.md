@@ -1,0 +1,72 @@
+Nombre Candidato: CARLOS ALBERTO CORONA MARTIN DEL CAMPO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3316033041
+Correo Electronico: carloscoronared@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Gestión Pública, Licenciatura, Maestría., Universidad de Guadalajara
+Tags Propósito: Acceso a la justicia, Aprendizaje continuo, Asesoría jurídica, Capacitación laboral, Cercanía, Chatbot, Compromiso social, Derechos, Derechos laborales, Desburocratización., Eficacia, Empoderamiento ciudadano, Imparcialidad, Rendición de cuentas, Simplificación legal, Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Corona Martin Del Campo es candidato al Poder Legislativo Federal, postulándose desde Jalisco, con experiencia como Magistrado de Tribunales Colegiados de Circuito. Cuenta con licenciatura en Derecho y maestría en Gestión Pública por la Universidad de Guadalajara. 
+
+Su motivación para buscar el cargo público es el servicio ciudadano, enfocándose en el empoderamiento a través del conocimiento de los derechos. Propone facilitar el acceso a la información jurídica mediante un chatbot, promover la transparencia en las sentencias dictadas y acercarse a la ciudadanía a través de pláticas y talleres sobre derechos laborales.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/carloscoronared
+- https://www.instagram.com/concarloscorona/
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53350/10
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho y maestría en Gestión Pública por la Universidad de Guadalajara
+
+
+## Motivo para buscar el Cargo Publico
+
+Servir a la gente. Sobre todo, empoderarla informándole sobre sus derechos y cómo puede hacerlos valer en su vida diaria
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser transparente y siempre tomar decisiones con la ley en mano. La imparcialidad es primordial y debemos comprometernos a un aprendizaje constante.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Pronta y eficaz, sin demoras burocráticas y, sobre todo, sin argumentos jurídicos complicados que sólo dificultan la comprensión de los derechos y garantías de la ciudadanía.
+
+
+## Propuestas
+
+- Asesoría jurídica en tu celular. Promoveré la creación de un chatbot que conteste tus dudas y te asesore sobre tus derechos, procesos e instancias judiciales en materia laboral.
+- Transparencia y rendición de cuentas. Te informaré y explicaré a detalle las sentencias que dicte, sus criterios y fundamentos legales.
+- Cercanía y compromiso social. Estaré de manera permanente en las colonias, centros de trabajo, sindicatos, escuelas, universidades, colegios de profesionistas, asociaciones civiles y empresariales dando pláticas, cursos y talleres de capacitación para que conozcan sus derechos laborales.
+

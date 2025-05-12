@@ -1,0 +1,75 @@
+Nombre Candidato: ERIK ALBERTO PEREZ GUTIERREZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 2281242458
+Correo Electronico: erik.alpg.07@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Anticorrupción, Derecho Anticorrupción, Derechos Humanos, Especialista., Evolución Constitucional, Igualdad de Género, Juicio de Amparo, Justicia Laboral, Licenciado en Derecho, Maestría, Oralidad, Perspectiva de Género
+Tags Propósito: Estado de derecho, accesibilidad, acceso a la justicia, credibilidad, derechos, dignidad, eficiencia, honestidad, igualdad, imparcialidad, justicia, justicia social, juzgado de puertas abiertas., paz, procesos judiciales, profesionalismo, servicio a la sociedad, transformación, transparencia, vulneración de derechos
+
+
+## Descripción del Candidato 
+
+Erik Alberto Perez Gutierrez es candidato a Jueces/es de Distrito en Veracruz, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Derechos Humanos y Juicio de Amparo, además de una especialización en Derecho Anticorrupción. Su trayectoria académica y profesional se centra en el ámbito legal, con cursos en temas como anticorrupción, justicia laboral, igualdad de género y perspectiva de género en la impartición de justicia.
+
+Su motivación para buscar el cargo se basa en su vocación de servicio a la sociedad y su deseo de contribuir a la transformación del país. Propone fortalecer la confianza en el sistema judicial, evitar dilaciones injustificadas en los procesos, y garantizar el acceso a la justicia para todos, independientemente de su condición socioeconómica. Considera que la función jurisdiccional y la impartición de justicia deben basarse en principios de justicia, imparcialidad, eficiencia, accesibilidad y respeto a la dignidad humana.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/?locale=es_LA
+- https://www.instagram.com/soyerikgutierrez/?igsh=MWlyYnQxdG02emlhaA3D3D#
+- https://www.tiktok.com/@soyerikgutierrez?_t=ZM-8ukJv5SePg7&_r=1
+- https://www.facebook.com/profile.php?id=61573048903043&locale=es_LA
+
+
+## Cursos
+
+- Especialidad en Anticorrupción,Retos y expectativas de la nueva justicia laboral,Igualdad de Género
+- Cien Años de Evolución Constitucional,Talleres de Oralidad,Curso la Perspectiva de Género en la Impartición de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54030/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Maestro en Derechos Humanos y Juicio de Amparo; Especialista en Derecho Anticorrupción
+
+
+## Motivo para buscar el Cargo Publico
+
+De manera preponderante por mi vocación de servicio a la sociedad y para contribuir en la transformación del país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es un pilar fundamental del Estado de derecho, su visión debe reflejar los principios de justicia, imparcialidad y servicio a la sociedad, aquella persona que detente tan responsable labor de juzgar, deberá brindar un servicio imparcial, eficiente y accesible para todas las personas, así como contribuir al desarrollo de nuestra sociedad de forma justa, pacífica y democrática, todo dentro del marco del profesionalismo y la honestidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe ser accesible y expedita para la ciudadanía, sus pilares se encuentran en garantizar la igualdad y la dignidad de todas las personas, resolviendo conflictos de forma pacífica y restaurativa, promoviendo en todo momento la justicia social y la paz de la comunidad. Los jueces tanto individualmente como de forma colectiva, deben respectar y honrar sus funciones como una alta encomienda pública, debiendo luchar para aumentar la credibilidad en el sistema judicial.
+
+
+## Propuestas
+
+- Promover la confianza de la ciudadanía en el sistema judicial, evitando el desechamiento innecesario de demandas, además de garantizar la transparencia en los procesos judiciales y permitir el acceso a la información de conformidad con las leyes aplicables.
+- Evitar el abuso de prevenciones innecesarias a las partes, que traiga como consecuencia el retraso en la impartición de justicia, así como la vulneración de sus derechos.
+- Acceso a la justicia para todos, garantizando a todas las personas una justicia sin importar su condición económica o social, ofreciendo un juzgado de puertas abiertas donde el juzgador sea accesible para las personas.
+

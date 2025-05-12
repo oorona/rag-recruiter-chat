@@ -1,0 +1,79 @@
+Nombre Candidato: SAMUEL SANCHEZ SANCHEZ
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 5623639876
+Correo Electronico: juezsamuelssz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Administración de Justicia, CorteIDH, Derecho Procesal Constitucional, Derechos Humanos, Discapacidad, Educación Continua., Formación Judicial, Género, Interculturalidad, Justicia, Sistema Interamericano, Tratados Internacionales
+Tags Propósito: cultura de la legalidad, difusión de fallos, eficacia, excelencia, función jurisdiccional, imparcialidad, independencia, juzgados de distrito., lenguaje claro, objetividad, paz social, principios constitucionales, profesionalismo, sentencias breves
+
+
+## Descripción del Candidato 
+
+Samuel Sanchez Sanchez es candidato a Jueces de Distrito en México, postulando en la vía de En Funciones. Cuenta con maestría en Derecho Procesal Constitucional y cédula profesional, complementada por cursos en temas como estándares de debido proceso, derechos humanos, tratados internacionales y justicia con perspectiva de discapacidad y género.
+
+Su motivación para el cargo se centra en la búsqueda de la paz social a través de la función de juzgar.  Su visión de la función jurisdiccional apunta a acercar la justicia a la ciudadanía mediante la difusión de la cultura de la legalidad y los fallos emitidos. Sus propuestas incluyen la redacción de sentencias más breves y con un lenguaje más accesible, así como la difusión de estos fallos para acercar la justicia a la sociedad.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/juezsamuelssz
+
+
+## Cursos
+
+- Curso Estándares de Prueba y Debido Proceso
+- Universidad de Girona,Fortalecimiento de las Capacidades para la Protección de los Derechos Humanos en el Sistema Interamericano
+- CorteIDH
+- ,Interpretación y Aplicación de Tratados Internacionales
+- Instituto de la Judicatura Federal
+- ,Impartición de Justicia con Perspectiva de Discapacidad
+- Escuela Federal de Formación Judicial
+- ,Fortalecimiento de la Impartición de Justicia con Perspectiva de Género e Interculturalidad
+- EFFJ
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55498/11
+
+
+## Trayectoria Academica
+
+- Abogado, Especialista en Administración de Justicia en Juzgados de Distrito, Maestro en Derecho Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+La paz social es fundamental en las relaciones entre personas. La función de juzgar busca lograr esa paz social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe acercarse más a la gente, a través de la difusión de la cultura de la legalidad y de los fallos que se emiten en beneficio de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición debe buscar la eficacia, cumpliendo con los principios constitucionales de excelencia, objetividad, imparcialidad, profesionalismo e independencia.
+
+
+## Propuestas
+
+- Hacer sentencias mas breves.
+- Modificar, en la medida de lo posible, el lenguaje que se utiliza en las sentencias.
+- Acercar la función jurisdiccional mediante la difusión de los fallos que se emiten en los juzgados de distrito.
+

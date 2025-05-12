@@ -1,0 +1,74 @@
+Nombre Candidato: SUSANA FUENTES GRANADOS
+Cargo: Juezas/es de Distrito
+Entidad: MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: susana.fg195@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Audiencia de Juicio, Cadena de custodia, Corrupción, Delitos especiales, Delitos informáticos, Derechos humanos, Licenciatura en Derecho, Litigación, Universidad Tecnológica de México.
+Tags Propósito: Acceso a la Justicia, Apertura, Carta Magna, Claridad., Derechos Humanos, Dignidad, Eficiencia, Equidad, Erradicación de Malas Prácticas, Igualdad, Imparcialidad, Justicia Expedita, Poder Judicial Federal, Protección de Derechos, Sentencias Justas, Suprema Corte de Justicia, Transparencia, Tratados Internacionales
+
+
+## Descripción del Candidato 
+
+Susana Fuentes Granados es candidata a Jueza/es de Distrito, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con licenciatura en Derecho y cédula profesional, complementada por cursos en temas como cadena de custodia, litigación de delitos especiales, investigación de delitos informáticos, competencias para audiencia de juicio y derechos humanos en el sistema de justicia penal. 
+
+Su motivación para buscar el cargo público es contribuir a la mejora y erradicación de malas prácticas en el Poder Judicial Federal. Propone una función jurisdiccional imparcial, garantizando la igualdad de acceso a una justicia eficiente, ágil y transparente. Asimismo, busca acercarse a quienes requieren acceso a la justicia, atender sus necesidades con dignidad y emitir sentencias justas y apegadas a derecho, con pleno respeto a los derechos humanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1X8ypo5E5f/
+- https://www.tiktok.com/@susana.sfg?_t=ZM-8v4TmDh0Bx0&_r=1
+
+
+## Cursos
+
+- Actuación de los intervinientes en la cadena de custodia
+- recomendación 15VG/2018,Taller de Técnicas de Litigación de Delitos Especiales Corrupción, Contra la Salud y Lavado de Dinero,Taller para la investigación y persecución de delitos informáticos,Taller de Especialización en Competencias para Audiencia de Juicio,Los derechos humanos como eje rector del sistema de justicia penal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53305/11
+
+
+## Trayectoria Academica
+
+- Estudié la Licenciatura en Derecho en la Universidad Tecnológica de México, generación
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir a la mejora y erradicación de las malas prácticas que se den dentro del Poder Judicial Federal
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actuar siempre de manera imparcial, garantizando la igualdad y equidad de derechos y oportunidades de acceso a la justicia, misma que debe ser eficiente, ágil y transparente, sin distinción alguna, promoviendo, respetando, garantizando y protegiendo todos los derechos humanos reconocidos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Lograr una garantía plena de los derechos humanos contemplados en nuestra Carta Magna y Tratados Internacionales de los que México sea parte, aplicando los criterios que la Suprema Corte de Justicia de la Nación emita, de una manera imparcial y cercana con el compromiso de impartir justicia a quien ha recurrido ante un juez respetando y promoviendo la dignidad, la igualdad y la equidad.
+
+
+## Propuestas
+
+- Erradicar las malas prácticas que impiden que la función de un juez no sea eficaz ni expedita, promoviendo la mejora constante que garantice un trato digno a todas y todos quienes busquen acceder a la justicia.
+- Cercanía a quienes buscan acceder a la justicia, atendiendo sus necesidades de manera digna, igualitaria y equitativa, con la apertura de aclarar y explicar las dudas que llegaren a surgir durante el proceso.
+- Actuar de manera imparcial durante todo el proceso, concluyendo con la emisión de sentencias justas, apegadas a derecho, brindando la protección de los Derechos Humanos, reconocidos en nuestra Carta Magna y Tratados Internacionales en los que el Estado Mexicano sea parte.
+

@@ -1,0 +1,73 @@
+Nombre Candidato: CRISTOBAL NUÑEZ GODINEZ
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3351189918
+Correo Electronico: lic.cng@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Información Pública, Administración de Justicia, Derecho Electoral, Derecho laboral, IITESO, Licenciatura en Derecho, Litigio Oral, Maestría en Procuración, Poder Judicial de la Federación, Protección de Datos Personales, Razonamiento Probatorio, Suprema Corte de Justicia, Tribunal Electoral, UVM., Universidad de Girona
+Tags Propósito: Estado de derecho, acceso a la justicia, capacitación, celeridad, claridad en resoluciones, comunicación, derechos humanos, eficiencia judicial, evolución del derecho, igualdad, imparcialidad, justicia, legalidad, legitimidad institucional., rendición de cuentas, responsabilidades públicas, seguridad jurídica, tecnología, transparencia, trato humano, valores constitucionales, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Cristóbal Núñez Godínez es candidato a Juez/a de Distrito en Jalisco, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría en Procuración, Administración de Justicia y Litigio Oral (UVM) y licenciatura en Derecho por el ITESO. Su formación complementaria incluye diversos diplomados y cursos especializados en derecho laboral, razonamiento probatorio, acceso a la información, y derecho electoral impartidos por instituciones como la Suprema Corte de Justicia de la Nación y el Poder Judicial de la Federación.
+
+Su motivación para buscar el cargo es contribuir a la preservación del estado de derecho, la protección de los derechos humanos y la seguridad jurídica. Propone impulsar la celeridad en la impartición de justicia mediante capacitación y el uso de tecnologías, emitir resoluciones claras y accesibles para la ciudadanía, y fomentar un trato cercano y humano con los usuarios del sistema judicial. Su visión busca garantizar el acceso a la justicia sin discriminación, priorizando la imparcialidad, la legalidad y la evolución del derecho.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/cristobaln2921?s=21
+- https://www.instagram.com/cristobalnunez22?igsh=MTF3OXlmMmVwOHJxbw3D3D&utm_source=qr
+- https://www.tiktok.com/@cng14984?_t=ZM-8v60dbUQZPx&_r=1
+
+
+## Cursos
+
+- Diplomado en Derecho laboral Suprema Corte de Justicia de la Nación,Curso de especialización Bases del Razonamiento Probatorio   Universidad de Girona,Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación   IJF,Curso de Acceso a la Información Pública y Protección de Datos Personales   IJF,Curso de Introducción al Derecho Electoral   Centro de Capacitación Judicial Electoral del Tribunal Electoral del PJF
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54561/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en derecho por el ITESO Maestría en Procuración, Administración de Justicia y Litigio Oral, por la UVM
+
+
+## Motivo para buscar el Cargo Publico
+
+Contribuir en la preservación del estado de derecho, protección de derechos humanos y seguridad jurídica de las personas
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Garantizar que los valores de justicia alcancen a todos los ciudadanos, sin discriminación alguna; partiendo de valores fundamentales como lo es la imparcialidad y la legalidad, sin dejar de lado los principios que deben orientar las responsabilidades públicas, de quienes ostentamos cargos cuya función es administrar justicia, de acuerdo con una adecuada interpretación de los valores constitucionales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es la tarea de propiciar la evolución del derecho y su aplicación, fomentando siempre la excelencia y el compromiso de que llegue a todos los extractos de la sociedad donde se ejerza jurisdicción. Esto nace desde mi vocación personal por defender los derechos de las personas más vulnerables y promover la igualdad ante la ley, como forma de contribuir activamente a la protección de los derechos humanos y garantizar un acceso igualitario a la justicia.
+
+
+## Propuestas
+
+- Celeridad en la impartición de justicia. Un sistema judicial eficiente y rápido, refuerza la confianza en las instituciones y promueve el cumplimiento de la ley; A través de la constante capacitación del personal que integre un órgano jurisdiccional, así como del uso de las tecnologías de la investigación y la optimización de los recursos tecnológicos a los que se tiene alcance, es posible reducir los tiempos para la integración de los asuntos y su pronta resolución.
+- Resoluciones claras y de acceso fácil a la ciudadanía. La claridad en las sentencias fortalece la confianza en el sistema judicial. Permite que la sociedad supervise y evalúe el trabajo de los jueces, promoviendo la rendición de cuentas y la transparencia. De allí que se proponga un cambio en el modelo actual de dichos documentos, por uno que sea lo suficientemente didáctico como para generar cercanía con la ciudadanía y no sólo con los profesionales del derecho.
+- Trato cercano y humano con el usuario. Un trato cercano y humano facilita que los usuarios comprendan los procedimientos legales y ejerzan sus derechos de manera efectiva, de allí que, sin comprometer la imparcialidad que debe imperar en la impartición de justicia, se propone eliminar barreras de comunicación, para aumentar la confianza en el sistema judicial y la legitimidad de las instituciones judiciales, a través de que el usuario perciba que su asunto está siendo comprendido.
+

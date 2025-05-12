@@ -1,0 +1,85 @@
+Nombre Candidato: EDITH COLIN ULLOA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Corte Interamericana, Suprema Corte, UNAM, derecho, derecho fiscal, formación judicial, género, igualdad, juicio de amparo, jurisprudencia, mención honorífica., precios de transferencia
+Tags Propósito: Acceso a la justicia, Atención ciudadana., Calidad humana, Ciudadanía, Comunicación clara, Comunicación judicial, Eficacia judicial, Escucha activa, Excelencia, Grupos vulnerables, Independencia judicial, Justicia, Objetividad, Profesionalismo, Redes sociales, Respeto, Sentencias breves, Servicio público, Trabajo en equipo, Transparencia, Tribunales Colegiados
+
+
+## Descripción del Candidato 
+
+EDITH COLIN ULLOA es candidata a Magistratura de Tribunales Colegiados de Circuito para el Poder Judicial de la Federación, representando a la Ciudad de México. Es Licenciada en Derecho con mención honorífica y Especialista en Derecho Fiscal, egresada de la Facultad de Derecho de la UNAM. Su trayectoria académica y profesional la motivan a buscar el cargo para abrir las puertas a la justicia, tras haber experimentado dificultades como litigante.
+
+Su visión de la función jurisdiccional enfatiza la independencia, el profesionalismo y la conciencia social, promoviendo la difusión del trabajo judicial a través de medios accesibles. Sus propuestas centrales incluyen impartir justicia con calidad humana, mantener las puertas abiertas a la ciudadanía y fomentar un trabajo eficaz y colaborativo entre los titulares de los tribunales.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/15ebxM5qMH/
+- https://x.com/EdithColinUlloa?t=fwDOm6qXHFsC3-DECLFlWg&s=09
+- https://www.instagram.com/edith.colin.ulloa?igsh=MXdibGR0cjkwY2cybA==
+- https://www.tiktok.com/@edith.colin.ulloa?_t=ZM-8uuiR62gIKL&_r=1
+- https://www.threads.net/@edith.colin.ulloa
+
+
+## Cursos
+
+- Curso género como herramienta para la igualdad, segunda edición
+- 2023
+- Escuela Federal de Formación Judicial
+- ,Curso para generar espacios libres de violencia
+- 2023
+- Escuela Federal de Formación Judicial
+- ,Diplomado Juicio de Amparo, edición 2021
+- Suprema Corte de Justicia de la Nación
+- ,Taller itinerante sobre la Jurisprudencia de la Corte Interamericana (en materia de género)
+- ,Conversatorio de Precios de Transferencia
+- Desarrollos recientes en la arena internacional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52960/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho con mención honorífica, Especialista en Derecho Fiscal, egresada de la Facultad de Derecho, UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Como litigante, algunos juzgadores me cerraron puertas. Como Magistrada, abriré puertas para servir y escuchar a tod@s.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con independencia, profesionalismo, objetividad, excelencia y plena conciencia de que tenemos en nuestras manos el destino de las personas que acuden a pedir justicia. No podemos ser ajenos a la realidad social; por ello, será importante difundir la función jurisdiccional a través de redes sociales, de sentencias breves y de fácil lectura, y de foros dirigidos a la ciudadanía, para explicar con lenguaje sencillo y casos actuales, qué implica tal función.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La prioridad de la impartición de justicia es la ciudadanía; que todas y todos tengan acceso a ella, sin olvidar la existencia de grupos vulnerables que, por su condición, requieren especial atención. La labor de impartir justicia conlleva horas de dedicación y estudio, requiere servidoras y servidores públicos de excelencia, que lejos de buscar asuntos sencillos para sacar números y trabajo fácil, estén interesados en ayudar y asumir retos. Las personas no son números.
+
+
+## Propuestas
+
+- Impartición de justicia con calidad humana. Es importante la trayectoria académica de las personas juzgadoras; sin embargo, de nada sirven los títulos, si la persona juzgadora se ostenta con actitudes de superioridad, infunde temor, brinda malos tratos o irrespetuosos, y no escucha las necesidades e inquietudes de su equipo de colaboradores, ni las de la ciudadanía que acude para ser atendida. La calidad humana debe ser el eje rector de las personas impartidoras de justicia.
+- Las puertas abiertas para todas y todos. Cuando fui litigante, conocí algunos titulares que jamás recibían gente; otros atendían únicamente con cita y, era necesario volver otro día. Estoy convencida que las puertas siempre deben estar abiertas para todas las personas, en el momento que decidan asistir. Prestamos un servicio público, no podemos ser indiferentes al esfuerzo y desembolso económico que hace la ciudadanía para acudir a solicitar información. La ciudadanía debe ser escuchada.
+- Impartir justicia eficazmente. En los Tribunales Colegiados es necesario fomentar el diálogo entre titulares para solventar dudas menores y evitar el aplazamiento innecesario de asuntos; eliminar la idea de que cada ponencia o grupo trabaja con su estilo; más bien, propiciar el trabajo conjunto. Se requiere el dictado de sentencias exhaustivas pero breves y concientizar a las partes sobre la formulación de promociones claras y precisas, para lograr que la resolución de asuntos se agilice.
+

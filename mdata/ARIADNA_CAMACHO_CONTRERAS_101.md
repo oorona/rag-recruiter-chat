@@ -1,0 +1,90 @@
+Nombre Candidato: ARIADNA CAMACHO CONTRERAS
+Cargo: Magistratura Tribunal de Disciplina Judicial
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 2463079704
+Correo Electronico: ariadnacamachocon@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Derecho Administrativo, Derecho Constitucional, Derecho Corporativo, Derecho Fiscal, INAI, ITAM, Juicio de Amparo, Justicia Alternativa, Licenciatura., Litigio, Maestría, Pemex, Planeación Legislativa, Política Anticorrupción, Protección de Datos Personales, Rendición de Cuentas, SCJN, Transparencia
+Tags Propósito: Capacitación, Corrupción, Derechos Humanos, Digitalización, Eficiencia, Estado de Derecho, Evaluación del desempeño, Género, Igualdad Sustantiva, Innovación, Integridad, Justicia, Justicia Alternativa, Legalidad, Litigio, Poder Judicial, Responsabilidad Administrativa., Transparencia, Violencia contra la mujer, Ética
+
+
+## Descripción del Candidato 
+
+ARIADNA CAMACHO CONTRERAS es candidata a Magistratura del Tribunal de Disciplina Judicial, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Litigio, especializándose en Justicia Alternativa, Derecho Constitucional, Administrativo y Fiscal.  Su trayectoria incluye diplomados en Juicio de Amparo, Derecho Corporativo, Planeación Legislativa, así como cursos en transparencia, anticorrupción y protección de datos personales.
+
+ARIADNA CAMACHO busca el cargo argumentando su capacidad y experiencia para eficientar la impartición de justicia. Sus propuestas centrales se enfocan en lograr una justicia pronta y expedita mediante la evaluación de tiempos de resolución y el uso de tecnologías, promover la igualdad sustantiva y justicia con perspectiva de género, y fortalecer la capacitación continua y el combate a la corrupción dentro del Poder Judicial. Su perfil y propuestas detalladas están disponibles en los enlaces proporcionados.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+http://ariadnacamacho.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/AriadnaCamachoC/
+- https://x.com/ariadnacamacho
+- https://www.instagram.com/ariadnacamachocontreras/
+- https://www.youtube.com/@AriadnaCamachoContreras
+- https://www.tiktok.com/@ariadnacamachocontreras
+- https://www.linkedin.com/in/ariadnacamacho?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo
+- Suprema Corte de Justicia de la Nación (SCJN)
+- 2021
+- ,Diplomado en Derecho Corporativo
+- Instituto Tecnológico Autónomo de México (ITAM)
+- 2018
+- ,Diplomado en Planeación y Operación Legislativa
+- Instituto Tecnológico Autónomo de México (ITAM)
+- 2014
+- ,Cursos de Transparencia, Rendición de Cuentas, Protección de Datos Personales, y Acceso a la Información
+- INAI
+- ,Curso Política Anticorrupción
+- Gobierno de México
+- Petróleos Mexicanos
+- 2023
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/15058/7
+
+
+## Trayectoria Academica
+
+- Licenciada y Maestra en Litigio, especialidad en Justicia Alternativa, Derecho Constitucional, Administrativo y Fiscal
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una mujer capaz, con experiencia y conocimiento para hacer más eficiente la impartición de justicia en nuestro país.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Licenciada y Maestra en Litigio, especialidad en Justicia Alternativa, Derecho Constitucional, Administrativo y Fiscal.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Garantizar la aplicación de la ley, de forma pronta y expedita en la resolución de conflictos, asegurando que cada persona reciba un trato justo, igualitario y humano, en un marco de legalidad, imparcialidad, y transparencia, en donde la innovación, la modernización tecnológica, y la digitalización de procesos permitan hacer más con menos, contribuyendo a mejorar la labor del Poder Judicial en México, privilegiando la dignidad humana, la igualdad sustantiva, y los derechos humanos.
+
+
+## Propuestas
+
+- Justicia pronta y expedita. Se evaluarán los tiempos de resolución que toman los tribunales para dictar una sentencia; se analizará el número de asuntos atendidos y pendientes, así como los rubros respecto de los cuales se tuvo mayor carga de trabajo; respetando la independencia judicial, siempre en el marco de un auténtico Estado de Derecho; y evaluando la percepción de la ciudadanía y la confianza que se tienen en el sistema judicial; lo anterior, con el apoyo de las tec. de la información.
+- Igualdad sustantiva y justicia con perspectiva de género. Se fomentará una cultura de prevención, atención, sanción y erradicación de todo tipo de violencia contra las mujeres al interior del Poder Judicial, enfatizando en acciones para atender los casos de acoso sexual; se promoverán acciones afirmativas para garantizar la paridad de género, y se capacitará de forma permanente a todas las personas servidoras públicas jurisdiccionales para que ejerzan su función con perspectiva de género.
+- Capacitación continua y combate a la corrupción. Se promoverán actividades de capacitación en materia de responsabilidad administrativa para sensibilizar y concientizar a las personas servidoras públicas de su actuar, promoviendo la ética e integridad en el desempeño de su labor. Asimismo, se establecerá un sistema de evaluación al desempeño que permitirá velar por el correcto actuar de los juzgadores, a través de una evaluación continua y de medidas disciplinarias proporcionales e idóneas.
+

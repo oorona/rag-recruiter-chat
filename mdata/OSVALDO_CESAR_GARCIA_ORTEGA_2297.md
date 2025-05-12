@@ -1,0 +1,82 @@
+Nombre Candidato: OSVALDO CESAR GARCIA ORTEGA
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5549571443
+Correo Electronico: osvaldotucandidato@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Actualización Jurídica, Actualización Legislativa, Amparo, Argumentación Jurídica, Calidad Comunicativa, Competencia Económica, Derecho Tributario, Derechos de Autor, Especialización en Derecho, Igualdad de Género, Ley de Amparo, Licenciatura en Derecho, Propiedad Intelectual, Protección Civil, Sentencias, Telecomunicaciones, UNAM.
+Tags Propósito: acceso a la justicia, autoridades., ciudadanía, comunicación, confianza, derechos fundamentales, derechos humanos, discreción, empatía, función jurisdiccional, imparcialidad, independencia, integridad, justicia, legalidad, participación ciudadana, respeto, sentencias, sistema judicial, transparencia
+
+
+## Descripción del Candidato 
+
+Osvaldo Cesar Garcia Ortega es candidato a Juez/a de Distrito en la Ciudad de México, postulando por En Funciones. Cuenta con estudios de Licenciatura y Especialidad en Derecho por la Universidad Nacional Autónoma de México (UNAM), complementados por diversos cursos en áreas como Amparo, Propiedad Intelectual, Derecho Tributario, Calidad en la Comunicación y Derechos Humanos. 
+
+Su motivación para el cargo es establecer una conexión directa con la ciudadanía para resolver problemáticas conforme a la ley. Propone mantener un acceso abierto al juzgado, ofrecer pláticas informativas, y fortalecer el sistema judicial federal con la participación ciudadana, buscando siempre dictar sentencias justas, transparentes y comprensibles para la población. Su visión se centra en legitimar el Poder Judicial a través de la participación activa de los ciudadanos y en el respeto a los derechos fundamentales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18iKkZmGhR/?mibextid=wwXIfr
+- https://www.instagram.com/juezosvaldo
+- https://www.tiktok.com/@juezosvaldo
+
+
+## Cursos
+
+- Cursos en Materia de Amparo, en Materia de Propiedad Intelectual y elaboración de sentencias de amparo
+- ,Seminario de la Nueva Ley de Amparo y en Derecho Tributario en Iberoamérica
+- Programa de Actualización Jurídica
+- ,Diplomados en Calidad y Estilo en la Comunicación así como Argumentación Jurídica
+- Coloquio sobre Derechos de Autor
+- ,Seminario en Telecomunicaciones
+- Curso en Competencia Económica
+- Actualización Legislativa
+- Curso en Protección Civil
+- ,Cursos para Generar Espacios Libres de Violencia así como de Genero como herramienta para la igualdad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53596/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho y Especialista en Derecho por la Universidad Nacional Autónoma de México (UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para escuchar a la ciudadanía y darle solución a la problemática conforme a la ley, estando cercano a la gente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Elaborar sentencias de amparo en materia administrativa atendiendo a los criterios de imparcialidad, independencia, integridad y compromiso con la gente y con la justicia, engrandeciendo a nuestro pueblo de México.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Legitimar al Poder Judicial de la Federación con la participación activa de los ciudadanos para favorecer la confianza en la impartición de justicia y el respeto a los derechos fundamentales de todas y todos. Siendo profesional, ético, imparcial, justo, cercano y transparente con la ciudadanía.
+
+
+## Propuestas
+
+- Mantener las puertas abiertas del juzgado para escuchar y recibir a las personas, dándole seguimiento a la problemática que se plantea así como dictar y explicar con lenguaje sencillo, entendible, humano y honesto de los alcances de la sentencia que se dicte. Si fuera el caso canalizar el problema a la autoridad o instancia competente buscando canales de comunicación con otras autoridades locales o federales para salvaguardar los derechos de las personas.
+- Ser empático con los problemas sociales de la gente y resolverlos a través de los medios legales defendiendo al ciudadano en los derechos que le corresponda. Para ello, dar platicas en determinados días y horas y la gente conozca y se acerque con el Juez y con el equipo de trabajo platicando de diversos temas e incluso recibiendo criticas para la mejora de la función jurisdiccional.
+- Fortalecer con apoyo de la ciudadanía el sistema judicial federal para que la toma de decisiones sean justas y basadas en el respeto a los derechos humanos dictando sentencias de manera pública ante las personas pero guardando la discreción de las partes que estén involucradas.
+

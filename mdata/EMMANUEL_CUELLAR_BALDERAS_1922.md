@@ -1,0 +1,71 @@
+Nombre Candidato: EMMANUEL CUELLAR BALDERAS
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: 6862217183
+Correo Electronico: j5emcuellar@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Civil, Derecho y Medio Ambiente, Derechos Humanos, Ejecución de Amparo., Escuela Judicial Federal, Igualdad de Género, Instituto de la Judicatura Federal, Juicio de Amparo, Razonamiento Probatorio, Suspensión de Amparo, Universidad de Girona, Universidad de Salamanca
+Tags Propósito: Accesibilidad, Capacitación, Claridad, Confianza, Derechos Humanos, Eficacia, Eficiencia, Empatía, Estado de Derecho, Género, Igualdad, Imparcialidad, Integridad, Justicia, Legalidad., Respeto, Sensibilidad, Sentencia, Transparencia, Trato Digno
+
+
+## Descripción del Candidato 
+
+Emmanuel Cuellar Balderas es candidato a Juez/a de Distrito en Baja California, postulando por el Poder en Funciones. Cuenta con Maestría concluida y una trayectoria académica enfocada en áreas del derecho como el civil, el amparo, los derechos humanos y el razonamiento probatorio, incluyendo estudios en España.
+
+Su motivación para buscar el cargo es la de impartir justicia y proteger los derechos humanos. Su visión de la función jurisdiccional se centra en una impartición de justicia pronta, eficiente, transparente y confiable. Sus propuestas incluyen mejorar la accesibilidad y rapidez de la justicia a través de capacitación del personal, asegurar la igualdad de género en los procesos judiciales mediante capacitación con perspectiva de género, y garantizar un trato respetuoso y comprensible para los justiciables, con sentencias claras y de fácil entendimiento.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/emmanuelcuellarb/
+
+
+## Cursos
+
+- Especialización en Derecho Civil, Universidad de Salamanca, España,Diplomado  con Perspectiva de  del Instituto de la Judicatura Federal,Curso de Especialización Judicial sobre Derecho y Medio Ambiente, en el Instituto de la Judicatura Federal,Curso de Especialización Base del Razonamiento Probatorio, organizado por la Universidad de Girona España,Curso para Generar Espacios Libres de  Género como Herramienta para la Igualdad, Escuela Judicial Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52669/11
+
+
+## Trayectoria Academica
+
+- Curso de Derechos Humanos, Diplomado en Juicio de Amparo, Curso Suspensión de Amparo, Cumplimiento y Ejecución de Amparo
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque es mi deseo impartir justicia y hacer valer real y materialmente los derechos humanos de la sociedad en general
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es impartir justicia de manera pronta, eficiente, eficaz, confiable y transparente para garantizar el estado de derecho y que conlleva proteger los derechos humanos de las personas, garantizar el cumplimiento de la Constitución y las Leyes, todo ello con independencia, imparcialidad, gratuidad e igualdad, ya que se trata de una facultad conferida por la ley al juzgador para resolver conforme a derecho, cumpliendo con la accesibilidad, modernidad, eficiencia y efectividad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia sea confiable, accesible, profesional y ética, a fin de garantizar el estado de derecho, cumpliendo con el acceso a la justicia, de manera imparcial, transparente, humana y que genere confianza, seguridad, credibilidad y tranquilidad a la sociedad.
+
+
+## Propuestas
+
+- Que la justicia sea mas accesible y rápida, capacitando al personal del órgano jurisdiccional a efecto de que realicen su trabajo con mayor diligencia, a efecto de que en su proceso no existan retraso con motivo de errores u omisiones en su integración. Asimismo, implementar cursos que promuevan la sensibilidad, empatía de los funcionarios públicos hacia el gobernado, y que así el expediente no sea tratado como un numero mas sino como un problema de relevancia que esta viviendo el justiciable.
+- Asegurar la igualdad de genero, implementando una mejora en la capacitación al personal de los órganos jurisdiccionales sobre el tema de la igualdad y perspectiva de genero, aumentar la sensibilidad en el trato y análisis de los derechos en juego, así como realizar una verdadera valoración de los asuntos para que se juzgue con perspectiva de genero y que todo ello sea de forma obligatoria y que no se deje a una simple interpretación.
+- Realizar acciones a fin de que el justiciable se sienta escuchado, atendido y con la confianza de su problema con el acude será analizado y resuelto apegado a derecho a través de una sentencia que se explique de manera clara y sea de fácil entendimiento la decisión adoptada por el juzgador, y para ello siempre sea atendido de forma personal por los integrantes del órganos jurisdiccional, siempre con un trato respetuoso, sensible y digno.
+

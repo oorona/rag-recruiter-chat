@@ -1,0 +1,79 @@
+Nombre Candidato: NANCY MIRIAM VELAZQUEZ LIMON
+Cargo: Juezas/es de Distrito
+Entidad: BAJA CALIFORNIA
+Sexo: MUJER
+Telefono: 6861199919
+Correo Electronico: nmvlimon1980@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Baja California, Coahuila., Derecho Penal, Escuela Judicial Federal, Instituto de la Judicatura Federal, Licenciatura en Derecho, MERITO ESCOLAR, Maestría en Ciencias Jurídicas, Mexicali, Posgrado, Proceso Penal Acusatorio, Torreón, UABC, Universidad Autónoma de Baja California
+Tags Propósito: análisis de casos, autonomía judicial, capacitación constante, claridad, competencia, derechos humanos, eficiencia, imparcialidad, justicia, ley internacional, ley nacional, mérito propio, profesionalización, resolución fundada., sector público, sentencias justas, sistema acusatorio, transparencia, vocación de servicio
+
+
+## Descripción del Candidato 
+
+Nancy Miriam Velázquez Limón es candidata a Jueza/es de Distrito en Baja California, postulada por el Poder Judicial de la Federación. Cuenta con Maestría en Ciencias Jurídicas con énfasis en Derecho Penal, así como especialización y licenciatura en Derecho, todas cursadas en instituciones públicas de Baja California y Coahuila. Su trayectoria profesional abarca casi 25 años en el sector público, incluyendo experiencia como Ministerio Público Federal, Defensora Pública Federal y colaboradora en un equipo de un Juez Federal del sistema acusatorio.
+
+Su motivación para buscar el cargo público se centra en defender la imparcialidad y autonomía judicial en busca de la justicia. Sus propuestas incluyen la capacitación constante para el desarrollo profesional, el fomento de una vocación de servicio público, y la emisión de sentencias justas, claras y comprensibles para cualquier persona.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/MAIRIM80
+- https://www.instagram.com/@nami_veli
+- https://www.tiktok.com/@namiveli
+- https://www.tiktok.com/@nancy.velazquez1980
+
+
+## Cursos
+
+- Especialidad en Derecho Penal con MERITO ESCOLAR, Universidad Autónoma de Baja California en Campus Mexicali, B
+- C
+- ,Constancia de acreditación Maestría en Ciencias Jurídicas, con énfasis en Derecho Penal, UABC campus Mexicali, B
+- C
+- ,Maestría en Proceso Penal Acusatorio, Instituto de la Judicatura Federal, en Torreón, Coahuila de Zaragoza
+- ,Licenciatura en Derecho, egresada de la Universidad Autónoma de Baja California en Campus Mexicali, Baja California
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55507/11
+
+
+## Trayectoria Academica
+
+- Estudios en Mexicali BC, han sido en escuelas públicas incluso dos posgrados, y maestría gratis Escuela Judicial Federal
+
+
+## Motivo para buscar el Cargo Publico
+
+Profesionalmente quiero defender la imparcialidad y la autonomía judicial, en busca siempre de la justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tengo al convicción que para garantizar la función jurisdiccional debe de impartirse justicia siempre bajo el marco de la ley nacional e internacional, apegados a derecho, respectando en todo momento los derechos humanos, bajo el análisis de cada caso en particular.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Desde mi perspectiva, al impartirse justicia, debe realizarse de manera imparcial, independiente, objetiva, profesional, eficiente, accesible, y con transparencia, siempre bajo el marco de la ley y el respeto a los derechos humanos, analizando cada caso en particular.
+
+
+## Propuestas
+
+- Capacitación constante. Es una realidad, que los conocimientos no te hacen experto, pero sumados a la practica y el esfuerzo constante, te hacen competente y especialista, para resolver cualquier situación planteada en tu campo de conocimiento; luego entonces, como docente de profesión y de corazón, voy retar mi mente a seguir aprendiendo, pero también a aquellos que formen parte de mi equipo, para contagiar a quienes nos rodean a ser mejores profesionales en el derecho.
+- Vocación de servicio. Durante los casi 25 años de profesionista, he tenido la oportunidad de desarrollarme en varios cargos del sector público, en circunstancias adversas, por ello es mi deseo fomentar esta vocación; estoy convencida que quien toma posesión de cualquier cargo público, debe estar preparado para servir a la ciudadanía, no a la inversa, y cuando formas parte de un cargo público, pierdes tiempo en familia y personal, para crecer y seguir dando el máximo en tu función.
+- Sentencias justas y claras. Tengo la fortuna por mérito propio, de haber fungido como ministerio público federal, defensora pública federal y parte del equipo de un juez federal del sistema acusatorio, cargo al cual me postule; ello me ha permitido visualizar las áreas de oportunidad de cada una de estás figuras, por ello, pretendo hacer que mis sentencias sean comprendidas por toda aquella persona que la lea, jurista o no debe de comprende el sentido de la resolución, fundada y motivada.
+

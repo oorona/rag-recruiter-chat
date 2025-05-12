@@ -1,0 +1,80 @@
+Nombre Candidato: HERMES GODINEZ SALAS
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: info@hermesgodinezsalas.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Fiscal, Derecho Tributario, Derechos Humanos, Facultad de Derecho UNAM, Instituto de la Judicatura Federal, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, Suprema Corte de Justicia de la Nación, Universidad Iberoamericana, Universidad Panamericana., Violencia Familiar
+Tags Propósito: accesibilidad, cambio social, cero corrupción, compromiso ciudadano, democracia., derechos humanos, empatía, equidad, igualdad, inclusión, independencia judicial, innovación, integridad, justicia efectiva, justicia social, perspectiva de género, responsabilidad, servidores públicos, transformación judicial, transparencia, ética
+
+
+## Descripción del Candidato 
+
+HERMES GODINEZ SALAS es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal para la Ciudad de México. Cuenta con Maestría en Derecho, especialización en Derecho Fiscal y una cédula profesional. Su trayectoria académica incluye estudios de Licenciatura y Maestría en la UNAM. Ha realizado diversos cursos y diplomados en áreas como Derechos Humanos, Derecho Tributario y el juicio de amparo, así como asesoría en temas de violencia familiar.
+
+Godínez Salas motiva su candidatura con el deseo de transformar el Poder Judicial, enfocándose en una justicia cercana, accesible e imparcial. Sus propuestas incluyen combatir la corrupción, fortalecer la independencia judicial, y juzgar con empatía, perspectiva de género y respeto a los derechos humanos. Aspira a que la judicatura sea un motor de cambio social y una herramienta para reducir las desigualdades.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://www.hermesgodinezsalas.com
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574229104342
+- https://www.x.com/@hermesgs
+- https://www.instagram.com/hermesgodinezsalas/
+- https://www.tiktok.com/@hermes.godinez.salas
+
+
+## Cursos
+
+- Diplomado Derechos Humanos
+- Escuela Judicial del Instituto de la Judicatura Federal y la Universidad Iberoamericana
+- ,Diplomado en Derecho Tributario
+- Consejo de la Judicatura Federal y la Universidad Panamericana
+- ,Disertante del diplomado en el juicio de amparo
+- Casa de la Cultura Jurídica, Suprema Corte de Justicia de la Nación
+- ,Asesor en temas contra violencia familiar en el Diplomado para titulación en la Facultad de Derecho de la UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53164/10
+
+
+## Trayectoria Academica
+
+- Licenciatura y Maestría en Derecho en la UNAM y Especialista en Derecho Fiscal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero aportar mi experiencia en la transformación del Poder Judicial, sirviendo al pueblo con honestidad y compromiso.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La judicatura debe ser un motor de cambio social, una herramienta para cerrar brechas, proteger a los más vulnerables y construir un país más justo e igualitario. La función jurisdiccional no es un ejercicio de poder, sino un compromiso ético con la justicia. Debemos trabajar con humildad, empatía y respeto, generando un ambiente inclusivo, seguro y libre de violencia. Fomentar el trabajo en equipo orientado a resultados con innovación buscando el crecimiento personal y profesional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Juzgar con empatía, responsabilidad y una profunda convicción que los derechos humanos están en el centro de toda decisión. Debemos proteger a todas las personas, especialmente a quienes han sido históricamente excluidas y aplicar la ley con empatía y equidad. Una justicia efectiva no solo resuelve conflictos, transforma realidades y construye un país más digno, igualitario y democrático. Debemos escuchar, comprender y decidir sin corrupción, sin privilegios y sin discriminación.
+
+
+## Propuestas
+
+- Transformar el Poder Judicial de la Federación impartiendo una justicia cercana y accesible al pueblo. Mi compromiso es con la ciudadanía y no con intereses creados. Nadie por encima de la ley.
+- Cero tolerancia a las conductas indebidas y a los privilegios en el Poder Judicial. Ser implacable en la lucha contra la corrupción. Implementando la vigilancia exhaustiva en los procesos y en el actuar de los servidores públicos a mi cargo.
+- Fortalecimiento de la independencia Judicial. Ejerceré mis funciones con plena autonomía, libre de cualquier presión o influencia externa. Con riguroso apego la ley, emitiré mis sentencias con sensibilidad, perspectiva de género, derechos humanos y justicia social.
+

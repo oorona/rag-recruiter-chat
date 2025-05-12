@@ -1,0 +1,75 @@
+Nombre Candidato: OCTAVIO BUSTAMANTE GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: bustamante.octavio@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Corte de USA, Derecho, Derecho Internacional Público, Formación, Honestidad, Juicios Adversariales Orales, Licenciatura, Procuraduría General de la República, Responsabilidad., Secretario del Poder Judicial de la Federación, Sistema Integral de Expedientes, Trayectoria, Universidad Autónoma de Baja California
+Tags Propósito: Abogados, Acceso a la justicia, Capacidad, Capacitación, Carga de trabajo, Eficiencia judicial, Estándares de calidad., Excelencia, Fiscalías, Honestidad, Imparcialidad, Integración de asuntos, Juicio de amparo, Justicia, Profesionalismo, Protección constitucional, Recursos judiciales, Órganos jurisdiccionales
+
+
+## Descripción del Candidato 
+
+Octavio Bustamante González es candidato a Magistratura de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal desde Baja California. Cuenta con licenciatura en Derecho y una cédula profesional, complementada por diversos diplomados y cursos en áreas como juicios orales, sistema integral de expedientes y derecho internacional público.
+
+El candidato expresa su motivación para el cargo como un deseo de servir a la nación aplicando sus conocimientos en beneficio de la población. Su visión de la función jurisdiccional se centra en la impartición de justicia pareja, imparcial y de calidad, con un énfasis en la capacidad y profesionalismo de quienes integran el aparato judicial. Sus propuestas incluyen la contratación de personal jurídicamente capacitado, el aumento del número de jueces y auxiliares, y la capacitación de abogados, fiscalías y órganos jurisdiccionales de primera instancia para mejorar la integración de los casos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18ahkgauQG/
+- https://www.instagram.com/octaviobustamanteg?igsh=MTNiN2ZzejFtbW1i
+- https://tiktok.com/@octaviobustamanteg
+- https://facebook.com/octavio.bustamante.5
+
+
+## Cursos
+
+- LICENCIATURA EN DERECHO POR PARTE DE LA UNIVERSIDAD AUTÓNOMA DE BAJA CALIFORNIA
+- ,DIPLOMADO SOBRE JUICIOS ADVERSARIALES ORALES IMPARTIDO POR LA PROCURADURÍA GENERAL DE LA REPÚBLICA Y LA CORTE DE USA,CURSO BASICO DE USO DEL SISTEMA INTEGRAL DE SEGUIMIENTO DE EXPEDIENTES,DIPLOMADO PARA LA FORMACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN,CONGRESO SOBRE DERECHO INTERNACIONAL PÚBLICO
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52638/10
+
+
+## Trayectoria Academica
+
+- He tenido una trayectoria destacada, honesta y responsable siempre aprendiendo más cada díaen el desempeño de mi función
+
+
+## Motivo para buscar el Cargo Publico
+
+QUIERO SERVIR A MI NACIÓN DE LA MOEJOR MANERA POSIBLE APLICANDO LOS CONOCIMIENTOS AL SERVICIO DE LA POBLACIÓN EN GENERAL
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+QUIERO IMPARTIR JUSTICIA PAREJA PARA TODOS, EN DONDE NO EXISTAN FAVORTISMOS, QUE SEA SIEMPRE DE CALIDAD, SÉ DE PRIMERA MANO LO QUE IMPLICA QUE LAS PERSONAS CON PALANCAS OCUPEN PUESTOS PARA LOS QUE NO ESTAN CAPACITADOS, TRADUCIENDO ELLO, ES UNA JUSTICIA DEFICIENTE, BAJO MI CARGO SOLO ESTARÁN AQUELLOS QUE SEAN LOS MAS CAPACES PARA QUE LA POBLACIÓN ESTÉ SEGURA DE QUE SIEMPRE TENDRA UNA SENTENCIA CON EXCELENCIA, PROFESIONALISMO E IMPARCIAL, QUIERO QUE MI PAÍS SEA UNO QUE NO TENGA MAS SED DE JUSTICIA
+
+
+## Vision sobre la Imparticion de Justicia
+
+LA IMPARTICIÓN DE JUSTICIA DEBE SER SIEMPRE BAJO LOS MAS ALTOS ESTRANDARES DE EXCELENCIA, PROFESIONALISMO, HONESTIDAD E IMPARCIALIDAD, UN JUEZ QUE NO TIENE ESAS CARACTERISTICAS, NO DEBE REALIZAR ESA FUNCIÓN, POR QUE ELLO, POR SÍ MISMO CREA UN CONFLICTO AL RESOLVER LOS ASUNTOS SOMETIDOS A SU JUICIO. LA IMPARTICIÓN DE JUSTICIA DEBE DE EJERCERCE NO SOLO APEGADA A DERECHO, SINO, BAJO UNA INTERPRETACIÓN HUMANA QUE PROTEJA SIEMPRE A QUIEN HA QUEDADO DESPROTEJIDO ANTE LAS INJUSTICIAS DE LAS AUTORIDADES
+
+
+## Propuestas
+
+- CONTRATAR PERSONAS QUE TENGAN LA CAPACIDAD JURÍDICA PARA IMPARTIR LA FUNCIÓN QUE IMPLICA EL APARATO JURISDICCIONAL, DESDE EL RANGO MÁS BAJO, HASTA EL MÁS ALTO, DE MANERA QUE CUALQUIERA QUE TOME UN EXPEDIENTE DE AMPARO PUEDA APORTAR A UNA RESOLUCIÓN CON LOS ESTANDARES DE EXCELENCIA QUE EXIGE LA FUNCIÓN JURISDICCIONAL.
+- AUMENTAR EL NÚMERO DE JUECES Y AUXILIARES, A FIN DE QUE PUEDAN ESTUDIARSE LOS ASUNTOS DE LAS PERSONAS CON MAYOR BREVEDAD, PUES LOR ORGANOS JURISDICCIONALES ESTÁN CARGADOS EXCESIVAMENTE DE TRABAJO, GENERANDO EN PROMEDIO 240 SENTENCIAS POR SEMANA; EN EL CASO DE LOS TRIBUNALES COLEGIADOS, QUE SON LA ULTIMA INSTANCIA JURISDICCIONAL EN LA GRAN MAYORIA DE LOS CASOS; SIN QUE SEA SUFICIENTE PARA LA CANTIDAD DE PERSONAS QUE PIDEN LA PROTECCIÓN CONSTITUCIONAL MEDIANTE EL JUICIO DE AMPARO.
+- CAPACITAR DEBIDAMENTE A LOS ABOGADOS, FISCALÍAS Y ORGANOS JURISDICCIONALES DE PRIMERA INSTANCIA, A FIN DE QUE REALICEN UNA CORRECTA INTEGRACIÓN DE SUS ASUNTOS, PARA QUE CUANDO LLEGAN A LA ETAPA TERMINAL QUE ES EL JUICIO DE AMPARO, NO LES SEA DESESTIMADO POR VICIOS EN LA INTEGRACIÓN DE LAS PRIMERAS INSTANCIAS, O BIEN DE LOS ALEGATOS QUE INDEBIDAMENTE REALIZAN.
+

@@ -1,0 +1,78 @@
+Nombre Candidato: JOSE FRANCISCO PEREZ MIER
+Cargo: Juezas/es de Distrito
+Entidad: SINALOA
+Sexo: HOMBRE
+Telefono: 6861570557
+Correo Electronico: pemijf13@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Acceso a la Justicia, CUCI., Cultura del Respeto, Derechos Humanos, Derechos de la Infancia, INDEPAC, Instituto de la Judicatura Federal, Jueces de Distrito, Justicia para Adolescentes, Licenciatura en Derecho, Maestría en Derechos Humanos, Maestría en Juicios Orales, Sistema Penal Acusatorio, Suprema Corte de Justicia, Trabajo Remoto, UCC, Órganos Jurisdiccionales
+Tags Propósito: Acceso a la Justicia, Actualización Judicial., Bien Común, Capacitación Judicial, Clases Desfavorecidas, Derechos Humanos, Humanismo, Imparcialidad, Juicio de Amparo, Justicia Pura, Justicia Social, Necesidades del Pueblo, Protección de Derechos, Prácticas Profesionales, Servicio Social, Simplificación Legal, Sinaloa
+
+
+## Descripción del Candidato 
+
+Jose Francisco Perez Mier es candidato a Jueces de Distrito en Sinaloa, postulándose bajo el principio de “En Funciones”. Licenciado en Derecho con Maestría en Derechos Humanos y en Juicios Orales, cuenta con diversos cursos de capacitación en temas como derechos humanos, sistema penal acusatorio y justicia para adolescentes, impartidos por instituciones como la Suprema Corte de Justicia de la Nación y el Instituto de la Judicatura Federal.
+
+Su motivación para el cargo es servir a la población de Sinaloa, priorizando la protección de los derechos humanos con honestidad y profesionalismo. Su visión de la función jurisdiccional se centra en atender las necesidades del pueblo sinaloense, enfocándose en la protección de derechos humanos como un factor para la producción de alimentos. Sus principales propuestas incluyen flexibilizar los requisitos para la admisión de demandas de amparo, garantizar la capacitación continua de los jueces y facilitar oportunidades de servicio social y prácticas profesionales en los juzgados y tribunales.
+
+
+## Poder que postula
+
+- En Funciones
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1BLE3QHa3f/?mibextid=wwXIfr
+- https://x.com/francisco_77989
+- https://www.instagram.com/perezmier25/
+- https://www.tiktok.com/@jos.francisco.pre42
+
+
+## Cursos
+
+- Capacitación para el trabajo remoto en Órganos Jurisdiccionales, en el Instituto de la Judicatura Federal
+- ,Programa de Actualización en Sistema Penal Acusatorio, dirigido a Jueces de Distrito adscritos a Juzgados de Distrito
+- ,Taller Sensibilización en Derechos Humanos: Hacia la Cultura del Respeto a las Personas
+- ,Diplomado en Justicia para Adolescentes, modalidad virtual para Juez, impartido por Instituto de la Judicatura Federal
+- ,Los Derechos de la Infancia y el Acceso a la Justicia, en la Suprema Corte de Justicia de la Nación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/61182/11
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO POR LA UCC, MAESTRÍA EN DERECHOS HUMANOS EN INDEPAC Y MAESTRIA EN JUICIOS ORALES EN CUCI
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir al pueblo de Sinaloa, protegiendo los Derechos Humanos de todas y todos, con honestidad y profesionalismo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Considero que la función jurisdiccional debe enfocarse en atender las necesidades del pueblo Sinaloense, en resolver los problemas a los que se enfrentan diariamente los hombres y las mujeres que trabajan nuestros campos y nuestros mares; lo que puede lograrse al garantizar la protección de sus Derechos Humanos, ello como un factor determinante para la producción de los alimentos que abastecen a la nación mexicana. Todo ello, bajo los principios de justicia social y humanismo mexicano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Estimo que la justicia debe ser impartida con humildad, esto es con sensibilidad social para lograr que nuestras determinaciones sean claras y accesibles al pueblo, todo ello en búsqueda del bien común de las clases más desfavorecidas, sin descuidar la imparcialidad en las contiendas que sean objeto de estudio, para estar en aptitud de hacer justicia pura y simple; en otras palabras, debe privilegiarse lo que es justo por encima de tecnicismos legales que solo privilegian a unas pocas personas.
+
+
+## Propuestas
+
+- Como propuesta para la mejora en la función jurisdiccional, considero indispensable el privilegiar la justicia sobre los múltiples tecnicismos legales existentes en el juicio de amparo; esto es, debemos ser menos rigurosos en la admisión de las demandas de amparo con objeto de que las partes aporten las pruebas necesarias para justificar si realmente existe un acto notoriamente ilegal, dado que la multiplicidad de escoyos legales evita que el pueblo tenga un verdadero acceso a la justicia.
+- Es indispensable que los nuevos jueces y juezas que sean electos este primero de junio, sean capacitados durante todo el periodo de su encargo, dado que el derecho es dinámico. Lo que genera la necesidad de que nuestros juzgadores se encuentren siempre actualizados y en constante capacitación.
+- Mi objetivo es lograr que todos los juzgados y tribunales abran sus puertas a los jóvenes universitarios, para que realicen su servicio social y sus prácticas profesionales, pues estimo que el aprendizaje obtenido son las bases indispensables para tener abogados y abogadas que defiendan al pueblo de México.
+

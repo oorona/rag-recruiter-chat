@@ -1,0 +1,89 @@
+Nombre Candidato: JESUS ROBERTO HOLGUIN FLORES
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jrhf_1993@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Curso, Derecho, Derecho Familiar, Diplomado, Especialidad., Formación Judicial, Género, Judicatura Federal, Justicia Mercantil, Licenciatura en Derecho, Poder Judicial de la Federación, Seguridad Social, Tijuana, Universidad Autónoma de Baja California
+Tags Propósito: acceso a la justicia, adultos mayores, atención al público, autonomía, celeridad, comunicación, eficiencia, formalismos procesales, grupos vulnerables, humildad, imparcialidad, independencia, justicia, menores, objetividad, personal operativo, perspectiva de género, profesionalización, realidad social, retroalimentación jurídica., sensibilidad, sentencias claras, tolerancia, técnicas, violencia
+
+
+## Descripción del Candidato 
+
+JESUS ROBERTO HOLGUIN FLORES es candidato a Magistratura de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Es Licenciado en Derecho, egresado de la Facultad de Derecho Tijuana de la Universidad Autónoma de Baja California, y cuenta con diversos diplomados y cursos en áreas como seguridad social, justicia mercantil, perspectiva de género y formación judicial.
+
+El candidato manifiesta su compromiso con la imparcialidad y autonomía en la impartición de justicia, enfatizando la necesidad de un desempeño judicial profesional, eficiente y sensible a la realidad social. Sus propuestas incluyen combatir el rezago en la resolución de asuntos, mejorar la comunicación con los justiciables a través de un servicio de atención al público y la redacción clara de resoluciones, y sensibilizar al personal judicial en temas de género y vulnerabilidad, especialmente en relación con menores y adultos mayores.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574097466677
+- https://www.x.com/holguinflores
+- https://www.instagram.com/jesushholguin
+- https://www.youtube.com/jesusroberto15
+- https://www.tiktok.com/jess.holgun5
+- https://www.facebook.com/holguinflores
+
+
+## Cursos
+
+- Diplomado del Programa de Preparación: Nociones Generales del Derecho 2018
+- Instituto de la Judicatura Federal
+- ,Diplomado en Materia de Seguridad Social
+- 120 horas
+- Instituto de la Judicatura  Judicial
+- ,Especialidad en Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+- ,Diplomado en Justicia Mercantil
+- 150 horas
+- Escuela Federal de Formación Judicial
+- Expedido el 13 de enero de 2023
+- ,Curso Juzgar con Perspectiva de Género en Materia Familiar
+- Segunda Edición
+- Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53895/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho
+- Egresado de la Facultad de Derecho Tijuana, de la Universidad Autónoma de Baja California
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona comprometida con el deber de impartir justicia de forma imparcial y autónoma.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe desempeñarse por personas que gozan de los valores de humildad, sensibilidad, tolerancia, templanza, independencia y objetividad, entre otros; además requiere de personal que ejerza una preparación constante en sus labores judiciales, a fin de profesionalizar y eficientar la función hacía los ciudadanos que acuden a solicitar acceso a la justicia, quienes no deben quedar desprotegidos por formalismos procesales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+El juzgador no debe dejarse influir en sus decisiones por aspectos internos o externos ajenos al derecho, más que por el deber de impartir justicia a quien la merece. Debe ser una persona conocedora del derecho, pero también de la realidad social de la comunidad en que vive, pues es la gente del día a día quien acude a solicitar justicia y espera que ésta se le brinde con la mayor atención que su asunto merece. De esa forma me he desempeñado y lo seguiré haciendo.
+
+
+## Propuestas
+
+- Con el fin de mejorar la función jurisdiccional combatiría el rezago en la resolución de asuntos; asimismo, daría celeridad a su tramitación mediante la implementación constante de técnicas al personal operativo de los órganos jurisdiccionales, quienes deberán comprometerse a realizar sus labores con el mayor esmero y profesionalismo que la importancia de la función requiere.
+- Con el fin de acercar a los justiciables al tribunal, establecería métodos de comunicación y designaría personal para que brinde el servicio de atención al público de forma directa sin desatender las funciones judiciales; de igual forma, redactaría las sentencias y resoluciones jurisdiccionales de una forma práctica y entendible para cualquier persona que no tenga necesariamente los conocimientos de la materia de derecho.
+- Con el fin de sensibilizar al personal judicial ante los asuntos que son del conocimiento del tribunal colegiado de circuito, constantemente realizaría reuniones de retroalimentación y de preparación jurídica con el personal del órgano jurisdiccional, especialmente en temas relacionados con la perspectiva de género y violencia hacía los grupos vulnerables, como los menores de edad y adultos mayores.
+

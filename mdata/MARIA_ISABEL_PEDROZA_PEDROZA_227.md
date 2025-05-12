@@ -1,0 +1,78 @@
+Nombre Candidato: MARIA ISABEL PEDROZA PEDROZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: MUJER
+Telefono: 4498865903
+Correo Electronico: isabel.pedroza.pedroza@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho Constitucional, Derechos Digitales, Derechos Humanos, Discapacidad, EGEL., Escuela Federal de Formación Judicial, Graduada con Honores, Igualdad de Género, Juicio de Amparo, Licenciatura en Derecho, Materia Civil, Materia Mercantil, Suprema Corte de Justicia, UAA, UNAM
+Tags Propósito: acceso a la justicia, capacitación, claridad, desarrollo humano, eficiencia, empatía, equidad, humanidad, imparcialidad, inclusión, justicia, justicia expedita., justicia pronta, lenguaje claro, modernización, objetividad, personal judicial, plazos, precedentes, respeto, tecnología, transparencia, trato digno
+
+
+## Descripción del Candidato 
+
+MARIA ISABEL PEDROZA PEDROZA es candidata a Magistraduras de Tribunales Colegiados de Circuito en Aguascalientes, postulándose por el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y una trayectoria académica destacada, incluyendo reconocimiento en la Universidad Autónoma de Aguascalientes y estudios en la UNAM. 
+
+Su motivación para buscar el cargo es ofrecer un servicio accesible y humano en la impartición de justicia. Propone un modelo de justicia accesible, la capacitación continua del personal judicial en habilidades comunicativas y el uso eficiente de herramientas tecnológicas para agilizar los procesos, buscando una justicia pronta, expedita, clara y transparente que responda a las necesidades de la sociedad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574223141284
+- https://www.instagram.com/mariaisabelpedrozapedroza/
+- https://www.tiktok.com/@isabelpedrozapedroza
+
+
+## Cursos
+
+- Diplomado en Juicio de Amparo por la Suprema Corte de Justicia de la Nación a través de la Casa de la Cultura Jurídica
+- ,Curso Inducción en Materia Civil y Mercantil impartido por la Escuela Federal de Formación Judicial
+- ,Curso la Defensa de los Derechos Digitales impartido por la Escuela Federal de Formación Judicial
+- ,Curso Género como Herramienta para la Igualdad impartido por la Escuela Federal de Formación Judicial
+- ,Taller Los Derechos de las Personas con Discapacidad impartido por la Suprema Corte de Justicia
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54573/10
+
+
+## Trayectoria Academica
+
+- Soy Licenciada en Derecho por la UAA, graduada con honores, premio EGEL y Maestra en Derecho Constitucional por la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir y escuchar a quien se sienta ajeno y distante a la impartición de justicia, dar soluciones justas y humanas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Visualizo un futuro en el que mi función se adapte a la realidad de las personas, que se sientan escuchadas y avanzar a su mismo ritmo mediante la modernización de los procesos, haciendo uso de la tecnología, para lograr una justicia rápida y sin obstáculos. Deseo que se garantice un trato digno y respetuoso a todas las personas a través de jueces más humanos y empáticos que sepan atender las necesidades de quienes acuden en búsqueda de una solución jurídica justa e imparcial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Si la función jurisdiccional es el medio, la impartición de justicia es el fin. Aspiro a que todas las personas tengan acceso a una justicia equitativa e incluyente, que cualquier persona que acuda a mi tribunal sea escuchada y tratada dignamente, que las sentencias sean elaboradas para que puedan entender lo que ahí se resuelve, pues no basta el conocimiento, se debe conocer de primera mano las necesidades de la sociedad. Mi objetivo es que la justicia sea accesible, ágil, clara y transparente.
+
+
+## Propuestas
+
+- Propongo la creación de un modelo de justicia accesible y cercana cuyo fin sea eliminar las barreras que impidan a las personas acceder plenamente a sus derechos, simplificando los procesos judiciales con el uso de un lenguaje claro, sencillo y transparente; dicho lenguaje debe ser además una regla de trato a las personas que acudan con una duda genuina sobre su asunto, sin descuidar claramente la imparcialidad y objetividad al momento de juzgar, pero privilegiando el trato digno y respetuoso.
+- Promoveré la capacitación continua del personal que integra el sistema judicial, no solo de quienes aspiren a crecer laboralmente, sino de todo el personal, para lograr un equipo que juzgue de manera eficaz, justa y equitativa. Implementaré actualizaciones jurídicas y de nuevas tecnologías, sobre todo fortaleceré las habilidades de comunicación y empatía, pues al integrar el desarrollo humano con el profesional, se contribuye a formar un personal judicial más competente, comprometido y humano.
+- Para una justicia pronta y expedita, gestionaré cada caso con eficiencia, estableciéndome a mí misma y a mi personal plazos claros y asegurando su cumplimiento, impulsaré la implementación de herramientas tecnológicas para reducir el tiempo que se usa en tareas repetitivas, lo que contribuirá al ahorro de recursos. Crearé un sistema de precedentes, es decir, casos ya resueltos, que sea accesible para todo el personal, sin monopolizar el conocimiento, para dar el tiempo debido a casos complejos.
+

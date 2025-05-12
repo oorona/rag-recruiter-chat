@@ -1,0 +1,77 @@
+Nombre Candidato: KARLA IRASEMA CARRASCO MENDOZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIHUAHUA
+Sexo: MUJER
+Telefono: 6141209335
+Correo Electronico: karlairasemacarrasco@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Adolescentes, Amparo, Constitucionalidad, Control de Convencionalidad, Derecho Colectivo, Derecho a la Educación, Derecho al Ambiente, Derecho de Familia, Derechos Humanos, Derechos Personas Discapacidad, Diversidad Sexual, Igualdad, Justicia Laboral, Libertad de Expresión, Licenciatura en Derecho, Maestría en Derecho Laboral., Niñez, No Discriminación, Personas Migrantes, Perspectiva de Género, Precedente Judicial, Procedimiento Laboral, Seguridad Social
+Tags Propósito: Estado de Derecho, acceso a la justicia, confianza pública, derechos humanos, empatía, formación continua., función jurisdiccional, honestidad, igualdad sustantiva, imparcialidad, inclusión, justicia humana, justicia social, paz social, perspectiva de género, rendición de cuentas, sentencias con enfoque, transparencia, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+KARLA IRASEMA CARRASCO MENDOZA es candidata a Magistratura de Tribunales Colegiados de Circuito en Chihuahua, postulándose para ejercer funciones en el Poder Ejecutivo Federal, el Poder Judicial de la Federación y en Funciones. Cuenta con Maestrías en Amparo y Derecho Laboral, además de una Especialización en Justicia Laboral y diversos cursos en Derechos Humanos. 
+
+Su motivación para el cargo público es servir a la justicia con preparación, empatía y honestidad, buscando una justicia más humana y cercana. Propone impulsar una función jurisdiccional con enfoque en derechos humanos, perspectiva de género e inclusión, fortaleciendo la confianza pública mediante la ética, la transparencia y la formación continua en la materia.  Su visión se centra en una impartición de justicia accesible que garantice el acceso pleno a los derechos, especialmente para grupos en situación de vulnerabilidad.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/KarlaIrasemaCarrasco
+- https://www.instagram.com/karlairasemacarrasco?igsh=YjUyajFjdzNrbmFr&utm_source=qr
+- https://www.tiktok.com/@karlairasemacarrasco?_t=ZM-8uzhnNOMX4B&_r=1
+
+
+## Cursos
+
+- Diplomado en Seguridad Social, Derechos Humanos, Control de Convencionalidad y Constitucionalidad y Perspectiva Genero
+- ,Principio de igualdad y no discriminación, libertad de expresión, derecho de familia énfasis niñez y adolescentes,Cursos derechos personas discapacidad, libertad de expresión, diversidad sexual, personas migrantes, derecho educación,Diplomado Especializado Nuevo Procedimiento de Trabajo, Seminario Derecho Colectivo y Curso derecho a ambiente sano,Cursos Precedente Judicial, Género como Herramienta para la Igualdad, Conversatorio Intern Test de Proporcionalidad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52479/10
+
+
+## Trayectoria Academica
+
+- Lic en Derecho, Maestra en Amparo y en Derecho Laboral
+- Especialista en Justicia Laboral, Cursos en Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir con preparación, empatía y honestidad a una justicia más humana, cercana y digna para todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ejercerse con imparcialidad, honestidad y profundo sentido humano. Implica no solo aplicar la ley, sino también comprender el contexto de cada persona que acude al sistema de justicia. Mi visión es una justicia accesible, cercana, con enfoque en derechos humanos, perspectiva de género e inclusión, que fortalezca la confianza pública y responda con sensibilidad y preparación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Concibo la impartición de justicia como un servicio público que debe ejercerse con imparcialidad, ética y sensibilidad. Debe garantizar el acceso pleno a los derechos, con perspectiva de género, enfoque en derechos humanos y atención a grupos en situación de vulnerabilidad. Una justicia cercana, confiable y eficaz fortalece el Estado de Derecho y la paz social.
+
+
+## Propuestas
+
+- Impulsar una justicia más humana que escuche, comprenda y acompañe, especialmente a quienes enfrentan condiciones de vulnerabilidad. La empatía debe integrarse como eje esencial en la función jurisdiccional, permitiendo que el juzgador no solo aplique la ley, sino que también reconozca las realidades sociales que viven las personas que acuden al sistema judicial.
+- Fortalecer la emisión de sentencias con enfoque en derechos humanos, perspectiva de género, inclusión y justicia social. Esto permitirá avanzar hacia una igualdad sustantiva en la práctica judicial, asegurando que todas las personas sean tratadas con respeto, dignidad y sin discriminación, y que los fallos reflejen una visión amplia, constitucional y sensible a las problemáticas actuales.
+- Reforzar la confianza pública en la judicatura mediante el ejercicio ético, imparcial y honesto de la función jurisdiccional, acompañado de una formación continua en derechos humanos, precedentes constitucionales y buenas prácticas. La transparencia y la rendición de cuentas deben ser pilares que garanticen un sistema judicial sólido, confiable y accesible para toda la ciudadanía.
+

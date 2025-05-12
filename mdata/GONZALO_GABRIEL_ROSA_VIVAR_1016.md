@@ -1,0 +1,76 @@
+Nombre Candidato: GONZALO GABRIEL ROSA VIVAR
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3311543600
+Correo Electronico: gonzalogrosavivar@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Abogado, Arbitraje Comercial Internacional, Derecho Laboral, Derecho Procesal Constitucional, Derecho del Trabajo, Especialidad, Formación constante, Juicio de Amparo, Justicia Laboral, Maestría, UdeG
+Tags Propósito: Accesibilidad, Apertura, Confianza, Conocimiento del Derecho Laboral., Derechos Humanos, Experiencia, Honestidad, Humanidad, Imparcialidad, Independencia, Integridad, Justicia, Justicia Laboral, Poder Judicial, Profesionalismo, Rendición de Cuentas, Resolución de Conflictos, Responsabilidad, Sensibilidad, Transparencia, Verdad, Ética
+
+
+## Descripción del Candidato 
+
+GONZALO GABRIEL ROSA VIVAR es candidato a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose desde el Poder Ejecutivo Federal. Cuenta con maestría y cédula profesional, complementada con especializaciones y diplomados en áreas como Derecho del Trabajo, Juicio de Amparo y Arbitraje Comercial Internacional.
+
+Según su declaración, busca el cargo por su trayectoria y preparación, enfocándose en la experiencia probada. Su visión de la función jurisdiccional y la impartición de justicia se centra en el profesionalismo, la imparcialidad, el respeto a la ley y los derechos humanos, así como en la necesidad de una justicia cercana, humana y accesible. Sus propuestas principales incluyen fortalecer la justicia laboral con experiencia e imparcialidad, reconstruir la confianza en el Poder Judicial a través de la transparencia y promover una justicia que escuche y acompañe a las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/gonzalo.r.vivar
+- https://x.com/gonzarosa60
+- https://www.instagram.com/gonzalogabrielrosa
+- https://www.tiktok.com/@gonzalo.rosa.viva
+
+
+## Cursos
+
+- Especialidad en Derecho del Trabajo y Justicia Laboral,Diplomado en Juicio de Amparo,Diplomado en Arbitraje Comercial Internacional
+- ,Diplomado en Derecho Laboral
+- ,Diplomado en Derecho Procesal Constitucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55059/10
+
+
+## Trayectoria Academica
+
+- Soy abogado por la UdeG, con especialidad en Derecho Laboral, maestría y formación constante que refuerza mi perfil
+
+
+## Motivo para buscar el Cargo Publico
+
+El nuevo Poder Judicial necesita experiencia probada y yo me he preparado toda la vida para asumir ese cargo.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La resolución de conflictos entre personas trabajadoras y empleadoras debe ejercerse con profesionalismo, imparcialidad y respeto a la ley, garantizando que cada decisión se tome con integridad, independencia y compromiso con los derechos humanos. Quien juzga debe ser capaz, honesto y tener la trayectoria que respalde su criterio. La justicia no es un privilegio, es un derecho que debe protegerse con responsabilidad y vocación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe impartirse con humanidad y conocimiento. Detrás de cada conflicto hay una historia de vida que merece ser atendida con sensibilidad, pero también con preparación y experiencia. Impartir justicia es proteger, no favorecer. Creo en una justicia cercana, ética, imparcial y guiada por la verdad, capaz de generar confianza y de transformar la vida de quienes más la necesitan.
+
+
+## Propuestas
+
+- 1. Justicia cercana: escuchar, explicar y acompañar, con sentido social y humano. Promover una justicia más humana y accesible, donde cada persona sea escuchada, comprendida y sus derechos claramente explicados y protegidos. Reconocer que detrás de cada conflicto laboral hay una historia personal y familiar, y que la justicia debe responder con sensibilidad y responsabilidad.
+- Fortalecer la justicia laboral con imparcialidad y experiencia Garantizar resoluciones justas, imparciales y apegadas a la ley, basadas en años de experiencia, vocación y profundo conocimiento del derecho laboral.
+- Reconstruir la confianza en el Poder Judicial Fomentando la apertura, la transparencia y la rendición de cuentas para que la ciudadanía confíe en quienes imparten justicia.
+

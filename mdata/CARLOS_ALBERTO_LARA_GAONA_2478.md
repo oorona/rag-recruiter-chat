@@ -1,0 +1,73 @@
+Nombre Candidato: CARLOS ALBERTO LARA GAONA
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 5572139998
+Correo Electronico: calaragao76@gmail.comhtt
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Centro Internacional de Estudios Superiores de Morelos., Derecho Fiscal, Derecho Laboral, Derechos Humanos, Instituto de la Judicatura Federal, Justicia Laboral, Licenciatura en Derecho, Poder Judicial, Proceso Civil, Proceso Penal, Universidad Iberoamericana
+Tags Propósito: Acceso a la justicia, Capacitación, Derechos humanos, Eficacia, Eficiencia, Estado de derecho, Imparcialidad, Independencia, Juicio de amparo, Jurisdicción, Justiciables, Proceso contradictorio., Protección constitucional, Resolución de conflictos, Servidores públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Lara Gaona es candidato a Juez/a de Distrito en Guerrero, postulándose a través del Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y cédula profesional, complementada con especializaciones y diplomados en áreas como justicia laboral, proceso penal, derechos humanos y amparo, recibidos en instituciones como la Universidad Iberoamericana y el Instituto de la Judicatura Federal.
+
+Su motivación para buscar el cargo se basa en sus conocimientos jurídicos, habilidades analíticas y capacidad de decisión. Propone fortalecer la imparcialidad e independencia de la función jurisdiccional, garantizando el acceso a la justicia sin distinción socioeconómica, la capacitación continua de los servidores públicos, y la consolidación del juicio de amparo como mecanismo de defensa constitucional. Busca lograr resoluciones claras, eficientes y basadas en el derecho, con énfasis en la protección de los derechos humanos y la transparencia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574540053359
+
+
+## Cursos
+
+- Especialización sobre la reforma en materia de justicia laboral,Diplomado en materias de proceso penal, civil, laboral, fiscal y amparo
+- ,Diplomado en Derechos Humanos en el Poder Judicial Universidad Iberoamericana,Curso Nociones Generales en Derechos Humanos, Instituto de la Judicatura Federal
+- ,Curso Derechos Humanos en el Poder Judicial, Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53778/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, en el Centro Internacional de Estudios Superiores de Morelos
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo los conocimientos jurídicos, habilidades analiticas y capacidad para tomar decisiones justas e imparciales
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi propuesta para mejorar la función jurisdiccional es que esta sea imparcial e independiente, que todos los conflictos que se sometan al análisis del órgano jurisdiccional sean resueltos conforme a derecho y no permitir ningún tipo de injerencias, siempre actuando en beneficio de los justiciables y protegiendo sus derechos si estos han sido vulnerados por alguna autoridad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es aplicar la ley para resolver los conflictos y disputas entre individuos con el Estado, no tener injerencias personales en que se resuelvan de determinada forma, ser totalmente independiente de los otros poderes del Estado y que todas las resoluciones que se emitan sean publicas y transparentes; pero sobre todo se debe velar por la protección de los derechos humanos para así garantizar el orden público y la estabilidad social.
+
+
+## Propuestas
+
+- Garantizar que todas las personas que acudan a los tribunales tengan un acceso libre a la justicia, idependientemente de su situación economica o social, establecer estrategias de formación y capacitación continua para los servidores públicos que laboren en el órgano jurisdiccional, para con ello garantizar a los justiciables que los asuntos sometidos a la consideración del órgano, serán analizados por personas capacitadas.
+- Evitar que los juzgadores se encuentren aislados del entorno social, lograr que las decisiones se tomen conforme a derecho y del proceso contradictorio, hacer que las resoluciones sean entendibles para los justiciables y explicar claramente el porque tiene o no razón sobre su reclamo, esto con la seguridad que seran emitidas de manera imparcial, sin mandatos ni presiones o injerencias de grupos ajenos y sobre todo lograr una eficiencia y eficacia para la resolución de los conflictos.
+- Consolidar el juicio de amparo como un instrumento fundamental en el sistema de defensa de la constitución, promover su uso como instrumento de protección de los derechos humanos garantizados en la constitución y tratados internacionales, buscar la forma de reducir el tiempo para su integración y resolución, y así garantizar que la justcia que busquen los individuos les sea administrada en menos tiempo, logrando con ello que los justiciables obtengan una sentencia en breve termino.
+

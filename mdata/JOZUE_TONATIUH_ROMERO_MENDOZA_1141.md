@@ -1,0 +1,88 @@
+Nombre Candidato: JOZUE TONATIUH ROMERO MENDOZA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: MEXICO
+Sexo: HOMBRE
+Telefono: 7228381501
+Correo Electronico: jozshueii@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acciones Colectivas, Amparo., CEJUM, Derechos Humanos, Género, Judicatura Federal, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho, Migración, Poder Judicial de la Federación, UAEM
+Tags Propósito: acceso a la justicia, análisis de pruebas, calidad, comunicación clara., derechos humanos, eficiencia, función jurisdiccional, igualdad de oportunidades, jueces empáticos, justicia digna, justicia eficaz, justicia social, ley, procesos ágiles, rapidez, sistema judicial, suprencia de la queja, transparencia, trato amable, valores, verdad, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+JOZUE TONATIUH ROMERO MENDOZA es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose por el Poder Judicial de la Federación. Cuenta con Maestría en Derecho y formación continua en áreas como Derechos Humanos, Migración y el sistema de justicia penal, avalada por el Instituto de la Judicatura Federal y otras instituciones.
+
+Su motivación para buscar el cargo se basa en la transformación del sistema de justicia, promoviendo jueces empáticos y comprometidos con valores para garantizar una justicia digna, eficaz y social. Sus propuestas centrales incluyen una justicia enfocada en el trato humano, la agilidad procesal, la comprensión profunda de los casos y la equidad en el acceso a la justicia, especialmente para grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://jozueromero.carrd.co
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jozue.romero.2025?mibextid=wwXIfr&rdid=Rbs7YqV91roQspzq&share_url=https3A2F2Fwww.facebook.com2Fshare2F1A1ieFwtid2F3Fmibextid3DwwXIfr
+- https://x.com/jozueromerom?s=11
+- https://www.instagram.com/jozshueii?igsh=eXprc3V4Mzl2c2Q5&utm_source=qr
+- https://www.tiktok.com/@jozue.romero?_t=ZM-8uujPPrU4Sj&_r=1
+- https://www.threads.net/@jozshueii?invite=0
+
+
+## Cursos
+
+- 2017 Curso
+- Estándares Internacionales en Derechos Humanos, Migración y Género
+- IJF y el IIDH,2013
+- Diplomado
+- Derechos Humanos
+- Instituto de la Judicatura Federal
+- ,2011
+- Diplomado sobre Acciones Colectivas
+- Instituto de la Judicatura Federal
+- ,2010
+- Curso
+- El juicio de amparo indirecto en el nuevo sistema de justicia penal
+- ,2009
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54988/10
+
+
+## Trayectoria Academica
+
+- Soy mexicano, soy licenciado en derecho por la UAEM, generación y maestro en derecho de amamparo por el CEJUM
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero transformar la justicia con jueces empaticos y con valores, para garantizar una justicia digna y eficaz
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia debe ser digna, humana, eficaz y social. La función jurisdiccional no solo consiste en aplicar la ley, sino en garantizar que las personas que acuden en busca de justicia reciban un trato amable y rápido, que sus derechos sean protegidos con empatía y que el acceso a la justicia sea equitativo para todos. Además, el juzgador debe conocer y entender los problemas de las personas, evaluar correctamente las pruebas y resolver con base en la verdad y la ley aplicable.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe transformarse. Es necesario dejar atrás un sistema que ha prevalecido por más de 30 años y evolucionar hacia uno que realmente garantice igualdad de oportunidades para todas las personas. Para ello, es fundamental contar con juzgadores no solo altamente preparados en conocimientos jurídicos, sino también en valores, con una visión humana y social que permita hacer de México un país más justo
+
+
+## Propuestas
+
+- Justicia Digna. La función jurisdiccional debe tener el trato a las personas que acuden a demandar justicia. Es fundamental que cada individuo que ingrese a un tribunal reciba atención amable, cordial y rápida. La justicia no debe ser solo un trámite burocrático, sino un servicio accesible y humano que garantice que todos sean escuchados y atendidos con respeto y eficiencia, sin importar su condición social o económica.
+- Justicia Eficaz. Para lograr un verdadero acceso a la justicia, es necesario que los procesos judiciales sean ágiles y de calidad. Un juzgador debe comprender cada caso a fondo, analizar las pruebas con rigor, aplicar la ley de manera correcta y, sobre todo, comunicar sus decisiones de manera clara y fundamentada. La justicia no solo debe impartirse, sino que debe ser comprensible y transparente para quienes dependen de ella.
+- Justicia Social. El acceso a justicia debe garantizar que todas las personas tengan igualdad de oportunidades y condiciones. Esto se logra con juzgadores que sepan identificar las clases vulnerables, así como las personas que por sus condiciones particulares pueden tener desvantajas en el sistema judicial y así aplicar las herramientas necesarias para evitar esa desigualdad. Esto se puede lograr a través de los ajustes al procedimiento y la suplencia de la queja solo por decir un ejemplo.
+

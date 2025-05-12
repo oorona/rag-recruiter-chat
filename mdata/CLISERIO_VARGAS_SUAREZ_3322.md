@@ -1,0 +1,77 @@
+Nombre Candidato: CLISERIO VARGAS SUAREZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: HOMBRE
+Telefono: 5661459296
+Correo Electronico: cliseriovargas@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Escuela Judicial, Experiencia, Función Jurisdiccional, Género, Honestidad, Igualdad, Juicio de Amparo, Justicia Laboral, Profesionalismo, Reforma Judicial, Semanario Judicial, Vocación de Servicio.
+Tags Propósito: Acceso a la justicia, Capacitación, Carrera judicial, Celeridad, Compromiso, Conciliación, Confianza institucional, Coordinación institucional, Dedicación, Derechos humanos, Función pública., Honestidad, Imparcialidad, Impunidad, Investigación, Justicia, Mecanismos alternativos de solución de controversias, Mediación, Persecución del delito, Rezagos judiciales, Trato digno, Vocación de servicio
+
+
+## Descripción del Candidato 
+
+CLISERIO VARGAS SUAREZ es candidato a Jueces/as de Distrito en Veracruz, postulándose desde el Poder Ejecutivo Federal. Cuenta con maestría y cédula profesional, además de más de 18 años de experiencia en la función jurisdiccional.  Su motivación para buscar el cargo es demostrar la confiabilidad en las instituciones de justicia.
+
+Su visión se centra en un compromiso con la justicia pronta, completa e imparcial, enfatizando la importancia de la dedicación, el trato digno a las personas justiciables y la comprensión de las historias individuales detrás de cada caso. Sus propuestas incluyen programas de capacitación coordinada entre instituciones de procuración e impartición de justicia, el fomento de mecanismos alternativos de solución de controversias y la capacitación continua del personal judicial, tanto en aspectos jurídicos como en la calidad del trato a las personas.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573227721990
+- https://www.instagram.com/cliserio_vargas_suarez
+- http://www.youtube.com/@cheyovargascv3464
+- https://www.tiktok.com/@cliserio_vargas_suarez
+
+
+## Cursos
+
+- El Trámite Electrónico del Juicio de Amparo,Género como Herramienta para la Igualdad
+- ,La Reforma Judicial 2021
+- Segunda Edición,Taller de Actualización en los Sistemas de Consulta del Semanario Judicial de la Federación, Escuela Judicial
+- ,Actualización Sobre la Reforma en Materia de Justicia Laboral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55211/11
+
+
+## Trayectoria Academica
+
+- Más de 18 años en la función jurisdiccional! Experiencia, profesionalismo, honestidad y vocación de servicio!
+
+
+## Motivo para buscar el Cargo Publico
+
+Para demostrar con hechos que sí es posible confiar en las instituciones del sistema de justicia!
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Los 18 años de experiencia en diversos cargos de la carrera judicial, me permiten afirmar que para laborar en los órganos jurisdiccionales, se requiere de compromiso, dedicación y vocación de servicio; me queda claro que nuestra labor no sólo comprende dictar sentencia en los expedientes, sino entender que cada uno contiene una historia personal, y ello nos debe motivar a otorgar un trato digno y respetuoso a las personas justiciables, actuando siempre con honestidad e imparcialidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La sociedad mexicana exige justicia pronta, completa e imparcial, en las distintas materias que comprenden la competencia de los órganos jurisdiccionales; dicho reclamo, demanda de quienes aspiramos a fungir como juzgadores, un mayor compromiso a efecto de actuar con celeridad, para de este modo hacer efectivo el derecho humano de acceso a la justicia, logrando procesos breves que logren restituir a los justiciables los derechos que les fueron vulnerados.
+
+
+## Propuestas
+
+- Implementar programas de capacitación coordinada entre las diversas instituciónes de procuración (fiscalías) e impartición de justicia (juzgados y tribunales), con el fin de mejorar el proceso de investigación y persecusión de los delitos, que aunque atañe a la autoridad ministerial, debe existir una constante capacitación entre todas estas instituciones para lograr que cada una de ellas realice un trabajo eficaz que permita disminuir la percepción de impunidad que impera en la sociedad mexicana
+- Fomentar entre las sociedad civil, en coordinación con las instituciones gubernamentales, la aplicación de mecanismos alternativos de solución de controversias, como la mediación y conciliación, a efecto de que las disputas entre particulares sean resueltas mediante estos medios y de esta forma sean menos los asuntos que se diriman en sede jurisdiccional, con el fin de disminuir el alto numero de rezago que tienen la mayoría de juzgados y tribunales.
+- Capacitación constante a todas las personas funcionarias públicas que integran la carrera judicial, no únicamente en temas jurídicos relevantes, sino en aquellos que permitan mejorar el trato que se otorga a las personas justiciables.
+

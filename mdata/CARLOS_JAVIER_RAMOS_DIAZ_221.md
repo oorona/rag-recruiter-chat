@@ -1,0 +1,79 @@
+Nombre Candidato: CARLOS JAVIER RAMOS DIAZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: AGUASCALIENTES
+Sexo: HOMBRE
+Telefono: 3348587330
+Correo Electronico: carlostumagistrado@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado, Juicio de Amparo, Maestría., Nuevo Sistema de Justicia Penal Acusatorio, Proceso Penal Acusatorio, Universidad de Colima
+Tags Propósito: Acceso a la justicia, Actualización de datos, Código QR, Democracia, Derechos, Digitalización, Eficiencia, Equidad, Estado de Derecho, Expedientes electrónicos, Imparcialidad, Justicia, Lenguaje accesible, Magistrado, Mandamientos judiciales, Modernización judicial., Reforma Constitucional, Respeto, Sentencias claras, Servicio público, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+CARLOS JAVIER RAMOS DIAZ es candidato a Magistrado de los Tribunales Colegiados de Circuito en Aguascalientes, postulándose a través del Poder Ejecutivo y Legislativo Federal. Cuenta con Maestría en Derecho Procesal Penal y una trayectoria de 25 años en la impartición de justicia, con estudios en Amparo, Derechos Humanos y el Nuevo Sistema de Justicia Penal Acusatorio. 
+
+Su motivación para buscar el cargo es alinear su visión con el servicio público, buscando un tribunal cercano a la ciudadanía. Sus propuestas centrales incluyen la emisión de sentencias accesibles, la adaptación de la justicia a los avances tecnológicos (incluyendo el uso de códigos QR en resoluciones), y la implementación de un sistema de verificación de mandamientos judiciales en los accesos a los edificios del Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/carlos.ramos.369492/
+- https://x.com/carlos0978?s=11&t=qUCymdnucESwxgUr99q9IQ
+- https://www.instagram.com/carlos.ramos.diaz/?next=2F
+- https://www.youtube.com/@stariki-3551
+- https://www.tiktok.com/@carlosramosdiaz78?_t=ZM-8v4l7MLYBkd&_r=1
+
+
+## Cursos
+
+- Diplomado en Amparo Penal,Diplomado sobre el Nuevo Sistema de Justicia Penal Acusatorio en México, desde la Perspectiva Constitucional,Diplomado en el Nuevo Juicio de Amparo,Curso General de Derechos Humanos,Curso de Inducción para Jueces de Distrito Especializado en el Nuevo Proceso Penal Acusatorio
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55225/10
+
+
+## Trayectoria Academica
+
+- Egresado de la Universidad de Colima
+- Maestro en Derecho Procesal Penal
+- Diplomado en Amparo
+- Curso de Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Ya que mi visión coincide con la del servicio público y desde ese lugar habrá un tribunal que escuche a la gente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La visión de la función jurisdiccional es ser un instrumento de justicia que inspire confianza, proteja los derechos de las personas, fortalezca el Estado de Derecho y contribuya al desarrollo de una sociedad más justa, equitativa y democrática. Considero que dentro de dicha función es tratar a los justiciables con todo el respeto que ellos se merecen, que tengan un Magistrado que los escuche, ya que detrás de cada expediente existe un problema familiar o incluso, una tragedia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La finalidad de la reforma Constitucional no es únicamente renovar, sino mejorar, es por ello que los asuntos que sean sometidos a mi potestad serán atendidos de manera pronta y resueltos con apego a las leyes, con la experiencia de 25 años que tengo en la impartición de justicia. Mi compromiso es claro: un tribunal sin favoritismos, sin presiones, con transparencia absoluta, ya que la justicia no es un privilegio, es un derecho de todas y todos.
+
+
+## Propuestas
+
+- Sentencias que no estén llenas de teoría, sino que se realicen de manera concreta, sencilla, con lenguajes accesible para las personas a quienes van dirigidas, que no son los litigantes, sino el directo quejoso o recurrente, quien quiere entender por qué se resolvió su asunto en uno u otro sentido.
+- La impartición de justicia debe adaptarse a los avances tecnológicos y a las necesidades de la sociedad contemporánea. Esto incluye la digitalización de los expedientes, el uso de herramientas tecnológicas para agilizar trámites y la capacitación continua de los operadores judiciales. Pero lo más importantes para cargar el sistema electrónico, es que todos los acuerdos y sentencias cuenten con un código QR y que al pasar la pistola láser se vacíe la información en el programa correspondiente.
+- Que en el acceso de cada uno de los edificios del Poder Judicial a nivel Nacional, se encuentre una máquina en la que las personas puedan escribir su nombre y diversos datos, para verificar si cuentan o no con algún mandamiento judicial y con eso nos evitaríamos muchísimos asuntos de los llamados buscones o policiacos, ya que únicamente podría promover su demanda quién sí se encuentre en el supuesto. El sistema debe ser actualizado diariamente por los órganos del Estado para su funcionamiento.
+

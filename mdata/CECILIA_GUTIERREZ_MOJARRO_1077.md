@@ -1,0 +1,81 @@
+Nombre Candidato: CECILIA GUTIERREZ MOJARRO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3329443013
+Correo Electronico: ceciliagutierrezmojarro@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Procesal Familiar, Diplomados., Impuestos, Juicios Orales, Justicia Laboral, Licenciatura en Derecho, Maestría, Sistema Acusatorio Adversarial, Solución de Conflictos
+Tags Propósito: Acceso a la justicia, Agilidad, Combate a la corrupción, Conciliación, Confianza ciudadana, Derechos humanos, Eficiencia, Grupos vulnerables, Imparcialidad, Independencia., Justicia administrativa, Modernización, Perspectiva social, Transparencia, Ética
+
+
+## Descripción del Candidato 
+
+Cecilia Gutierrez Mojarro es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulada por el Poder Judicial de la Federación. Cuenta con Maestría en Sistema Acusatorio Adversarial y una cédula profesional, complementada por diversas especializaciones y diplomados en áreas como impuestos, justicia adversarial, laboral, procesal familiar y métodos alternos de solución de conflictos.
+
+Su motivación para el cargo público se centra en aplicar su experiencia jurídica y compromiso ético para garantizar una justicia administrativa eficiente y transparente. Su visión incluye un sistema judicial progresivo, accesible y transparente, con énfasis en la justicia equitativa para grupos vulnerables, procesos ágiles e imparciales, y el combate a la corrupción. Sus propuestas principales se enfocan en garantizar el acceso a la justicia para personas vulnerables, agilizar los procesos judiciales y fomentar la transparencia en la impartición de justicia.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/191S2m4tAG/?mibextid=wwXIfr
+- https://www.instagram.com/ceciliagtz_abogada?igsh=ZDUwMXNrdjRrZnFo
+- https://youtube.com/@ceciliagutierrezmojarro?si=1bIyJa8C5gYRvltP
+- https://www.tiktok.com/@candidatacecygutierrez?is_from_webapp=1&sender_device=pc
+
+
+## Cursos
+
+- Especialidad en Impuestos
+- impartida por Unversidad Univer
+- ,Diplomado en Sistema Acusatorio Adversarial (juicios orales), por Universidad Anahuac de Oaxaca
+- ,Diplomado en el Nuevo Sistema de Justicia Laboral
+- Centro de Capacitación para el Trabajo
+- ,Diplomado en Derecho Procesal Familiar, por Secretaria de Educación Jalisco, Subsecretaria de Educación  Superior
+- ,Diplomado en Métodos Alternos de Solución de Conflictos, por el Instituto de Justicia Alternativa del Estado de Jalisco
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53383/10
+
+
+## Trayectoria Academica
+
+- Maestría en Sistema Acusatorio Adversarial, Especialidad en Impuestos y Licenciatura en Derecho
+- Diversos diplomados
+
+
+## Motivo para buscar el Cargo Publico
+
+Para aplicar mi experiencia jurídica, compromiso ético y garantizar la justicia administrativa eficiente y transparente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Impulsaré un sistema judicial progresivo, accesible y transparente: 1) Justicia equitativa para grupos vulnerables mediante conciliación; 2) Procesos ágiles e imparciales; 3) Combate a la corrupción con ética y transparencia. Adaptación a las necesidades sociales actuales.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Promoveré una impartición de justicia administrativa moderna, eficiente y con perspectiva social, basada en decisiones jurisdiccionales en derecho, con equidad, ética y respeto a los derechos humanos, fortaleciendo la confianza ciudadana en el Poder Judicial.
+
+
+## Propuestas
+
+- Garantizar el acceso equitativo a la justicia para personas vulnerables y de escasos recursos, aplicando normas, estrategias y mecanismos eficaces, fomentando la conciliación.
+- Procesos agiles, transparentes, con independencia e imparcialidad.
+- Intensificar la ética y transparencia en la impartición de justicia combatiendo la corrupción, mediante el acceso a la información.
+

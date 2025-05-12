@@ -1,0 +1,80 @@
+Nombre Candidato: LILIANA ELIZABETH VEZ FELIX
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: liliana.vez.felix@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Antitrust., Competencia Económica, Daños y Perjuicios, Derecho, Estudios de Posgrado, IFT, Juicio de Amparo, OCDE, Posgrado, Reformas Legislativas, Regulación Técnica, Telecomunicaciones, UNAM
+Tags Propósito: Acceso a la Justicia, Capacitación, Comunicación, Comunicación Judicial, Confianza Ciudadana, Derechos Humanos, Desempeño Judicial, Eficiencia Judicial, Estadística Judicial, Imparcialidad, Impunidad, Justicia, Lenguaje Ciudadano, Participación Ciudadana, Poder Judicial., Transparencia
+
+
+## Descripción del Candidato 
+
+Liliana Elizabeth Vez Félix es candidata a Jueza/es de Distrito en la Ciudad de México, postulándose para el Poder Legislativo Federal. Cuenta con maestría en Derecho por la UNAM y una trayectoria académica en la Facultad de Derecho y la División de Estudios de Posgrado de la misma institución. Ha realizado diversos cursos de especialización en temas de telecomunicaciones, competencia económica y juicio de amparo.
+
+Su motivación para buscar el cargo público se basa en su experiencia y conocimientos para fortalecer el sistema de impartición de justicia en México. Su visión se centra en una función jurisdiccional que garantice el respeto a los derechos humanos y una impartición de justicia efectiva, imparcial y cercana a la ciudadanía. Sus propuestas incluyen la capacitación de jueces en comunicación asertiva, la promoción de estadísticas detalladas sobre la función jurisdiccional y la participación activa de las partes en los juicios.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/lilianavezfelix
+- https://www.instagram.com/liliana_vez
+- https://www.youtube.com/@liliana-vez
+- https://www.tiktok.com/@liliana.vez
+
+
+## Cursos
+
+- Diplomado en Telecomunicaciones y Competencia Económica
+- Instituto de Investigaciones Jurídicas UNAM e IFT,Curso Trascendencia de las reformas legislativas de 2024 Derecho de las telecomunicaciones y de la competencia económica,Diplomado sobre juicio de amparo
+- Edición 2025
+- Casas de la Cultura Jurídica (cursando actualmente)
+- ,Taller sobre Regulación Técnica
+- Comisión Técnica Regional de Telecomunicaciones e IFT,Seminario sobre acciones de reparación de daños por conductas contrarias a la competencia económica
+- OCDE,SEconomía
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55441/11
+
+
+## Trayectoria Academica
+
+- Licenciatura y maestría en Derecho, en la Facultad de Derecho y en la División de Estudios de Posgrado de la UNAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo los conocimientos y experiencia para el fortalecimiento del sistema de impartición de justicia en México.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser más que la aplicación literal de la ley por parte del Poder Judicial al resolver controversias; debe ser un pilar que garantice que los reclamos por violaciones a los derechos de cualquier persona se resuelvan con pleno respeto a los derechos humanos reconocidos en la Constitución y los tratados internacionales, interpretando las normas, siguiendo los procedimientos legales establecidos y emitiendo resoluciones con calidad jurídica y en tiempos razonables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Dado que la sociedad desconfía del sistema de impartición de justicia en México, incluidos los juzgadores, es esencial que el sistema se transforme en su conjunto para dejar de percibirlo como inaccesible o parcial, concibiendo la justicia como efectiva, imparcial y cercana a la gente, garantizando que los derechos sean protegidos sin importar el poder o influencia de las partes. Es necesario fortalecer la transparencia y reducir la impunidad.
+
+
+## Propuestas
+
+- Capacitación a los juzgadores en comunicación asertiva y lenguaje ciudadano, pues les permitirá interactuar de forma clara y empática con la población, evitando que la falta de cercanía comunicativa y el uso exclusivo de lenguaje técnico genere percepciones de lejanía o inaccesibilidad. Al fortalecer estas habilidades se promoverá una justicia más comprensible, cercana y accesible para todos, donde las personas se sientan escuchadas y se fomente la confianza en las personas juzgadoras.
+- Promover que se tenga información periódica de estadísticas detalladas sobre la función jurisdiccional de cada juzgado, incluyendo resoluciones emitidas y el sentido de éstas, los tiempos de resolución, cargas de trabajo, etc.; a efecto de que la ciudadanía pueda evaluar la eficiencia, calidad y desempeño judicial. Además, para facilitar la detección de áreas de mejora y fomentar la confianza en la justicia a través de una gestión clara, abierta y verificable del quehacer jurisdiccional.
+- Promover la participación activa de las partes en los juicios sobre las actividades que a lo largo del proceso llevan a cabo las juezas y jueces, favoreciendo que exista una comunicación directa y clara entre estos, evitando que la defensa de las pretensiones de las partes se vea afectada por la imprecisión, errores u omisiones en la comunicación de los elementos que le son proporcionados al juzgador y a partir de los cuales resolverá las controversias que se le presenten.
+

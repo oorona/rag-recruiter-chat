@@ -1,0 +1,76 @@
+Nombre Candidato: MARIA DE FATIMA RAMIREZ ESPARZA
+Cargo: Juezas/es de Distrito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3331429338
+Correo Electronico: mafarz111@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Amparo, Arbitraje, Derecho Constitucional, Justicia Alternativa, Materia Laboral, Nuevo Sistema de Justicia Laboral, Poder Judicial, Profesora de Derecho., Solución de Conflictos, Suprema Corte, Universidad de Guadalajara
+Tags Propósito: Ciudadanía, Derechos Humanos, Derechos Laborales, Eficiencia, Equidad, Imparcialidad, Impartición de Justicia., Jueces Federales, Jurisdicción, Justicia, Ley, Plazos Constitucionales, Seguridad Social, Trabajadores, Transparencia, Tutela Efectiva
+
+
+## Descripción del Candidato 
+
+MARIA DE FATIMA RAMIREZ ESPARZA es candidata a Jueza/es de Distrito en JALISCO, postulada por el Poder Ejecutivo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo, además de una trayectoria como abogada y profesora en el área del derecho. Su candidatura se basa en el deseo de administrar justicia y garantizar los derechos laborales de la ciudadanía.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia enfatiza la importancia de operadores libres de intereses, el cumplimiento de plazos constitucionales, un trato justo y equitativo, y la transparencia en los juicios. Sus propuestas clave incluyen el cumplimiento de plazos para la resolución de casos laborales, garantizar un trato equitativo en los juicios y asegurar la transparencia en los procedimientos judiciales, ajenos a intereses particulares.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573613099743
+- https://www.instagram.com/mafar_10/
+- https://www.tiktok.com/@mfre7610?_d=secCgYIASAHKAESPgo8QofcGJOZyUx2FWb42BfKSIdLajefjK2FmXfPw3tS94MGSPjLu7rpxwD6Zk3E1D4G2F3LFbJt0FwD2BP1XiYNdGgA3D&_r=1&sec_uid=MS4wLjABAAAAWxolKnwpm3YjF2_ETkxWsUl
+
+
+## Cursos
+
+- Certificación como  Instituto de Justicia Alternativa, Gobierno del estado de Jalisco, Poder Judicial,Diplomado en Materia Laboral Académicos y Magistrados Federales, Tribunal Arbitraje Escalafón
+- ,Formación para Actores y Operadores del Nuevo Sistema de Justicia Laboral, Poder Judicial Estado
+- ,Diplomado en Amparo, Suprema Corte de Justicia de la Nación
+- ,Diplomado en Métodos Alternos de Solución de Conflicto
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54424/11
+
+
+## Trayectoria Academica
+
+- Maestría en Derecho Constitucional y Amparo, Abogada por la Universidad de Guadalajara, Profesora en área Derecho
+
+
+## Motivo para buscar el Cargo Publico
+
+Administrar justicia, garantizando los derechos laborales de la ciudadanía.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es de suma importancia que la función jurisdiccional se conforme con mecanismo que garanticen a la ciudadanía, una verdadera conservación y tutela de sus derechos, para ello es necesario que los perfiles en los operadores del los Nuevos sistemas Jurisdiccionales y leyes se encuentren libres de intereses, ya que ellos solo deben de responder a la propia legislación y a los derechos Humanos, en busca de una real tutela efectiva, respondiendo con efectividad a la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+En la administración de Justicia a través de los Tribunales Constituciones, se garantiza el derecho de la seguridad social de los trabajadores, por lo que es obligación de los jueces federales velar por los derechos de estos sin que se transgreda ni pase por alto ninguno de ellos, así mismo, resolver conforme a derecho cada una de las controversias que lleguen a los juzgados de manera pronta, rápida y expedita siempre en favor siempre al pueblo.
+
+
+## Propuestas
+
+- Cumplir con los plazos constitucionales para garantizar los derechos de los trabajadores, evitando el entorpecimiento y tortuguismo en la sustanciación de los procedimientos para beneficio del pueblo, ya que es a ellos a quien se les debe dar resultado, sin tramites innecesarios
+- Garantizar un trato justo, sin distinción alguna, así como la equidad en cada uno de los juicios apegado a la ley
+- Se transparente en cada uno de los juicios, ajeno a intereses particulares, ya que la impartición de justicia debe de ser para todos por igual
+

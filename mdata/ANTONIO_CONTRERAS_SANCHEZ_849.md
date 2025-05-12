@@ -1,0 +1,75 @@
+Nombre Candidato: ANTONIO CONTRERAS SANCHEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5532337196
+Correo Electronico: antonio.contreras.2302@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derechos Humanos, Juicio de Amparo, Licenciado en Derecho., Poder Judicial de la Federación, Posgrado, SCJN, Secretario de Juzgado, UNAM
+Tags Propósito: acceso a la justicia, confianza ciudadana, corrupción, derechos, eficiencia, enfoque social, equidad, justicia equitativa., justicia social, legalidad, obligaciones, sentencias comprensibles, sistema judicial, transparencia, trato digno
+
+
+## Descripción del Candidato 
+
+Antonio Contreras Sánchez es candidato a Magistratura de Tribunales Colegiados de Circuito para la Ciudad de México, postulándose por el Poder Judicial de la Federación. Cuenta con licenciatura en Derecho por la UNAM y ha realizado diversos diplomados en materia de amparo, derechos humanos y derecho constitucional en la SCJN y la UNAM. 
+
+Su motivación para buscar el cargo se centra en garantizar una justicia social, eficiente y transparente, fortaleciendo la confianza ciudadana en la institución. Sus propuestas principales incluyen la emisión de sentencias comprensibles para el público general, la promoción de una justicia equitativa y eficiente, y el fortalecimiento de la confianza ciudadana a través de un sistema judicial transparente, libre de corrupción y con un enfoque social.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Acreditación de Secretario de Juzgado o Tribunal del Poder Judicial de la Federación
+- ,Diplomado en Juicio de Amparo, SCJN
+- ,Diplomado La Suprema Corte y los Derechos Humanos, SCJN
+- ,Diplomado en Derecho Constitucional, UNAM
+- ,Curso Superior de Posgrado en Derecho Constitucional, UNAM
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52616/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho (UNAM), con diplomados en materia de amparo, derechos humanos y derecho constitucional(SCJN, UNAM)
+
+
+## Motivo para buscar el Cargo Publico
+
+Para garantizar una justicia social, eficiente y trasparente, fortaleciendo la confianza ciudadana en la institución.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe de ser transparente, eficiente e imparcial, garantizando el acceso a la justicia con un enfoque social que involucre resoluciones claras y oportunas. Por tanto, las sentencias deberán realizarse de forma más comprensibles para la ciudadanía, evitando tecnicismos excesivos y asegurando que todos entiendan sus derechos y obligaciones.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión es fortalecer la confianza ciudadana en la institución, eliminando obstáculos innecesarios y promoviendo un enfoque basado en la equidad y la legalidad, bajo un enfoque de justicia social. La justicia debe ser equitativa y eficiente, garantizando que todas las personas, sin importar su condición, reciban un trato digno, justo y oportuno dentro del sistema judicial.
+
+
+## Propuestas
+
+- Sentencias comprensibles para la ciudadanía, evitando tecnicismos excesivos y asegurando que todos entiendan sus derechos y obligaciones.
+- Justicia equitativa y eficiente que garantice que todas las personas, sin importar su condición, reciban un trato digno, justo y oportuno dentro del sistema judicial.
+- Fortalecer la confianza ciudadana en la institución mediante la implementación de un sistema judicial transparente, libre de corrupción y con un enfoque social que garantice equidad y justicia para todos.
+

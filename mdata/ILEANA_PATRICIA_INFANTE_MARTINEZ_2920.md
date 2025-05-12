@@ -1,0 +1,79 @@
+Nombre Candidato: ILEANA PATRICIA INFANTE MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: 9512772304
+Correo Electronico: patyinfanteoax@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Código Civil, Derecho, Derecho Constitucional, Derechos Humanos, Derechos Indígenas, Derechos Socioeconómicos, Desaparición de Personas, Igualdad de Género, Maestría., Poder Judicial, Universidad Autónoma de México
+Tags Propósito: capacitación judicial, claridad judicial, crecimiento profesional, derechos humanos, derechos laborales, dignidad humana, dinámica social, diversidad cultural, diálogo social, formación continua, igualdad, imparcialidad, independencia, independencia judicial., justicia cercana, justicia humana, justicia inclusiva, multiculturalidad, participación ciudadana, prácticas universitarias
+
+
+## Descripción del Candidato 
+
+ILeana Patricia Infante Martinez es candidata a Jueza/es de Distrito en Oaxaca, postulándose por el Poder Judicial de la Federación. Cuenta con licenciatura en Derecho y maestría en Derecho Constitucional y Derechos Humanos, respaldada por una cédula profesional. Su trayectoria académica se complementa con cursos en temas de derechos humanos, diversidad cultural, y procedimientos civiles y familiares.
+
+Su motivación para buscar el cargo se centra en construir una justicia inclusiva y humana. Su visión para la función jurisdiccional y la impartición de justicia enfatiza la interpretación de la Constitución considerando la multiculturalidad oaxaqueña, la protección de los derechos humanos y la promoción de la igualdad. Sus propuestas incluyen la formación continua de jueces en derechos humanos y diversidad cultural, la creación de espacios de diálogo entre la judicatura y la comunidad, y el apoyo al desarrollo profesional de los trabajadores del Poder Judicial, así como facilitar las prácticas de jóvenes universitarios.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1XWdMGMBBc/
+- https://www.instagram.com/patyinfante.oax?igsh=MTBrMzluODhnZm40aw==
+- https://www.tiktok.com/@patyinfanteoax?_t=ZM-8v6fGZWulj4&_r=1
+
+
+## Cursos
+
+- CURSOS LAS OBLIGACIONES DEL PODER JUDICIAL DE LA FEDERACIÓN EN RELACIÓN CON LA DESAPARICIÓN DE PERSONAS
+- ,CURSO DERECHOS SOCIOECONÓMICOS: CONTENIDO Y APLICACIÓN
+- 9A EDICIÓN
+- ,CURSO GÉNERO COMO HERRAMIENTA PARA LA IGUALDAD
+- 5a EDICIÓN,CURSO DERECHOS DE PERSONAS, PUEBLOS Y COMUNIDADES INDÍGENAS
+- ,JORNADAS DE INTRODUCCIÓN AL ESTUDIO DEL CÓDIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54287/11
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho
+- Universidad Autónoma de México Maestrante en Derecho Constitucional y Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero construir una nueva justicia inclusiva y humana, que equilibre la razón, la ley, y escuche a todas las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una jueza de Distrito debe interpretar la Constitución tomando como eje central, la multiculturalidad del Estado de Oaxaca, y garantizar que las decisiones judiciales respeten los derechos humanos y promuevan la igualdad. La nueva justicia debe ser dinámica, capaz de adaptarse a los desafíos de una sociedad en constante evolución, y enfocada en proteger la dignidad y los derechos de todos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Interpretaré la Constitución considerando la diversidad cultural de Oaxaca, asegurándome que las decisiones judiciales sean imparciales e independientes, y respeten los derechos humanos y promuevan la igualdad. Con imparcialidad, vocación y experiencia impartiré justicia, analizando la dinámica social, enfocada en proteger la dignidad y los derechos humanos de las personas.
+
+
+## Propuestas
+
+- Como jueza de Distrito en Oaxaca, me comprometo a recibir y promover formación continua para jueces y personal judicial sobre derechos humanos y la diversidad cultural del Estado. Esta capacitación no solo garantizará que las sentencias sean justas y claras, sino que también reflejarán una comprensión profunda de la realidad de la comunidad a la que serviré. La claridad, humanidad e independencia en las sentencias son esenciales para construir una justicia que sirva a la gente.
+- Para fomentar una justicia cercana a las personas, fomentare la creación de conversatorios en plazas y lugares públicos, respecto de los asuntos resueltos en el Juzgado de Distrito al que sea adscrita, estos encuentros tendrán como objetivo escuchar a todas las personas, porque una justicia que escucha a la sociedad es una justicia que responde a ésta, porque en la medida de que la sociedad, los abogados y la judicatura participen, se aumentara la confianza en el sistema judicial.
+- Respecto de los trabajadores integrantes del Poder Judicial, elementos indispensables y fundamentales en la impartición de justicia, me comprometo a brindarles apoyo continuo para su capacitación y crecimiento profesional, pero sobre todo a darle continuidad a sus derechos laborales, no sólo como una obligación, sino como un reconocimiento a su experiencia y trabajo, indispensables en el éxito del ejercicio de la función jurisdiccional. Facilitaré las prácticas de jóvenes universitarios.
+

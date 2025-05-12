@@ -1,0 +1,84 @@
+Nombre Candidato: FERNANDA ISABEL FIGUEROA CRUZ
+Cargo: Juezas/es de Distrito
+Entidad: VERACRUZ
+Sexo: MUJER
+Telefono: 2283155722
+Correo Electronico: issabbela@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Análisis Investigativo, Becas, Búsqueda, CIESAS, Criminología, Derecho, Derecho Constitucional, Derechos Humanos, Ensayo., Entropía, España, Género, Juicio de Amparo, Litigio Estratégico, Persecución Penal, Premios Nacionales
+Tags Propósito: Capacitación judicial, Derechos humanos, Eficiencia judicial, Estado de derecho, Impunidad, Justicia, Legalidad., Poder Judicial, Priorización de agendas, Resolución de conflictos, Servicio público, Sistema penal, Tiempos de respuesta, Transformación, Ética pública
+
+
+## Descripción del Candidato 
+
+Fernanda Isabel Figueroa Cruz es candidata a Jueza/es de Distrito en Veracruz, postulada por el Poder Ejecutivo Federal. Es licenciada en derecho y criminología, con estudios de maestría y cinco años de beca en España. Ha completado diversos diplomados en áreas como derecho constitucional, juicio de amparo, búsqueda de personas desaparecidas, análisis investigativo penal y litigio estratégico con perspectiva de derechos humanos y género.
+
+Su motivación para buscar el cargo público es servir a su país desde una perspectiva profesional comprometida con el contexto actual. Su visión de la función jurisdiccional se centra en aplicar la ley y la ética, buscando transformar el contexto social a través de resoluciones justas que combatan la impunidad. Propone priorizar la resolución eficiente de los casos, capacitar a nuevos jueces en la priorización de agendas pendientes y considera que la justicia tardía es injusticia.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/fernanda.figueroa.d2ver/about
+- https://www.instagram.com/ferisa_figueroa/
+
+
+## Cursos
+
+- Diplomado en Derecho Constitucional y Juicio de Amparo
+- Universidad Nacional Autónoma de México
+- 2016
+- ,Diplomado en búsqueda
+- CIESAS Golfo, Comisión Nacional de Búsqueda y Comisión Estatal del Estado de Veracruz, Xalapa
+- ,Análisis Investigativo para la persecución penal inteligente
+- De junio a julio de 2024, Impartido por Entropía
+- 2024,Diplomado en Amparo
+- Centro de Estudios Carbonell, Ciudad de México
+- , 2018
+- ,Diplomado en Litigio Estratégico Perspectiva de Derechos Humanos y Género, Xalapa, Veracruz
+- ,2018
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52945/11
+
+
+## Trayectoria Academica
+
+- Licenciada en derecho y criminología, con dos premios nacionales de ensayo en derechos humanos
+- 5 años becada en España
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir con honor a mi país, desde el optimismo del ejercicio profesional, comprometida con el contexto actual.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función jurisdiccional desde los principios legales y la ética pública, añadiendo lo estético como aquello que puede no estar mal pero que no se ve bien. Porque transformar el contexto social en el que vivimos depende también depende de generar inercias incluso desde las interpretaciones y resoluciones con el objetivo de administrar justicia, entendiendo qué es el Poder Judicial de la Federación el principal aplicador de la ley y sus resoluciones no deberían incidir en la impunidad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+México es el cuarto país en el mundo con mayor impunidad, la impunidad es la ausencia de justicia, de verdad, de reparación, de responsabilidad. El poder judicial debería atender el desafío de la impunidad estructural, negarse a ser un eslabón más de la cadena. Anhelo que el proceso penal cumpla su objetivo de: el esclarecimiento de los hechos, proteger al inocente, procurar que el culpable no quede impune y se repare el daño, y que todo suceda sin violentar derechos humanos. Esa es mi visión.
+
+
+## Propuestas
+
+- Toda justicia que tarda es injusticia. Por lo que, los tiempos la función jurisdiccional son elementales para una transformación, evitar la prolongación innecesaria de los procesos es el reto, priorizar resolver antes qué retrasar. Incentivar las resoluciones realizadas dentro de los términos mínimos de la norma.
+- Capacitación para todos los juzgadores de nuevo ingreso con el objetivo no sólo de tener herramientas para resolver, sino para la priorización de las agendas pendientes en los despachos a renovar.
+- No proporcionó
+

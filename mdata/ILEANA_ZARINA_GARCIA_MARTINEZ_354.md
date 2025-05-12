@@ -1,0 +1,74 @@
+Nombre Candidato: ILEANA ZARINA GARCIA MARTINEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: 8132686418
+Correo Electronico: ileana.zarina@icloud.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Adjudicación Judicial, Derecho, Derecho Internacional, Derechos Humanos, EGAP, Formación, Género, Honores, Igualdad, Maestría, Poder Judicial de la Federación, Tec de Monterrey, Violencia
+Tags Propósito: Acceso a la Justicia, Autonomía, Capacitación, Confianza, Digitalización, Eficiencia, Equidad, Estado de Derecho, Imparcialidad, Independencia Judicial, Innovación, Judicatura, Justicia, Mentoría Judicial, Modernización, Rezago Judicial, Seguimiento de Expedientes, Sistema Judicial., Transparencia, Ética Judicial
+
+
+## Descripción del Candidato 
+
+ILEANA ZARINA GARCIA MARTINEZ es candidata a Magistratura de Tribunales Colegiados de Circuito, postulándose por el Poder Judicial de la Federación en Coahuila. Cuenta con Maestría en Derecho Internacional y es egresada con honores de la carrera de Derecho del Tec de Monterrey. Su motivación para el cargo se basa en un compromiso con la justicia y la construcción de confianza en la judicatura.
+
+En su visión, el Poder Judicial debe ser autónomo, imparcial, transparente y un catalizador de cambio que promueva la justicia y la equidad. Sus propuestas incluyen la mejora de sistemas de seguimiento de expedientes, la creación de una unidad para controlar el rezago judicial y la implementación de un programa de mentorías para jueces recién nombrados. Más información sobre su perfil y trayectoria está disponible en su página web (https://www.ileanagarciamartinez.com.mx) y en el sitio web del INE (https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53230/10).
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://www.ileanagarciamartinez.com.mx
+
+
+## Redes Sociales
+
+- https://www.facebook.com/IleanaGarciaMar
+- https://www.x.com/IleanaGarciaM
+- https://www.instagram.com/ileanagarciam/
+- https://www.tiktok.com/@IleanaGarciaM
+
+
+## Cursos
+
+- Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Curso Género como Herramienta para la Igualdad,Curso para Generar Espacios Libres de Violencia,Seminario Perspectiva de Género y Adjudicación Judicial: Una visión desde el PJF,Curso Derechos Humanos Control de Convencionaldiad
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53230/10
+
+
+## Trayectoria Academica
+
+- Egresada con honores de la carrera de Derecho en el Tec de Monterrey y la Maestría en Derecho Internacional en la EGAP
+
+
+## Motivo para buscar el Cargo Publico
+
+Por una profunda vocación de servicio y compromiso con la justicia, busco construir confianza social en la judicatura.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión de la función jurisdiccional honra el pasado, aprendiendo de la historia para ajustar el futuro. Creo en un Poder Judicial autónomo, imparcial y transparente, que sea un verdadero pilar del Estado de Derecho, garantizando la confianza de la sociedad. Además, considero que debe ser un catalizador de cambio, promoviendo justicia y equidad. La independencia de los juzgadores es fundamental para que el sistema evolucione y responda a las necesidades de la sociedad de manera justa y sólida.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Mi visión de la impartición de justicia busca una comunión con la sociedad, donde cada sentencia se explique de manera clara y comprensible. El juzgador debe ser empático, buscando siempre el lado humano de la justicia, para garantizar que las decisiones no solo sean legales, sino también justas. La transparencia, la imparcialidad, la independencia y la igualdad deben guiar este proceso, dejando un legado perdurable de confianza y equidad en el sistema judicial.
+
+
+## Propuestas
+
+- Se propone mejorar el Sistema Integral de Seguimiento de Expedientes y otros sistemas judiciales para crear una plataforma digital más eficiente. La idea es hacerla más fácil de usar, integrándolo con otras plataformas de justicia federal y estatal. Se automatizarán tareas, se mejorará la seguridad de los datos y se facilitará el acceso a los usuarios. Además, se capacitará al personal y se incluirán alertas y seguimiento en tiempo real, para hacer más rápido y transparente el trabajo judicial.
+- Crear una unidad dedicada a controlar el rezago judicial. Esta unidad se encargará de monitorear los casos pendientes, identificar los más retrasados y proponer soluciones para acelerarlos. Además, realizará informes periódicos sobre el avance y la reducción del rezago, implementando medidas para asignar recursos donde más se necesiten. Con esto, se busca mejorar la eficiencia, reducir los tiempos de espera y garantizar una justicia más rápida y accesible para todos.
+- Implementar un programa de mentorías judiciales que brindará a los jueces recién nombrados el acompañamiento de jueces experimentados durante su primer año. Los mentores les ayudarán a tomar decisiones complejas, aplicar ética judicial y resolver casos, compartiendo buenas prácticas. Se organizarán reuniones periódicas para retroalimentación y aclaración de dudas, con el objetivo de fortalecer sus habilidades y garantizar decisiones justas y de calidad.
+

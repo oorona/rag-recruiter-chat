@@ -1,0 +1,79 @@
+Nombre Candidato: JOAN FREDEN MENDOZA GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5535708568
+Correo Electronico: joanfredenmendoza@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: CESCIJUC, Ciencias Jurídicas, Criminológicas, Derecho, Derecho Civil, Derecho Constitucional, Doctorado, Especialización, Litigación Oral, Maestría, Razonamiento Probatorio, Tepantlato., UNAM, Universitat de Girona
+Tags Propósito: Magistrado, Poder Judicial, acceso a la justicia, amparo, cercanía, confianza, derechos fundamentales, desarrollo democrático., excelencia, facilidad, honestidad, imparcialidad, independencia, integridad, justicia, lenguaje claro, objetividad, profesionalismo, pueblo, rapidez, resolución rápida, responsabilidad, sentencias justas, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+JOAN FREDEN MENDOZA GONZALEZ es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose al Poder Judicial de la Federación. Cuenta con un amplio perfil académico, incluyendo dos Maestrías, un Doctorado en Derecho Constitucional y la cédula profesional correspondiente.  Su trayectoria profesional se extiende por más de 15 años dentro del Poder Judicial de la Federación.
+
+Motivado por su conocimiento de las necesidades del sistema de justicia y de la ciudadanía, Joan Freden Mendoza González busca transformar la función jurisdiccional haciéndola más honesta, responsable, accesible y prioritaria para grupos vulnerables. Sus propuestas se centran en simplificar la impartición de justicia, agilizar los procesos, fomentar la transparencia y recuperar la confianza pública en el Poder Judicial, con un énfasis en el acceso al amparo para todos los ciudadanos.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/joanfredenmendozagonzalez
+- https://x.com/joanfreden
+- https://www.instagram.com/joanfredenmendozagonzalez
+- https://www.youtube.com/@joanfredenmendozagonzalez
+- https://www.tiktok.com/@joanfredenmendoza
+
+
+## Cursos
+
+- Especialización Bases del Razonamiento Probatorio, por la Universitat de Girona
+- ,Especialidad en Litigación y Estrategias de Defensa en Juicios Orales, por el CESCIJUC
+- ,Maestría en Derecho, por la Universidad Nacional Autónoma de México (UNAM)
+- ,Maestría en Litigación en Juicios Orales, por el Centro de Estudios Superiores en Ciencias Jurídicas y Criminológicas
+- ,Doctorado en Derecho Constitucional, por la Universidad Tepantlato
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54103/10
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en Derecho por la UNAM, Doctor en Derecho Civil y Doctor en Derecho Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Magistrado de Circuito, pues conozco las necesidades de la gente, quiero que la justicia sirva para el pueblo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Tengo plena certeza de que la función jurisdiccional puede transformar vidas, cuando se hace con honestidad, integridad, responsabilidad, transparencia y cercanía con la gente. La función jurisdiccional es trascendental para el desarrollo democrático de México, es fundamental para proteger y garantizar los derechos fundamentales de la sociedad mexicana. Esa función jurisdiccional no debe ni puede distinguir clases sociales, pero sí se debe dar prioridad a grupos o personas vulnerables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia en México ha sido mi forma de vivir en los últimos 15 años, desde ahí me he dado cuenta que esa justicia es compleja, inaccesible, lenta y por irónico que parezca, muchas veces la justicia no es justa. La manera en la que se imparte justicia en México debe cambiar, ser más rápida, debe llegar a todas las personas, pero, sobre todo, debe ser fácil. El juicio de amparo es nuestro máximo juicio constitucional, pero es muy técnico, hay que evitar su complejidad.
+
+
+## Propuestas
+
+- Quiero servir a México siendo Magistrado de Circuito ya que, al trabajar desde hace más de 15 años en el Poder Judicial de la Federación, sé cuáles son las necesidades de la institución, cómo se pueden corregir y la manera en la que podemos hacer todavía más accesible la justicia a toda la gente, sobre todo a la que más necesita promover un amparo. Mi compromiso es escuchar, entender las necesidades del pueblo y actuar con total rectitud y transparencia, quiero impartir justicia fácil para ti.
+- Mi compromiso es impartir justicia al servicio del pueblo de México, tal y como lo he realizado en los últimos 15 años de mi vida, con objetividad, imparcialidad, independencia, profesionalismo, excelencia y transparencia. No prometo lo imposible, sino a trabajar todos los días por lo que es necesario, urgente y justo. Quiero que la sociedad mexicana vuelta a tener plena confianza en el Poder Judicial de la Federación, confianza que se ganará impartiendo justicia para todos. Justicia fácil.
+- Estoy convencido que las personas quejosas en México sienten que los tribunales del Poder Judicial de la Federación no imparten justicia de manera clara, rápida y accesible. Haré todo lo que esté en mis manos y recursos por dar respuesta a esas necesidades sociales, resolviendo los asuntos de manera rápida, imparcial y, sobre todo, de forma justa, dictando sentencias para y por el pueblo, escuchando a la gente, explicando las decisiones adoptadas con un lenguaje claro y cercano a la sociedad.
+

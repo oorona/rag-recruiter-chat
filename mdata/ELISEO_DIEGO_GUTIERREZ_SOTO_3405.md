@@ -1,0 +1,71 @@
+Nombre Candidato: ELISEO DIEGO GUTIERREZ SOTO
+Cargo: Juezas/es de Distrito
+Entidad: ZACATECAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: eliseodiegogutierrezsotopj@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Barra Mexicana Colegio de Abogados, Derecho Comparado, Derecho Penal, Diplomado., Escritura Jurídica, INAI, ITAM, Inteligencia Artificial, Licenciatura en Derecho, Rendición de Cuentas, SCJN, Transparencia
+Tags Propósito: Acceso a la Justicia, Adolescencia, Buzón Electrónico, Corrupción, Derechos Humanos, Desigualdad Histórica., Discapacidad, Eficiencia, Equidad, Igualdad de Oportunidades, Imparcialidad, Innovación Judicial, Justicia Social, Lectura Fácil, Niñez, Perspectiva Humanitaria, Responsabilidad, Sentencias Ciudadanas, Transparencia Judicial
+
+
+## Descripción del Candidato 
+
+Eliseo Diego Gutierrez Soto es candidato a Juez/a de Distrito en Zacatecas, postulándose desde el Poder Legislativo Federal. Cuenta con licenciatura en Derecho por el ITAM y ha complementado su formación con diplomados en derecho penal, inteligencia artificial y transparencia, incluyendo cursos en el INAI y la Barra Mexicana Colegio de Abogados.
+
+Su motivación para aspirar al cargo es contribuir a la protección de los derechos de las personas. Propone una judicatura accesible, transparente e innovadora, con un enfoque social y humanitario. Sus propuestas incluyen la elaboración de sentencias ciudadanas con resúmenes claros, la implementación de un buzón electrónico para denuncias de corrupción, y el uso de formatos de lectura fácil en sentencias que involucren a personas con discapacidad o menores de edad, buscando el pleno acceso a la justicia y el bienestar ciudadano.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- Diplomado especializado en ¿Luigi Ferrajoli¿ de teoría y derecho penal comparado, ITAM,Diplomado ¿Eduardo García Maynez¿, ITAM, edición XXIX, Inteligencia Artificial,Escritura para abogados, Barra Mexicana Colegio de Abogados,Sensibilización para la Transparencia y la Rendición de Cuentas, INAI,Curso sobre argumentación jurídica, INAI/SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53662/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por el ITAM, con diplomados en derecho penal, inteligencia artificial y transparencia
+
+
+## Motivo para buscar el Cargo Publico
+
+Busco contribuir, desde la judicatura, en la protección de los derechos de todas las personas. Trabajaré incansablemente
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia no debe ser solo técnica, sino accesible, transparente e innovadora, respondiendo a los desafíos actuales de la sociedad. La función jurisdiccional debe garantizar al pueblo el acceso pronto y expedito a la impartición de la justicia con un enfoque social, equitativo, eficiente y responsable. Como juez, mi compromiso será interpretar y aplicar la ley con imparcialidad, sensibilidad y perspectiva humanitaria, asegurando que las resoluciones fortalezcan la confianza en la judicatura.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no es solo aplicación normativa sino que debe funcionar como una herramienta para construir una sociedad más equitativa. La impartición de justicia debe buscar corregir las desigualdades históricas que han perjudicado y limitado los derechos de las personas. Nadie elige su contexto. Por ello, se deben identificar estas disparidades y a través de las sentencias de la judicatura asegurar la igualdad de oportunidades para todas las personas.
+
+
+## Propuestas
+
+- El Juzgado de Distrito bajo mi coordinación elaborará sentencias ciudadanas asegurando claridad sin comprometer la técnica jurídica. Para ello, se emitirá un manual con criterios de redacción, como títulos breves, numeración de párrafos y supresión de transcripciones innecesarias. Además, cada sentencia incluirá un resumen ciudadano con la decisión, sus fundamentos y la controversia resuelta, fortaleciendo la transparencia judicial.
+- El Juzgado a mi cargo tendrá una política de cero corrupción con la implementación de un buzón electrónico. El buzón servirá para que la ciudadanía presente quejas. Me comprometo a dar vista a las autoridades competentes en caso de irregularidades en el ejercicio de la función jurisdiccional. Además, se realizará una campaña permanente para difundir estos mecanismos y concientizar sobre la importancia de que no exista corrupción de las autoridades, promoviendo la transparencia y la prevención.
+- Bajo mi coordinación el juzgado tendrá como principio el pleno acceso a la justicia y el bienestar de los ciudadanos. Como juzgador escucharé las necesidades de justicia de la ciudadanía, de forma permanente, atenta y sensible, sin anteponer obstáculos técnicos ni trámites excesivos o innecesarios. En los casos que involucren a personas con discapacidad y a niñas. niños y adolescentes se realizará una sentencia en formato de lectura fácil exponiendo de forma sencilla y clara el fallo.
+

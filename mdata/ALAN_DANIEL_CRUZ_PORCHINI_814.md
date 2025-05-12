@@ -1,0 +1,79 @@
+Nombre Candidato: ALAN DANIEL CRUZ PORCHINI
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5536554209
+Correo Electronico: alan19.porch78@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho Civil, Derecho del Trabajo, Especialidad, Formación Judicial, Juicios Orales, Licenciatura, Maestría, Mención Honorífica., Poder Judicial de la Federación, Reforma Laboral, UNAM
+Tags Propósito: Accesibilidad, Constitución, Derechos Humanos, Derechos Laborales, Dignidad, Equidad, Género, Igualdad, Igualdad Sustantiva., Imparcialidad, Inclusión, Justicia, Justicia Laboral, Lenguaje Ciudadano, No Discriminación, Perspectiva de Género, Principio Pro Persona, Tratados Internacionales, Verdad Material
+
+
+## Descripción del Candidato 
+
+Alan Daniel Cruz Porchini es candidato a Magistrado de Tribunales Colegiados de Circuito en la Ciudad de México, postulándose a través del Poder Ejecutivo Federal. Cuenta con Maestría y especialidades en Derecho del Trabajo y Civil, siendo Licenciado en Derecho por la UNAM con mención honorífica. Su trayectoria académica se complementa con cursos en reforma laboral, juicios orales y formación en el Poder Judicial de la Federación.
+
+El candidato motiva su postulación para hacer respetar los principios constitucionales y los derechos humanos, enfatizando la necesidad de una función jurisdiccional equitativa, accesible e inclusiva. Sus propuestas se centran en la protección de los derechos humanos de los trabajadores, la aplicación del principio de verdad material en la resolución de conflictos laborales y la emisión de sentencias claras y comprensibles para la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/alan.porchini
+- https://x.com/alan_porchini78
+- https://www.instagram.com/alanporchini
+- https://www.linkedin.com/in/alan-daniel-cruz-porchini
+
+
+## Cursos
+
+- Seminario Reforma Laboral, diciembre de 2019
+- Constancia
+- ,Curso Juicios Orales, febrero a mayo de 2012, Procuraduría General de la República, Constancia
+- ,Curso Básico y Preparación de Secretarios del Poder Judicial de la Federación, enero a diciembre de 2008
+- ,Especialidad en Derecho del Trabajo y Justicia Laboral, Escuela Federal de Formación Judicial, Cédula 12634126
+- ,Especialidad en Derecho Civil, UNAM, Facultad de Derecho, Cédula profesional: 5777528
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52934/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho, con mención honorífica por la UNAM, Maestría y Especialidad en Derecho del Trabajo
+
+
+## Motivo para buscar el Cargo Publico
+
+Para hacer respetar con honestidad e integridad los principios y valores de nuestra Constitución y los derechos humanos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe reflejar compromiso con la equidad y la justicia en todos sus aspectos. La justicia, en su forma más pura, debe ser accesible, imparcial y profundamente humana, más cercana a la población, entendiendo la necesidad de una impartición de justicia más pronta, inclusiva e igualitaria.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia no puede ser ciega a las desigualdades ni a los contextos que afectan a diferentes grupos de la sociedad. Se debe juzgar con perspectiva de género no como una necesidad moderna, sino como un imperativo ético.
+
+
+## Propuestas
+
+- Como Magistrado de Circuito, me comprometo a proteger los derechos humanos de las personas trabajadoras, asegurando que no exista discriminación por razón alguna, incluyendo género, orientación sexual o condición social. Velaré porque cada sentencia esté debidamente fundada, motivada y dictada bajo el principio pro persona en estricto respeto a los tratados internacionales, privilegiando la dignidad y la igualdad sustantiva.
+- Como Magistrado de Circuito, defenderé una justicia laboral que priorice la realidad de los hechos por encima de la forma, considerando las condiciones concretas en la que se desarrollan las relaciones de trabajo. Aplicaré el principio de verdad material para que las resoluciones reflejen la realidad, sin tecnicismos que oculten situaciones de desigualdad o abuso.
+- Como Magistrado de Circuito, promoveré la emisión de sentencias claras y con un lenguaje ciudadano, que acerquen la justicia a todas las personas. Solo así, construiremos un sistema justo, igualitario, incluyente, donde cada persona pueda conocer, ejercer y defender sus derechos laborales con plena confianza.
+

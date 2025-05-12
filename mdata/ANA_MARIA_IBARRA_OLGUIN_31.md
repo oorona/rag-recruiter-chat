@@ -1,0 +1,86 @@
+Nombre Candidato: ANA MARIA IBARRA OLGUIN
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5951128549
+Correo Electronico: magistrada.amio@gmail.com
+Numero de lista en boleta: 17
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Análisis Político, CIDE, Constitucional, Derecho, Diplomado, Docencia, Doctorado, Fellowship., ITAM, Indígena, Internacional, Investigación, Justicia, Licenciatura, Maestría, Posgrado, Seminario, Universidad de Virginia
+Tags Propósito: acceso a la justicia., derechos humanos, desigualdad, discriminación, equidad, impacto social, justicia accesible, justicia con sentido social, participación ciudadana, perspectiva de género, protección de derechos, responsabilidad institucional, simplificación procesal, transparencia, vulnerabilidad, ética
+
+
+## Descripción del Candidato 
+
+Ana María Ibarra Olguín es candidata a Ministra de la Suprema Corte de Justicia de la Nación. Cuenta con un doctorado en Derecho por la Universidad de Virginia (EEUU) y es Profesora en el CIDE e ITAM. Su trayectoria académica y profesional se complementa con cursos especializados en derecho y análisis político, incluyendo el Judicial Fellowship Program y estudios en la Universidad de Yale.
+
+La candidata busca el cargo con el objetivo de garantizar una justicia accesible, equitativa y con impacto social real, enfocándose en la protección de los derechos humanos y la eliminación de formalismos innecesarios. Sus propuestas centrales incluyen una justicia con equidad (considerando la vulnerabilidad de las partes), con sentido social (erradicando obstáculos procesales y promoviendo la participación ciudadana) y con responsabilidad institucional (promoviendo la colaboración entre poderes y la transparencia).
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://anamariaibarra.com/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/anamaria.ibarra.982?locale=es_LA
+- https://x.com/anamariaibarrao
+- https://www.instagram.com/anamaria.ibarraolguin?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
+- https://www.youtube.com/@AnaMariaIbarraOlguin
+- https://www.tiktok.com/@anamaria.ibarraolguin?_t=ZM-8uIdejjpnTZ&_r=1
+- https://www.linkedin.com/in/ana-marC3ADa-ibarra-olguC3ADn-a4048b75?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
+
+
+## Cursos
+
+- Judicial Fellowship Program (U
+- S
+- Chamber  Commerce Foundation y el Presidential Precinct),Diplomado en Análisis Político (Centro de Investigación y Docencia Económicas, A
+- C
+- ),Seminario de Derecho de Verano para Estudiantes Internacionales (Escuela de Derecho de la Universidad de Yale),Miembro de la Red Internacional de Derecho Constitucional Familiar
+- ,Directora del Proyecto Taller de Derecho para una Comunidad Indígena (Comunidad de Pamal Navil, Chilon, Chiapas)
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/18/6
+
+
+## Trayectoria Academica
+
+- Dra
+- y Mtra
+- en Derecho por la Universidad de Virginia (EEUU) Lic
+- en Derecho por el CIDE
+- Profesora en el CIDE e ITAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero ser Ministra para garantizar una justicia accesible, equitativa y con impacto real en la vida de las personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional es la herramienta ideal para garantizar una justicia con equidad, sentido social y responsabilidad institucional. Creo en decisiones técnicas, pero también empáticas, que prioricen la protección de los derechos humanos y eliminen formalismos innecesarios. La Suprema Corte debe ser un espacio que escuche a la ciudadanía y responda con soluciones que transformen vidas y construyan un país más justo.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser cercana, sensible y accesible o no será justicia. Los tribunales deben ser espacios donde todas las personas, especialmente las más vulnerables, encuentren respuestas claras y soluciones reales. Simplificaré procesos, usaré un lenguaje claro y garantizaré que mis decisiones judiciales reduzcan las brechas de desigualdad para que la justicia sea un derecho al alcance de todas y todos.
+
+
+## Propuestas
+
+- Justicia con equidad. Tratar igual a los desiguales, es profundizar la injusticia. Juzgaré con perspectiva, empatizando con las personas más vulnerables. Separaré el poder del dinero de la justicia, porque esta no puede servir sólo a las élites. Eliminaré normas y prácticas discriminatorias que perpetúan prejuicios de género, raciales o socioeconómicos. Mis decisiones judiciales serán justas, sí, pero también contribuirán a reducir las brechas históricas de exclusión y discriminación.
+- Justicia con sentido social. La sociedad no puede ir por un lado y el derecho por otro, por eso la Corte debe ser el motor de cambio social. Erradicaré los obstáculos procesales en el amparo que sólo retrasan la justicia. Mis precedentes no sólo resolverán conflictos, sino que serán la guía hacia una sociedad más justa. Abriré la Corte: sentencias claras, audiencias públicas y participación ciudadana serán clave. Porque la justicia debe servir al pueblo, no al revés.
+- Justicia con responsabilidad institucional. La Corte debe ser puente, no muro: trabajaré con otros poderes para proteger derechos sin crisis. Seré un referente ético: sin privilegios, con transparencia y decisiones justas que sirvan al pueblo. Actuaré cuando los derechos peligren, pero sin usurpar funciones ajenas. La Corte no impone autoridad: la gana con humildad y firmeza.
+

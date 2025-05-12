@@ -1,0 +1,72 @@
+Nombre Candidato: ANTONIO MORA DIEZ
+Cargo: Juezas/es de Distrito
+Entidad: SONORA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: moradiezantonio@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Constitucionalismo Transformador, Culturales y Ambientales, Derecho Administrativo, Derecho Constitucional, Derecho Fiscal, Derecho Penal Acusatorio, Derechos Económicos, Derechos Humanos, Género, Juicio de Amparo, Justicia, Licenciatura en Derecho, Sistema Penal Acusatorio, Sociales, Telecomunicaciones, Universidad de las Américas Puebla.
+Tags Propósito: Acceso a la Justicia, Capacitación, Defensa Pública, Derechos Humanos, Desempeño Judicial., Eficiencia, Estabilidad Institucional, Gestión Judicial, Imparcialidad, Justicia, Justicia Digital, Mediación, Nuevas Tecnologías, Profesionalización, Recursos Públicos, Transparencia
+
+
+## Descripción del Candidato 
+
+Antonio Mora Diez es candidato a Juez/a de Distrito en Sonora, postulando a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho y casi 20 años de servicio público, incluyendo experiencia como Juez de Distrito. Su motivación para el cargo es su pasión por impartir justicia. 
+
+Su visión de la función jurisdiccional se centra en la disciplina, imparcialidad, eficiencia y el acceso a una justicia con rostro humano. Sus propuestas incluyen la profesionalización continua del personal jurisdiccional, la optimización de la gestión de los órganos judiciales mediante el uso de tecnologías y el fortalecimiento del acceso a la justicia a través de herramientas digitales y ampliación de la defensoría pública.
+
+
+## Poder que postula
+
+- En Funciones
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.instagram.com/moradiezantonio
+
+
+## Cursos
+
+- Maestrías en Proceso Penal Acusatorio; Derecho Fiscal; y, Derechos Humanos, Impartición de Justicia y Género,Especialidades en Amparo; Derecho Administrativo; y, Telecomunicaciones,Especialidad en Derecho Constitucional: El constitucionalismo transformador,La Justiciabilidad de los Derechos Económicos, Sociales, Culturales y Ambientales,Dialéctica de los Principios del Sistema Penal Acusatorio y del Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54358/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho por la Universidad de las Américas en Puebla
+
+
+## Motivo para buscar el Cargo Publico
+
+Con casi 20 años como servidor público y cerca de la mitad de ellos como Juez de Distrito, me apasiona impartir justicia
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función exige disciplina, imparcialidad y eficiencia en la gestión del órgano jurisdiccional, asegurando el acceso a una justicia con rostro humano conformada por equipos capacitados, en los que se priorice el mérito y la vocación de servicio. Asimismo, requiere una administración estratégica que optimice tiempos y recursos, promoviendo un servicio eficaz, transparente y accesible, para resolver los problemas de la ciudadanía.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia debe garantizar la efectividad de los fallos, al equilibrar la defensa de los derechos con la estabilidad institucional y la gestión eficiente de los recursos públicos. A la par, la justicia no debe ser rígida, sino un ejercicio dinámico que responde a las necesidades del Estado y la sociedad. Quien juzga no solo debe decidir, sino equilibrar la correcta aplicación del derecho con la eficiencia operativa y la deferencia a las políticas de Estado en beneficio de todos.
+
+
+## Propuestas
+
+- Profesionalización y formación continua: implementar programas obligatorios y periódicos de capacitación para personas juzgadoras y personal jurisdiccional en temas de gestión judicial, derechos humanos y nuevas tecnologías.
+- Eficiencia en la gestión de los órganos jurisdiccionales: optimizar el uso de tecnologías para reducir tiempos de resolución, agilizar notificaciones electrónicas y mejorar la transparencia en la gestión de casos; implementar sistemas de medición del desempeño judicial para detectar cuellos de botella y mejorar la distribución de cargas de trabajo.
+- Acceso efectivo a la justicia: fortalecer la justicia digital con plataformas accesibles para presentación de demandas, audiencias en línea y consulta de expedientes; ampliar la red de defensoría pública y mediación para que más ciudadanos accedan a representación legal sin barreras económicas o geográficas.
+

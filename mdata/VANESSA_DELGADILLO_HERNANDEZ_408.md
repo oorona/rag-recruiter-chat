@@ -1,0 +1,76 @@
+Nombre Candidato: VANESSA DELGADILLO HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CHIAPAS
+Sexo: MUJER
+Telefono: 9613311813
+Correo Electronico: convaneva@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actuarios, Amparo, Argumentación Jurídica, Ddocencia, Derecho, Función Pública., Justicia para Adolescentes, Perspectiva de Género, Poder Judicial, Proceso Penal Acusatorio, Sistema Penal Acusatorio
+Tags Propósito: Chiapas., México, acceso a la justicia, audiencia, calidad, cercanía, comunicación, derechos, eficacia, expedientes, gestión judicial, imparcialidad, justicia, justicia digital, objetividad, personas, profesionalismo, prontitud, sensibilidad, servidores públicos, sistema de justicia, transparencia
+
+
+## Descripción del Candidato 
+
+Vanessa Delgadillo Hernández es candidata a Magistratura de Tribunales Colegiados de Circuito en Chiapas, postulándose a través del Poder Ejecutivo Federal y el Poder Judicial de la Federación. Cuenta con Maestría en Proceso Penal Acusatorio y Amparo, y posee una trayectoria como docente y funcionaria pública en el Poder Judicial. Su motivación para el cargo se basa en su conocimiento de la problemática local y su experiencia laboral, enfatizando que los casos involucran a personas, no solo números.
+
+Su visión de la función jurisdiccional se centra en la impartición de una justicia de calidad, imparcial y expedita, mientras que su propuesta incluye la transparencia en la actuación de los juzgadores, la mejora del acceso a la justicia digital y un acercamiento sensible y cercano a la ciudadanía. Se enfoca en la importancia de la comunicación efectiva con las partes involucradas para lograr una justicia pronta y eficaz.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573990919855
+- https://www.instagram.com/vanessadelgadillohernandez/
+
+
+## Cursos
+
+- Diplomado en Argumentación Jurídica (UNAM),Diplomado Juzgar con Perspectiva de Género (Impartido por la Escuela Judicial y la Universidad de las Américas Puebla)
+- ,Diplomado en Sistema Penal Acusatorio (Escuela Federal de Formación Judicial)
+- ,Especialidad en Justicia para Adolescentes  (Escuela Federal de Formación Judicial)
+- ,Curso de preparación para actuarios, Secretarios de Juzgado, de Colegiados y Secretarios de Estudio y Cuenta de la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52738/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, Maestra en Proceso Penal Acusatorio y Amparo; Docente y funcionaria Pública en el Poder Judicial
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy Chiapaneca, conozco la problemática de la zona, tengo experiencia laboral. Los asuntos no son números son personas.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Además de tener la capacidad técnica para la adecuada gestión del despacho judicial; la función jurisdiccional se traduce en que los justiciables deben recibir una justicia de calidad, imparcial, objetiva, pronta y expedita, porque cuando se dicta una sentencia, se incide forzosamente de manera directa en su vida y de manera indirecta en la de sus familias.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia debe ser bajo los principios de profesionalismo, objetividad, excelencia, imparcialidad, independencia; pero sobre todo debe ser sensible a las circunstancias de las personas; es decir, debe de haber una comunicación efectiva con información de calidad a las partes, para que así se logre el objetivo que es impartir justicia de manera pronta y eficaz cercana a la gente, con lo cual se transparenta la actuación del juzgador.
+
+
+## Propuestas
+
+- Transparencia en la actuación de los juzgadores. El nuevo sistema de justicia en México, se caracteriza por la transparencia, es decir, es necesario que se conozca de primera mano la actuación de los juzgadores; para ello, el órgano jurisdiccional debe hacerle llegar a los justiciables toda la información necesaria para que puedan conocer su actuación en los asuntos.
+- Mejorar el acceso a la justicia digital. Es importante que se cuente con los insumos y equipo técnico necesario, para que se pueda lograr dicho objetivo.
+- Los juzgadores deben de ser sensibles y cercanos a la gente. Los expedientes no son números son personas; para ello, es necesario que los juzgadores siempre concedan audiencia a las partes cuando éstas lo soliciten. El Juez es un servidor público que se debe a la gente.
+

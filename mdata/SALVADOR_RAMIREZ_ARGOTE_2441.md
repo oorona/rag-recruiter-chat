@@ -1,0 +1,76 @@
+Nombre Candidato: SALVADOR RAMIREZ ARGOTE
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 4777243961
+Correo Electronico: sramirezargote@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derechos Humanos, Doctor en Educación, Juicio de Amparo, Justicia Administrativa, Licenciatura en Derecho, Maestría en Derecho Constitucional, Poder Judicial de la Federación.
+Tags Propósito: Morelos, Poder Judicial, accesibilidad, adultos mayores, celeridad, derechos humanos, discapacidad, elección popular, empatía, equidad, imparcialidad, justicia, justicia federal., justicia para tod@s, perspectiva de género, sufrimiento humano, transparencia, voto popular
+
+
+## Descripción del Candidato 
+
+Salvador Ramírez Argote es candidato a Juez de Distrito en Guanajuato, postulado por el Poder Ejecutivo Federal. Cuenta con un Doctorado en Educación y una amplia trayectoria académica en Derecho, especializándose en Justicia Administrativa, Derecho Constitucional y Amparo. 
+
+Su motivación para buscar el cargo se basa en la necesidad de transformar la impartición de justicia en México, a la cual describe como inaccesible, discriminatoria, lenta y opaca. Propone un modelo de justicia más cercano a las personas, rápido y equitativo, con especial atención a la perspectiva de género, discapacidad y edad, buscando eliminar las barreras de acceso a la justicia y priorizar la empatía en la resolución de conflictos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/salvador.ramirezargote
+- https://www.instagram.com/salvadorramirezargote?igsh=MWFzZDUxMjJ4ZmJxMw==
+- https://www.youtube.com/@salvadorramirezargote9417
+- https://www.tiktok.com/@sramirezargote?_t=ZM-8v6ci6DXAmr&_r=1
+- https://www.facebook.com/share/18SWZxqcAV/
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos, impartido por la Casa de la Cultura Jurídica del Poder Judicial de la Federación
+- ,Diplomado en Juicio de Amparo, impartido por la Casa de la Cultura Jurídica del Poder Judicial de la Federación
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54436/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Especialidad en Justicia Admva; Maestría en Derechos Constitucional y Amparo; Doctor en Educación
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque la impartición de justicia en México debe cambiar: hoy la justicia es cara, discriminadora, lenta y oscura.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La actividad jurisdiccional es una función fundamental del Estado, encomendada a uno de los 3 poderes y pagada con los recursos del pueblo. Por eso los jueces se deben al pueblo y es correcto que las personas juzgadoras sean elegidas por el voto popular. De esta forma, tendrá que cumplirse el sueño aun no realizado de José María Morelos y Pavón:  todo aquel que se queje con justicia, tenga un tribunal que los escuche, lo ampare y lo defienda contra el  Urge la justicia para tod@s
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia federal debe ser accesible a tod@s, equitatitiva, rápida y clara. El Poder Judicial no ha estado a la altura de las expectativas de un pueblo que tiene hambre y sed de justicia. El juez debe abrir las puertas de la justicia al pueblo y abrir las puertas de su privado a los ciudadanos, a las personas que han sufrido una injusticia y claman porque se haga valer su derecho. Seré un juez sensible al sufrimiento humano, que verá personas de carne y hueso y no meros expedientes de papel.
+
+
+## Propuestas
+
+- Un juez cercano a las personas. Que conozca a fondo los asuntos que le toca resolver. Que resuelva con empatía, siendo capaz de entender el sufrimiento de quienes han sido víctimas de una injusticia. Conservando la objetividad, el juez debe eliminar todas las trabas que los vicios del Poder Judicial han creado y que obstruyen el acceso a la justicia. Los jueces que emanarán de la elección popular deberán ser enteramente diferentes a los que hoy le cierran la puerta de la justicia al pueblo.
+- Un juez que resuelva con celeridad. La lentitud con la que hoy trabaja el Poder Judicial es desesperante para los ciudadanos que anhelan que se les haga justicia. En especial debe haber rapidez en tramitar los asuntos de los adultos mayores. Muchas veces, sabiendo que se trata de adultos mayores, los jueces propician y toleran el alargamiento de los juicios, provocando el desánimo en los justiciables, y en no escasas ocasiones resolviendo hasta que ya las personas han fallecido. Eso debe cambiar
+- Un juez que cuando haya mujeres, juzgue con perspectiva de género, comprendiendo la situación de desventaja en que la realidad ha colocado a las mujeres. Un juez que cuando haya personas con discapacidad, juzgue con perspectiva de personas con discapacidad, comprendiendo los obtáculos que enfrentan en la vida. Un juez que cuando haya adultos mayores, juzgue con perspectiva de adulto mayor. En suma, un juez que juzgue, tramite y resuelva con empatía, poniéndose en los zapatos de las personas.
+

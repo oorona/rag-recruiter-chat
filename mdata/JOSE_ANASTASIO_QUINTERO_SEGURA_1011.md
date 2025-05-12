@@ -1,0 +1,72 @@
+Nombre Candidato: JOSE ANASTASIO QUINTERO SEGURA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: HOMBRE
+Telefono: 3336776643
+Correo Electronico: jose.quintero@qvf.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: CONAMER, Capacitación, Código Procesal Civil, Derecho Civil, Derecho Mercantil, Derecho Procesal, Diplomado, Especialización., Maestría, Proceso Oral Mercantil, Reforma Procesal
+Tags Propósito: Acceso a la justicia, Certeza jurídica, Ciudadanía, Comunicación, Confianza, Derechos Humanos, Eficiencia, Homologación códigos, Imagen positiva., Justicia, Modernización, Plazos procesales, Poder Judicial, Proceso judicial, Protección derechos, Recursos, Resolución, Sentencia, Tecnología, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Anastasio Quintero Segura es candidato a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulándose desde el Poder Ejecutivo Federal. Cuenta con Maestría concluida y formación especializada en Derecho Civil y Mercantil, así como en procesos orales mercantiles, siendo además capacitador nacional en esta área.
+
+Su motivación para el cargo se basa en sus conocimientos, experiencia y vocación de servicio público dentro del Poder Judicial. Propone transparentar los procesos jurisdiccionales y armonizar los códigos procesales, modernizar la gestión judicial mediante herramientas tecnológicas y facilitar la comprensión de las resoluciones judiciales a través de comunicados claros y concisos para el ciudadano.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jose quintero segura
+- https://www.instagram.com/jose.quintero240774
+
+
+## Cursos
+
+- MAESTRANTE EN DERECHO CIVIL Y MERCANTIL POR EL INSTITUTO INTERNACIONAL DEL DERECHO Y EL ESTADO,DIPLOMADO EN DERECHO PROCESAL URBANISTICO,DIPLOMADO EN REFORMAS AL CODIGO NACIONAL DE PROCEDIMIENTOS CIVILES Y FAMILIARES,ESPECIALIZADO EN PROCESO ORAL MERCANTIL,CAPACITADOR NACIONAL DE PROCESO ORAL MERCANTIL, CERTIFICADO POR LA CONAMER
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55175/10
+
+
+## Trayectoria Academica
+
+- SOY CAPACITADOR A NIVEL NACIONAL DEL PROCESO ORAL MERCANTIL Y MAESTRANTE EN DERECHO CIVIL Y MERCANTIL
+
+
+## Motivo para buscar el Cargo Publico
+
+TENGO LOS CONOCIMIENTOS Y LA EXPERIENCIA PARA DESEMPEÑAR EL CARGO, Y VOCACION DE SERVICIO PUBLICO EN EL PODER JUDICIAL
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+IMAGINEMOS UN PODER JUDICIAL CERCANO A LA CIUDADANÍA, CON APERTURA, TRASPARENCIA Y COMUNICACIÓN CONSTANTE, QUE PERMITA AL JUSTICIABLE CONOCER SU PROCESO, CON UN DIALOGO COTIDIANO Y DE FÁCIL ENTENDIMIENTO, CON UNA VISIÓN AMPLIA DE LA PROTECCIÓN A LOS DERECHO HUMANOS, PERO SOBRE TODO, COMPROMETIDOS CON LA GENTE, A LA QUE CON TRABAJO ARDUO Y HONESTO LE PUEDO BRINDAR CERTEZA.
+
+
+## Vision sobre la Imparticion de Justicia
+
+EN ES
+
+
+## Propuestas
+
+- TRASPARENTAR LOS PROCESO JURISDICCIONALES EN TODAS SUS ETAPAS, ADEMÁS DE IMPULSAR LA HOMOLOGACIÓN LOS CÓDIGOS PROCESALES, RECURSOS Y MEDIOS DE DEFENSA, ASÍ COMO LA ARMONIZACION DE PLAZOS Y TÉRMINOS PROCESALES PARA MAYOR CERTEZA DEL JUSTICIABLE
+- HACER USO DE LAS HERRAMIENTAS TECNOLÓGICAS PARA AGILIZAR LOS PROCESOS, QUE DEJEN EVIDENCIA DE SU AVANCE Y SEAN MAS ACCESIBLES A LOS JUSTICIABLES, REORIENTANDO LOS RECURSOS ECONOMICOS Y HUMANOS DEL PODER JUDICIAL, PARA QUE LOS USUARIOS PUEDAN CONTAR CON INFORMACION OPORTUNA DE SUS PROCESOS, Y QUE CUENTE CON INFORMACIÓN OPORTUNA DE SU AVANCE, EFECTOS Y CONSECUENCIAS
+- QUE AL EMITIR LAS RESOLUCIONES, SE ACOMPAÑE UN COMUNICADO BREVE QUE INFORME DEL RESULTADO DEL FALLO EN FORMA COLOQUIAL Y DE FÁCIL COMPRENSIÓN, PARA QUE EL JUSTICIABLE PUEDA TENER INFORMACIÓN CERTERA Y COMPRENSIBLE EN EL QUE SE RAZONE EL RESULTADO DE LA SENTENCIA, PERMITIENDO CON ESTO QUE EL USUARIO TENGA CONFIANZA EN QUE EL PODER JUDICIAL ATENDIO TODAS SUS INQUIETUDES Y PROTEGIO TODOS SUS DERECHOS, PARA CON ELLO LOGRAR UNA IMAGEN POSITIVA DE LA FUNCION JURISDICCIONAL
+

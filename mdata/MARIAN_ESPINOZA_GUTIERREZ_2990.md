@@ -1,0 +1,76 @@
+Nombre Candidato: MARIAN ESPINOZA GUTIERREZ
+Cargo: Juezas/es de Distrito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2212508950
+Correo Electronico: marianespgtz@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogada, Benemérita Universidad Autónoma de Puebla, Congreso Internacional., Derechos Humanos, Igualdad de género, Juicio de amparo, Maestría, Violencia
+Tags Propósito: PJF, accesibilidad., apego a la ley, apoyo, constitución, derechos animales, derechos humanos, dinamismo, funcionarios judiciales, función judicial, juicios de amparo, justicia, modernización, oportunidades laborales, reciclaje, recursos, resolución de problemas, respeto, sentido social, sostenibilidad
+
+
+## Descripción del Candidato 
+
+Marian Espinoza Gutierrez es candidata a Jueza/es de Distrito en Puebla, postulándose a través del Poder Legislativo Federal. Abogada egada de la Benemérita Universidad Autónoma de Puebla y con estudios de maestría en Amparo y Derechos Humanos, cuenta con diversos cursos en temas de derechos humanos, juicio de amparo y perspectiva de género. 
+
+Su motivación para buscar el cargo público es servir a la ciudadanía con justicia, respeto y apoyo. Sus propuestas principales incluyen facilitar el acceso a oportunidades laborales en el Poder Judicial de la Federación (PJF), agilizar la resolución de juicios de amparo priorizando los derechos humanos y de los animales, y modernizar el uso de recursos en el PJF, promoviendo la sostenibilidad.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19nvcJXx7y/?mibextid=wwXIfr
+- https://x.com/mariankrz?s=21
+- https://www.instagram.com/marianespinozag?igsh=MXRqMmswc3hvaGdoMw3D3D&utm_source=qr
+- https://www.tiktok.com/@marianespinoza377?_t=ZM-8v6T6VxxadC&_r=1
+
+
+## Cursos
+
+- Diplomado en el juicio de amparo,Curso para generar espacios libres de violencia,Curso género como herramienta para la igualdad,1er
+- Congreso Internacional de Derechos Humanos, Puebla 2022
+- ,Diplomado en Derechos Humanos
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52884/11
+
+
+## Trayectoria Academica
+
+- Abogada por la Benemérita Universidad Autónoma de Puebla, maestrante en Amparo y Derechos Humanos
+
+
+## Motivo para buscar el Cargo Publico
+
+Soy una persona que aunque soy joven, conozco la función judicial, quiero servir al pueblo con justicia, respeto y apoyo
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Actividad para resolver problemas cotidianos de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actuar y resolver los problemas jurisdiccionales, con apego a la ley, a la Constitución y al sentido social.
+
+
+## Propuestas
+
+- Lograr que las oportunidades para trabajar en un órgano del PJF sean más accesibles para las personas.
+- Resolver los juicios de amparo en menor tiempo y de forma dinámica, sencilla y a favor de los derechos humanos y derechos de seres vivos, como los animales.
+- Modernizar el empleo de los recursos  y  para el menor desgaste de los funcionarios judiciales y menor gasto de insumos, priorizando el empleo de materiales reciclados y reciclables.
+

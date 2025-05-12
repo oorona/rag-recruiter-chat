@@ -1,0 +1,71 @@
+Nombre Candidato: CINDY ADRIANA TORRES ROMAN
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: OAXACA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: No proporcionó
+Estatus Escolaridad: No proporcionó
+Tags Educación: No proporcionó
+Tags Propósito: ausencia, carencia, desconocimiento, falta de propuestas, inacción, inexistencia, inexistencia de visión, nulo, silencio, vacío
+
+
+## Descripción del Candidato 
+
+Cindy Adriana Torres Roman es candidata a Magistratura de Tribunales Colegiados de Circuito en Oaxaca, postulándose a través del Poder Legislativo Federal. Es mujer y no proporcionó información de contacto ni detalles sobre su formación académica, trayectoria, motivaciones o propuestas para el cargo.
+
+Su estatus en la captura de información es actualmente "Sin captura".
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+No proporcionó
+
+
+## Trayectoria Academica
+
+- No proporcionó
+
+
+## Motivo para buscar el Cargo Publico
+
+No proporcionó
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+No proporcionó
+
+
+## Vision sobre la Imparticion de Justicia
+
+No proporcionó
+
+
+## Propuestas
+
+- No proporcionó
+- No proporcionó
+- No proporcionó
+

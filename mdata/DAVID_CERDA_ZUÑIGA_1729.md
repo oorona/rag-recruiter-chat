@@ -1,0 +1,74 @@
+Nombre Candidato: DAVID CERDA ZUÑIGA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8992197164
+Correo Electronico: davcer.ofi@outlook.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Derecho, Doctorado, Gestión Pública, Juicio de Amparo, Licenciatura., Maestría, Política Pública, Procedimientos Civiles y Familiares, SCJN, UNAM
+Tags Propósito: acceso a la justicia, cercanía, cultura jurídica, derechos humanos., deuda social, dignidad humana, eficiencia, humanismo, imparcialidad, inclusión, innovación, justicia, lenguaje comprensible, marginación, modernización, sensibilidad, tecnología, transparencia, vulnerabilidad
+
+
+## Descripción del Candidato 
+
+David Cerda Zúñiga es candidato a Magistratura de Tribunales Colegiados de Circuito en Tamaulipas, postulado por el Poder Ejecutivo Federal. Cuenta con estudios de Doctorado concluidos, además de Diplomados en Nuevo Código Nacional de Procedimientos Civiles y Familiares y en Juicio de Amparo. Su trayectoria académica incluye la Licenciatura en Derecho, una Maestría en Política y Gestión Pública, y actualmente cursa una segunda Maestría.
+
+Cerda Zúñiga busca el cargo para promover una nueva forma de impartir justicia más cercana a la ciudadanía. Su visión se centra en un servicio judicial basado en valores humanistas, honestidad, imparcialidad e inclusión, priorizando la escucha de las partes y la resolución efectiva de sus quejas. Sus propuestas incluyen una justicia más humana y sensible, innovadora y eficiente, y cercana al pueblo, enfocándose en la reparación de la deuda histórica con los sectores marginados y garantizando el acceso a la justicia para todos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://x.com/david_cerda19?s=11&t=QUWb-xXLb0NGMYDPmFuaBg
+- https://www.instagram.com/davidcerda_oficial?igsh=MXExempqenFmdzFqZA3D3D&utm_source=qr
+- https://www.tiktok.com/@davidcerdaoficial?_t=ZM-8v1hcTurWkg&_r=1
+
+
+## Cursos
+
+- Diplomado sobre Nuevo Código Nacional de Procedimientos Civiles y Familiares, por la UNAM en 2023
+- ,Diplomado Juicio de Amparo, impartido por la SCJN, a través de la Dirección General de Casas de la Cultura en 2022
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53191/10
+
+
+## Trayectoria Academica
+
+- Licenciado en Derecho; Maestría en Política y Gestión Pública; Doctorante en Derecho y Maestría en curso
+
+
+## Motivo para buscar el Cargo Publico
+
+Para trabajar por una nueva forma de impartir justicia, que sea más cercana.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El servicio judicial debe estar cimentado en los valores del humanismo, en la entrega permanente de una justicia honesta, imparcial e inclusiva; que se de el tiempo de escuchar los reclamos de las personas y resuelva todas las quejas y dudas para devolver la confianza de las personas a sus instituciones responsables de poner a salvo sus derechos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Es momento de una impartición de justicia que sea realmente imparcial, pero que, a la vez, tenga especial cuidado con los más vulnerables, garantizando el acceso efectivo a todas y todos, que no excluya a nadie; que desde la innovación y la modernidad, acorte los tiempos de quienes reclaman consideración a sus causas justas. Una justicia sin privilegios y de puertas abiertas: una justicia que ponga al centro de sus decisiones el valor de la persona y su dignidad humana.
+
+
+## Propuestas
+
+- Justicia más humana y sensible, disponiendo del tiempo necesario para que todas las personas puedan ser escuchadas y atendidas. Que nunca más alguien se sienta abandonado por quienes son responsables de impartir justicia.
+- Justicia innovadora y eficiente, que impulse la promoción de una cultura jurídica en un lenguaje comprensible para todas y todos, en donde las herramientas tecnológicas faciliten la cercanía con los usuarios, y reduzca los tiempos de los procesos jurisdiccionales.
+- Justicia cercana al pueblo, que salga al encuentro de todos los sectores, que no se encierre en los tecnicismos jurídicos, que repare la deuda con los que históricamente han sido marginados por cualquier condición social, económica, política o religiosa.
+

@@ -1,0 +1,74 @@
+Nombre Candidato: MARCELA AGUILAR LORANCA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: PUEBLA
+Sexo: MUJER
+Telefono: 2212597172
+Correo Electronico: marcelafdz59@mail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Amparo, Derecho, Derecho Constitucional, Diplomado., Doctorado, Espacios libres de violencia, Función Judicial, Igualdad de Género, Inteligencia Artificial, Investigación Jurídica, Maestría, Seguridad Pública, Sistema Penal Acusatorio
+Tags Propósito: acceso a la justicia, capacitación, ciudadanía, democracia, derechos humanos, desarrollo social, eficiencia, estado de derecho, imparcialidad, independencia, justicia, modernización, paz, responsabilidad, sensibilidad social, sistema judicial., tecnología, transparencia, ética
+
+
+## Descripción del Candidato 
+
+Marcela Aguilar Loranca es candidata a Magistratura de Tribunales Colegiados de Circuito en Puebla, postulando desde el Poder Judicial de la Federación. Cuenta con estudios de Maestría en Derecho Constitucional y Amparo, actualmente cursando el Doctorado en Investigación Jurídica. Su trayectoria académica y profesional, junto con su vocación, la motivan a buscar el cargo.
+
+Su visión de la función jurisdiccional se centra en la independencia, imparcialidad y apego a los principios constitucionales, buscando un acceso efectivo a la justicia y la protección de los derechos humanos. Sus propuestas incluyen la capacitación continua del personal, el uso de herramientas tecnológicas en el trámite y resolución de asuntos, y un acercamiento a la ciudadanía.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+https://sites.google.com/view/marcelaaguilar?usp=sharing
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1KjmM18j5W/
+- https://x.com/marcelaaguilarl?s=11&t=YJw1BW8BLEJuWziU_5WzvA
+- https://www.instagram.com/abogadamarcelaaguilar?igsh=MWhsbmgyYmUxbXpmcA==
+- https://www.tiktok.com/@marcela.aguilar45?_t=ZM-8udUJaj86jt&_r=1
+
+
+## Cursos
+
+- Diplomado en Sistema Penal Acusatorio por la Escuela Federal de Formación Judicial,Diplomado en Seguridad Pública por la Escuela Libre de Derecho,Curso para generar espacios libres de violencia, por la Escuela de Formación Judicial,Descubriendo nuevas posibilidades: La Inteligencia Artificial en la Función Judicial, por la Escuela de Formación Jud,Género como herramienta para la igualdad, por la Escuela de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52200/10
+
+
+## Trayectoria Academica
+
+- Licenciada en Derecho, maestra en Derecho Constitucional y Amparo; doctorando en Investigación Jurídica
+
+
+## Motivo para buscar el Cargo Publico
+
+Por vocación, preparación profesional y experiencia en el ámbito jurídico; responsabilidad, ética y sensibilidad social.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ejercer la función jurisdiccional con independencia, imparcialidad y apego a los principios constitucionales, garantizando el acceso efectivo a la justicia, la protección de los derechos humanos y el combate al rezago judicial. Mi misión es contribuir a un Poder Judicial moderno, eficiente, transparente y cercano a la ciudadanía, que actúe como verdadero garante del Estado de Derecho.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Que se conciba como un servicio público esencial orientado a garantizar el acceso equitativo, transparente y eficaz a la justicia, mediante resoluciones imparciales, la protección de los derechos fundamentales, para la consolidación del Estado de derecho. Consolidarse como un sistema confiable, cercano a la ciudadanía, independiente y profesional, que contribuya activamente al desarrollo de una sociedad más justa, democrática y en paz.
+
+
+## Propuestas
+
+- Capacitación continua y especialización del personal.
+- Uso de las herramientas Tecnológicas, en el trámite y resolución de los asuntos.
+- Cercanía con la ciudadanía.
+

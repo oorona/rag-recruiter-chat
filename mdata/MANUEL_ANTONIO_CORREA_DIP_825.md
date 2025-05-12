@@ -1,0 +1,75 @@
+Nombre Candidato: MANUEL ANTONIO CORREA DIP
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: 5529173063
+Correo Electronico: manuel.correadip@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Constitucional, Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado, Especialista, Formación Judicial, Género, Juicio de Amparo, Maestro, SCJN, Seminario.
+Tags Propósito: acceso, agilidad, bienestar, claridad, confianza, corrupción, derechos, dignidad, eficiencia, humanidad, igualdad, impunidad, justicia, justicia social, lenguaje sencillo., paz, protección, pueblo, resolución, transparencia, vulnerabilidad, víctimas
+
+
+## Descripción del Candidato 
+
+MANUEL ANTONIO CORREA DIP es candidato a Magistratura de Tribunales Colegiados de Circuito dentro del Poder Judicial de la Federación, Ciudad de México. Cuenta con Maestría en Derecho y amplia formación especializada en Derecho Procesal Penal y Constitucional, incluyendo diplomados y cursos impartidos por la Suprema Corte de Justicia de la Nación. Su trayectoria académica y profesional se enfoca en el ámbito jurídico penal.
+
+El candidato expresa su motivación para buscar el cargo como una oportunidad para poner su experiencia al servicio de la población, especialmente de los grupos vulnerables. Su visión de la función jurisdiccional y la impartición de justicia se centra en una justicia cercana, ágil y accesible, con sentencias claras y comprensibles, priorizando la resolución del fondo de los casos y erradicando la corrupción e impunidad. Sus propuestas incluyen agilizar los procesos, centrarse en la resolución efectiva de los conflictos y garantizar una justicia social que proteja a las víctimas y grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/19agcPcXa7/?mibextid=wwXIfr
+- https://x.com/manuelcorreadip?s=21&t=6EvH02xqgWgZaa-oCytR9Q
+- https://www.instagram.com/manuelcorrea.dip?igsh=MzFvZndjYjE5MDZt&utm_source=qr
+- https://www.tiktok.com/@manuelcorrea.dip?_t=ZM-8v3CoyVlyNC&_r=1
+
+
+## Cursos
+
+- Curso: Género y Derecho Penal, impartido por la Escuela Federal de Formación Judicial,Especialidad en Derecho Procesal Penal Acusatorio,Diplomado Juicio de Amparo, impartido por la Suprema Corte de Justicia de la Nación,Diplomado La Suprema Corte y los Derechos Humanos, impartido por la Suprema Corte de Justicia de la Nación,Seminario: Los jueces sin Rostro en el Marco Constitucional Actual, impartido por la SCJN
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52849/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho, Especialista y Maestro en Derecho Procesal Penal y Constitucional; Diplomados y Cursos por la SCJN
+
+
+## Motivo para buscar el Cargo Publico
+
+No es por el cargo, es para poner toda mi experiencia al servicio del pueblo y de quienes menos tienen.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La justicia no debe estar encerrada en papeles, debe estar en las calles, en manos de quienes la necesitan, especialmente de las víctimas y grupos vulnerables. Mi visión es una justicia cercana y ágil, que garantice la protección de los derechos de todos, no sólo de unos cuantos. Que la ley sirva como escudo para el pueblo y que cada resolución ayude a recuperar la confianza en el Poder Judicial.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Dicen que la justicia debe ser ciega, pero no puede ser sorda al dolor y las necesidades del pueblo. La impartición de justicia no debe ser un lujo ni un favor, debe ser un derecho accesible para todos, especialmente para quienes menos tienen. Mi visión es una justicia que escuche de verdad y que proteja a cada persona con humanidad. Que cada resolución lleve justicia a las víctimas y acerque al pueblo cada vez más a la igualdad y a la paz.
+
+
+## Propuestas
+
+- Una justicia ágil, con sentencias claras y comprensibles para todos. La justicia debe ser por y para el pueblo, sin tecnicismos, ni elitismos. Mi compromiso es, que cada resolución sea justa, explicada de forma transparente, con lenguaje claro y sencillo. Las resoluciones judiciales deben ser una herramienta que devuelva la confianza en el sistema judicial, a partir de las cuales se demuestre que la justicia, está al servicio de todas las personas, especialmente de quienes menos tienen.
+- La justicia debe centrarse en lo que realmente importa: resolver el fondo de cada caso, y no perderse en detalles formales que solo retrasan las resoluciones. El pueblo de México necesita decisiones rápidas y efectivas que respondan a su dolor y sus necesidades. Mi compromiso será dar prioridad a la resolución de fondo de los conflictos, asegurando que cada sentencia sea un paso más hacia la paz y el bienestar.
+- Mi compromiso es trabajar para mejorar el sistema de justicia en beneficio del pueblo. Erradicar la corrupción, el nepotismo y la impunidad es clave para que nunca más los inocentes paguen por crímenes que no cometieron. La justicia debe llegar rápido a quienes más lo necesitan, especialmente a las víctimas y a los grupos vulnerables como mujeres, niñas, niños, adolescentes y adultos mayores. Enfocado siempre en una justicia que garantice igualdad, dignidad y justicia social para todos.
+

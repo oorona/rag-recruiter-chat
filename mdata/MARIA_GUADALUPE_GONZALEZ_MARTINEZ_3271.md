@@ -1,0 +1,74 @@
+Nombre Candidato: MARIA GUADALUPE GONZALEZ MARTINEZ
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: alondramarielagonzalez@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Título profesional
+Tags Educación: Argumentación, Doctorado, IETAM, Instituciones Públicas., Jurisdiccional, Lenguaje Ciudadano, Materia Penal Electoral, Protección de Datos Personales, Redacción, SRE, TRIELTAM, US University
+Tags Propósito: Acceso a la justicia, Confianza ciudadana, Derechos fundamentales, Eficiencia judicial, Igualdad, Imparcialidad, Justicia equitativa, Libertad., Optimización de recursos, Participación ciudadana, Procedimientos judiciales, Rendición de cuentas, Resolución de conflictos, Sociedad justa, Tecnologías judiciales, Transparencia
+
+
+## Descripción del Candidato 
+
+MARIA GUADALUPE GONZALEZ MARTINEZ es candidata a Juezas/es de Distrito en Tamaulipas, postulándose desde el Poder Legislativo Federal. Cuenta con licenciatura y estudios de doctorado emitidos por la US University en Monterrey, Nuevo León, además de cursos en protección de datos personales, trabajo jurisdiccional, redacción, argumentación y materia penal electoral. Su trayectoria profesional incluye experiencia en la SRE, el IETAM y actualmente en el TRIELTAM.
+
+La candidata expresa compromiso con la transparencia, honestidad y rendición de cuentas. Su visión para la función jurisdiccional y la impartición de justicia se centra en garantizar el acceso justo y equitativo a la justicia, la aplicación imparcial de la ley, y la resolución de conflictos sin distinción. Sus propuestas incluyen mejorar la calidad de la justicia mediante tecnología y procedimientos, fortalecer la transparencia y rendición de cuentas, y promover el acceso a la justicia con programas y participación ciudadana.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573436660068
+- https://x.com/MaraGua29436754
+- https://www.instagram.com/alo_mariely/?next=2F
+- https://www.tiktok.com/@lupita.glz520?_t=ZM-8uxQWbKCVHh&_r=1
+
+
+## Cursos
+
+- DOCTORADO   EMITIDO POR LA US UNIVERSITY, EN MONTERREY NUEVOLEON,SEMINARIO EN MATERIA DE PROTECCIÓN DE DATOS PERSONALES EN ASUNTOS JURISDICCIONALES,CURSO SOBRE TRABAJO JURISDICCIONAL, TERCERA EDICIÓN,REDACCIÓN, ARGUMENTACIÓN Y CONSTRUCCION DE TEXTOS EN LENGUAJE CIUDADANO,SEMINARIO DE ACTUALIZACIÓN EN MATERIA PENAL ELECTORAL
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53091/11
+
+
+## Trayectoria Academica
+
+- Me he desempeñado en instituciones públicas como lo son la SRE, el IETAM y actualmente en el TRIELTAM
+
+
+## Motivo para buscar el Cargo Publico
+
+Estoy comprometida con la transparencia, honestidad y la rendición de cuentas, y estoy dispuesta a trabajar arduamente.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión es garantizar un acceso justo y equitativo, fortaleciendo la confianza de la ciudadanía en el sistema judicial mediante la aplicación imparcial y transparente de la ley. Asimismo, la resolución de conflictos de manera justa sin distinción de género, raza, religión, condición social o económica. Del mismo modo, optimizando los recursos y procedimientos para garantizar resoluciones rápidas y efectivas de los conflictos.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Impartir justicia de manera imparcial, transparente y eficiente, garantizando que toda la ciudadanía cuente con acceso a un procedimiento justo y equitativo. Además, resolver los conflictos de manera pacifica y justa protegiendo los derechos y libertades fundamentales de las partes involucradas, contribuyendo así a la construcción de una sociedad más justa, sin perjuicios ni influencias externas sobre los procedimientos y decisiones judiciales.
+
+
+## Propuestas
+
+- Mejorar la calidad de la justicia: Implementar procedimientos y tecnologías para mejorar la eficiencia y eficacia de la justicia.
+- Fortalecer la transparencia y rendición de cuentas: Proporcionar información clara y accesible sobre los procedimientos y decisiones judiciales.
+- Promover el acceso a la justicia: Implementar programas y servicios para garantizar que todos los ciudadanos tengan acceso a un proceso justo y equitativo, fomentando la participación ciudadana creando mecanismos para que la comunidad participe.
+

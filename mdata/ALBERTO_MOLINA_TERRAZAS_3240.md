@@ -1,0 +1,74 @@
+Nombre Candidato: ALBERTO MOLINA TERRAZAS
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: 8341459679
+Correo Electronico: molinas_t@live.com.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Ciencias Sociales, Derecho, Educación Superior, Egresado, Generación, UAT
+Tags Propósito: Análisis Jurídico, Claridad, Eficiencia, Equidad, Justicia, Leyes.
+
+
+## Descripción del Candidato 
+
+Alberto Molina Terrazas es candidato a Juez/a de Distrito en Tamaulipas, postulado por el Poder Legislativo Federal. Es Licenciado en Derecho, egresado de la Facultad de Derecho y Ciencias Sociales de la UAT. Su motivación para buscar el cargo público es un anhelo personal.
+
+Su visión sobre la función jurisdiccional se centra en el análisis de las leyes desde una perspectiva de justicia, buscando una impartición justa y equitativa. Sus propuestas incluyen un análisis jurídico riguroso, dedicar el tiempo necesario a cada caso y una comunicación clara. Para más detalles sobre su trayectoria, se puede consultar su curriculum vitae en: https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53873/11
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- No proporcionó
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53873/11
+
+
+## Trayectoria Academica
+
+- EGRESADO DE LA FACULTAD DE DERECHO Y CIENCIAS SOCIALES, U
+- A
+- T
+- DE LA GENERACIÓN
+
+
+## Motivo para buscar el Cargo Publico
+
+ANHELO PERSONAL
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+ANALISÍS DE LAS LEYES DESDE UNA PERSPECTIVA DE JUSTICIA
+
+
+## Vision sobre la Imparticion de Justicia
+
+JUSTA Y EQUITATIVA
+
+
+## Propuestas
+
+- ANALISÍS JURIDICO
+- NO TOMAR MÁS QUE EL TIEMPO NECESARIO
+- SER CLARO
+

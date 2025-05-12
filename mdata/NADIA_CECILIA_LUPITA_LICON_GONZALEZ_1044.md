@@ -1,0 +1,79 @@
+Nombre Candidato: NADIA CECILIA LUPITA LICON GONZALEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: JALISCO
+Sexo: MUJER
+Telefono: 3317082234
+Correo Electronico: nadia.cecilia.candidata@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Abogado, Actualización Legislativa, Amparo., CUCSH, Crecimiento Humano, Derecho Internacional Humanitario, Educación Superior, Especialización Judicial, Institucional, Ley de Amparo, Maestría Constitucional, Materia Administrativa, Reformas Fiscales, UdeG, Violencia Laboral, Violencia de Género
+Tags Propósito: Accesibilidad, Cambio, Diálogo respetuoso, Experiencia, Imparcialidad, Independencia, Justicia, Necesidades sociales, Objetividad, Principios constitucionales, Problemas sociales., Profesionalismo, Resolución, Resultados, Sensibilidad social, Sentencias breves, Sentencias claras, Tiempos de respuesta, Valores, Visión
+
+
+## Descripción del Candidato 
+
+Nadia Cecilia Lupita Licon Gonzalez es candidata a Magistratura de Tribunales Colegiados de Circuito en Jalisco, postulada por el Poder Legislativo Federal. Cuenta con Maestría en Derecho Constitucional y Amparo por la Universidad de Guadalajara (UdeG), donde también realizó su licenciatura en Derecho. Su trayectoria académica se complementa con diversos cursos de especialización en áreas como derecho judicial, legislación, derecho internacional humanitario, y reformas fiscales.
+
+La candidata expresa su motivación para el cargo como agente de cambio en la impartición de justicia, destacando su sensibilidad a las necesidades sociales y su enfoque en resultados. Su visión se centra en una función jurisdiccional objetiva, imparcial, profesional e independiente, con sentencias claras y tiempos de respuesta reducidos para facilitar el acceso a la justicia. Sus propuestas incluyen la sensibilización ante los problemas nacionales, mantener un acceso abierto a la atención de quienes buscan justicia y la reducción de tiempos en la emisión de sentencias.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/nadialicon
+- https://www.x.com/NadiaLiconG
+- https://www.instagram.com/nadialicon
+
+
+## Cursos
+
+- Curso de Especialización Judicial y Actualización Legislativa
+- Módulo Materia Administrativa
+- Reformas Fiscales
+- ,Primer Seminario de Derecho Internacional Humanitario
+- ,Sensibilización para la prevención y erradicación de las violencias laborales y por razón de género
+- ,Seminario de Reformas Fiscales y Virtual Diálogos para la Instrumentación de la Nueva Ley de Amparo
+- ,Diplomado Impulso al Crecimiento Humano e Institucional
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54263/10
+
+
+## Trayectoria Academica
+
+- Educación Superior en la Carrera Abogado en UdeG, Campus CUCSH y Posgrado con Maestría Constitucional y Amparo en UdeG
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque soy agte de cambio en la impartición de justicia para todxs, soy sensible a necesidades sociales y doy resultados
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Mi visión se basa en el compromiso con los valores y el respeto a los principios constitucionales. La función jurisdiccional debe ejercerse con objetividad, imparcialidad, profesionalismo e independencia. Es fundamental escuchar y resolver con sensibilidad social, elaborando sentencias claras y breves que sean comprensibles para toda la sociedad, reduciendo los tiempos de respuesta para lograr un México con mayor acceso a la justicia.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Al impartir justicia, es esencial vigilar y cumplir con los principios constitucionales y actuar con sensibilidad social. Se deben emitir sentencias breves y claras que sean entendibles para todas las personas y dictadas en un tiempo razonable. El proceso debe llevarse a cabo con puertas abiertas para escuchar y atender a quienes buscan justicia, manteniendo un diálogo respetuoso con los compañeros y aportando conocimientos y experiencia al momento de emitir resoluciones.
+
+
+## Propuestas
+
+- Sensibilización ante los problemas que enfrenta el país.
+- Puertas abiertas para que todo el personal jurisdiccional escuche y atienda a quienes buscan justicia.
+- Reducción en los tiempos para la emisión de las sentencias.
+

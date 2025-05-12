@@ -1,0 +1,76 @@
+Nombre Candidato: LUZ MARIA ZARZA DELGADO
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: MUJER
+Telefono: 5523035669
+Correo Electronico: zarzadelgadoluz@gmail.com
+Numero de lista en boleta: 33
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización Abogados, Actualización Jurídica, Comercio Internacional, Doctorado, Estudios Públicos, Formación Continua., Justicia Electoral, Países en Vías de Desarrollo, Promedios Altos, Prácticas Desleales, Roma, Salamanca
+Tags Propósito: Acceso a la Justicia, Carrera Judicial, Certeza Jurídica, Derechos Constitucionales, Digitalización de Justicia, Equidad, Estado de Derecho, Honestidad, Imparcialidad, Justicia, Poder Judicial, Presupuesto, Profesionalización, Pronitud., Reforma Estructural, Rendición de Cuentas, Transparencia, Tribunales Especializados, Violencia de Género, Ética Judicial
+
+
+## Descripción del Candidato 
+
+LUZ MARIA ZARZA DELGADO es candidata al Poder Legislativo Federal, postulándose desde la Suprema Corte de Justicia de la Nación (número 33 en la boleta). Cuenta con un doctorado y cédula profesional, habiendo realizado la mayoría de sus estudios en instituciones públicas. Su trayectoria académica incluye cursos de actualización jurídica en España e Italia, así como especialización en Justicia Electoral.
+
+La candidata manifiesta su motivación para buscar el cargo como un factor de cambio en el Poder Judicial, enfocándose en defender los derechos constitucionales y acercar la ley a la ciudadanía. Sus propuestas incluyen fortalecer la erradicación de la violencia de género en el ámbito judicial, consolidar una carrera judicial basada en la honestidad y profesionalización, y revisar el presupuesto del Poder Judicial para garantizar la transparencia y el uso eficiente de los recursos.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/zarzaluzmaria
+- https://x.com/zarzaluzmaria
+- https://instagram.com/zarzaluzmaria
+
+
+## Cursos
+
+- Curso de Actualización Jurídica en Salamanca, España
+- ,Curso de Actualización para Abogados de Países en Vías de Desarrollo en Roma, Italia
+- ,Seminario de Prácticas Desleales de Comercio Internacional
+- ,Especialidad en Justicia Electoral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/41/6
+
+
+## Trayectoria Academica
+
+- Realicé la mayoría de mis estudios en instituciones públicas con altos promedios, ininterrumpidamente hasta el doctorado
+
+
+## Motivo para buscar el Cargo Publico
+
+Seré factor de cambio del Poder Judicial. Soy abogada con sólidas capacidades profesionales, cercana al pueblo de México
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Defender los derechos consagrados en la Constitución, la justicia y acercar las leyes a todas y todos los mexicanos, desde mi responsabilidad como Ministra de la SCJN
+
+
+## Vision sobre la Imparticion de Justicia
+
+Debe ser llevada a cabo con estrictos niveles de profesionalismo, honestidad, equidad y prontitud. De ello depende la certeza jurídica, el estado de Derecho y la sensación de justicia de cada una de las personas.
+
+
+## Propuestas
+
+- Mujeres e impartición de justicia: El Poder Judicial debe asumir un papel más activo en la erradicación de la violencia de género, con medidas que aseguren la capacitación obligatoria, la creación de tribunales especializados, la digitalización de acceso a la justicia, transparencia y rendición de cuentas. Sólo una reforma estructural profunda puede garantizar una justicia efectiva, accesible y libre de discriminación para todas las mujeres en México.
+- La consolidación de la carrera judicial basada en la honestidad, profesionalización e imparcialidad, es esencial para fortalecer el estado de derecho en México. Las acciones incluyen: evaluaciones constantes en materia de ética y valores judiciales, certificaciones obligatorias del cargo para poder participar en los exámenes de oposición para cargos superiores, publicación de criterios de selección, resultados y evaluaciones disciplinarias y mecanismos alternativos de solución de controversias.
+- Revisar el presupuesto del Poder Judicial. Los mexicanos tendrán más tranquilidad cuando sepan en qué se están ejerciendo los recursos y cómo se reflejan en la justicia del pueblo. Este análisis dará también certidumbre al personal del Poder Judicial y nos ayudará a explicar las necesidades materiales a los poderes Ejecutivo y Legislativo.
+

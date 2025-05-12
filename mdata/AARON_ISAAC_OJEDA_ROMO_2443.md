@@ -1,0 +1,74 @@
+Nombre Candidato: AARON ISAAC OJEDA ROMO
+Cargo: Juezas/es de Distrito
+Entidad: GUANAJUATO
+Sexo: HOMBRE
+Telefono: 4611173241
+Correo Electronico: sigfridasgard@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Ciencias Jurídico Penales, Derechos Humanos, Formación Secretarios., Instituto de la Judicatura Federal, Juicio de Amparo, Poder Judicial de la Federación, Teoría General del Proceso, UNITEC
+Tags Propósito: Acceso a la justicia, Ciudadanía, Compromiso social, Confianza, Derechos humanos, Dignidad, Empatía, Escucha, Honestidad, Igualdad, Imparcialidad, Justicia, Juzgador cercano, Necesidades ciudadanas., Objetividad, Protección de derechos, Seguridad jurídica, Sentencias humanitarias, Servir
+
+
+## Descripción del Candidato 
+
+Aaron Isaac Ojeda Romo es candidato a Juez/a de Distrito en Guanajuato, postulándose a través del Poder Judicial de la Federación. Cuenta con maestría en Ciencias Jurídico Penales y ha realizado diversos cursos de especialización en temas como Derechos Humanos, Juicio de Amparo y formación para Secretarios del Poder Judicial de la Federación. 
+
+Su motivación para buscar el cargo se centra en el servicio público y lograr una justicia accesible para todos. Su visión se orienta hacia un sistema de justicia empático, sensible y cercano a la ciudadanía, enfocado en la protección de los derechos humanos y en recuperar la confianza en el sistema judicial mexicano. Sus propuestas incluyen ser un juzgador cercano a la gente, asegurar el pleno goce de los derechos y libertades, y velar por los derechos de los más necesitados, actuando con honestidad e imparcialidad.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61573766840554
+- https://www.instagram.com/aaronisaac_ojeda.romo/profilecard/?igsh=aGJ2anZ6czEwc2U3
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos por la Universidad IBEROAMERICANA
+- ,Maestría en Ciencias Jurídico Penales por la Universidad Centro del Bajío
+- ,Curso Nociones Generales del Juicio de Amparo por el Instituto de la Judicatura Federal,Curso Básico Formación y Preparación Secretarios del Poder Judicial de la Federación por el Instituto Judicatura Federa,Curso de Teoría General del Proceso impartido por el Instituto de la Judicatura Federal
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54057/11
+
+
+## Trayectoria Academica
+
+- Egresado de la UNITEC, Maestría en Ciencias Jurídico Penales, Curso de Secretarios del Poder Judicial de la Federacion
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi responsabilidad es servir, si soy elegido por las personas daré mi mayor esfuerzo para lograr una justicia para todos
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Ser un juez capaz y honesto, con conocimientos, experiencia profesional y compromiso social, que tenga el sentido de servicio para ver las necesidades de los ciudadanos y de los más necesitados. Un juez con alto grado de sensibilidad y cerca de la gente para llevar a cabo la función de manera justa y con vocación de servir a la ciudadanía con la finalidad de proteger los derechos de todos. Que las personas recobren la confianza en el sistema de justicia mexicano.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actuar con empatía y sensibilidad, reconociendo la dignidad de las personas, sus derechos y necesidades para que con esto se logre una sociedad más justa e igualitaria, que sea respetuosa de los derechos humanos, y los profesionales que nos dedicamos a impartir justicia atendamos las desigualdades y se dicten sentencias basadas no solo en las leyes de manera fría, sino desde una visión humanitaria y que las personas queden convencidas de que se les escuchó y atendió con la importancia debida.
+
+
+## Propuestas
+
+- Me comprometo a que cambie la percepción que tienen las personas del sistema de justicia, al convertirme en un juzgador cercano a la gente, con empatía y sensibilidad, escuchando las necesidades de los ciudadanos a fin de atenderlas, y que sientan que se les hizo justicia verdadera.
+- Que se vea un cambio verdadero de las personas que habitan en este país, que cuando salgan a la calle estén convencidas de que gozan de todos sus derechos y libertades. Esto se logrará al tener juzgadores comprometidos con la sociedad y con los mas necesitados, a fin de que se sientan seguros y que sus derechos estarán bien salvaguardados.
+- Ser un juzgador cercano a la cercano a la ciudadanía, y que sepan que siempre velaré por sus derechos y libertades, como si los de ellos fueran los míos, siempre volteando a ver a los que más necesitan justicia, y que poco a poco la nación vuelva a sentir la confianza en el sistema de justicia de México, lo que se logrará siendo un juzgador honesto, imparcial y objetivo.
+

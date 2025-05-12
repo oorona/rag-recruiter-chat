@@ -1,0 +1,79 @@
+Nombre Candidato: MARIA DEL SOCORRO FERNANDEZ HERNANDEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: COAHUILA
+Sexo: MUJER
+Telefono: No proporcionó
+Correo Electronico: msocofdz02@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Coahuila., Consejo de la Judicatura Federal, Euroinnova Formación, Instituto de la Judicatura Federal, Ley de Amparo, Licenciatura en Derecho, Oralidad Mercantil, Procedimientos Civiles y Familiares, Universidad Anáhuac, Universidad Autónoma de Coahuila, Violencia de Género
+Tags Propósito: Acceso a la justicia, Cercanía con ciudadanos., Confianza ciudadana, Crecimiento profesional, Derechos humanos, Diálogo, Empatía, Equidad, Experiencia, Generaciones, Honestidad, Imparcialidad, Impartición de justicia, Jóvenes profesionistas, Legalidad, Oportunidades laborales, Poder Judicial, Política pública, Reconocimiento, Renovación, Seguridad jurídica, Supervisión, Transparencia, Visión humanitaria
+
+
+## Descripción del Candidato 
+
+MARIA DEL SOCORRO FERNANDEZ HERNANDEZ es candidata a Magistratura de Tribunales Colegiados de Circuito en Coahuila, postulada por el Poder Ejecutivo Federal. Cuenta con licenciatura en Derecho y cédula profesional. Su trayectoria académica incluye estudios en la Universidad Autónoma de Coahuila y diversos diplomados en áreas como argumentación jurídica, intervención con víctimas de violencia de género, Ley de Amparo, Código Civil y Familiar, y oralidad mercantil.
+
+Su motivación para buscar el cargo es contribuir con su experiencia al mejor desarrollo de la impartición de justicia. Su visión se centra en fortalecer el sistema judicial, empoderar a jóvenes profesionales, promover el diálogo para mejorar el acceso a la justicia, y ejercer la función jurisdiccional con equidad, legalidad, transparencia y, especialmente, empatía y respeto a los derechos humanos. Sus propuestas incluyen mejorar el acceso para jóvenes egresados, aprovechar la experiencia de profesionales retirados en la formación de nuevas generaciones, y fomentar la cercanía con los ciudadanos para recuperar la confianza en el Poder Judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/profile.php?id=61574060833292
+- https://x.com/SocorroFdzHdz
+- https://www.instagram.com/socorrofdzhdz/
+- https://www.tiktok.com/@socorrofdzhdz?lang=es
+
+
+## Cursos
+
+- Diplomados en Argumentación Jurídica; Universidad Anáhuac México Norte, coordinación con Consejo Judicatura Federal,Diplomado sobre Intervención con Mujeres Víctimas de Violencia de Género; Euroinnova Formación, S
+- L
+- ,Curso sobre la Ley de Amparo Reformada; Instituto de la Judicatura Federal, extensión Saltillo
+- ,Diplomado sobre Código Nacional de Procedimientos Civiles y Familiares
+- Instituto de Especialización Judicial Coahuila,Diplomado sobre Oralidad Mercantil
+- Instituto de Especialización Judicial Coahuila
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52937/10
+
+
+## Trayectoria Academica
+
+- Cursé la licenciatura en derecho en la Facultad de Jurisprudencia, de la Universidad Autónoma de Coahuila
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque deseo contribuir con mi experiencia y conocimiento, al mejor desarrollo de la impartición de justicia.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Deseo contribuir a su mejora y fortalecimiento, impulsar a profesionistas jóvenes e impetuosos que merecen también algún lugar para adquirir mayor experiencia y conocimientos, empatar generaciones para renovar de modo más eficaz y humanitario el sistema judicial que el pueblo requiere. Tal vez sea tiempo de crear nuevas instancias de diálogo y política pública de acceso a la justicia, brindando a los ciudadanos mayor cercanía con las instituciones, de modo que recobren su confianza en ellas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de justicia es una de las funciones más nobles y admirables; requiere requiere ser ejercida bajo principios relacionados con la equidad, la legalidad, la seguridad jurídica, la imparcialidad, la honestidad, la transparencia, entre otros. Ahora, dados los últimos acontecimientos, creo que es indispensable que se ejerza con mucha más empatía y visión humanitaria, privilegiando con mayor ahínco los derechos humanos de las personas y que conozcan más de cerca esta noble función.
+
+
+## Propuestas
+
+- Mejorar el acceso para jóvenes egresados, velar porque su preparación sea más efectiva, el reconocimiento de sus logros o méritos, supervisar en la medida de lo posible que se les brinden oportunidades de trabajo y crecimiento, acorde siempre a su esfuerzo.
+- Aprovechar la amplia experiencia de aquellos titulares retirados que deseen seguir de algún modo vigentes y compartir sus conocimientos con las generaciones jóvenes, que sea la vieja escuela la encargada de preparar a estas nuevas generaciones de profesionistas, de ese modo se empataría experiencia y juventud, y se reconocería a ambos sus méritos y sus respectivas labores.
+- Seguir impartiendo justicia con imparcialidad, rectitud y honestidad. Fomentar la cercanía con los ciudadanos, de manera que conozcan más de cerca todo lo que implica la función jurisdiccional, procurando espacios donde puedan ser mayormente escuchados, buscando con todo ello recobrar la confianza en una institución tan loable, como ha sido el Poder Judicial de la Federación.
+

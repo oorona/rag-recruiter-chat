@@ -1,0 +1,76 @@
+Nombre Candidato: MARIA DEL CARMEN ESTRADA VAZQUEZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: HIDALGO
+Sexo: MUJER
+Telefono: 7717120744
+Correo Electronico: carmenestradavazquez@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Amparo, Derecho Civil, Derecho Constitucional, Derecho Penal, Educación Judicial, Género, Igualdad, Instituto Iberoamericano de Derecho Penal., Instituto de la Judicatura Federal, Licenciatura, Maestría, Protección de Datos Personales, Transparencia, Universidad del Valle de México, Violencia
+Tags Propósito: Acceso a la justicia, Análisis jurídico., Comunicación, Confianza judicial, Digitalización, Eficacia, Eficiencia judicial, Igualdad, Medio ambiente, Modernización, Protección de derechos, Servicio público, Simplificación, Transparencia
+
+
+## Descripción del Candidato 
+
+MARIA DEL CARMEN ESTRADA VAZQUEZ es candidata a Magistratura de Tribunales Colegiados de Circuito, postulada por el Poder Ejecutivo Federal para el estado de Hidalgo. Cuenta con Maestría en Derecho Civil y una trayectoria en el servicio público. Su motivación para buscar el cargo se basa en su formación y conocimiento de las necesidades del sistema judicial.
+
+Su visión para la función jurisdiccional incluye una reestructuración para facilitar el acceso a la justicia a todos los ámbitos sociales y recuperar la confianza en el Poder Judicial de la Federación. Sus propuestas principales son la digitalización de trámites, un mayor acercamiento a los justiciables con comunicación clara y un acompañamiento en los procesos, y la redacción de sentencias más fluidas y comprensibles, evitando tecnicismos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/mariadelcarmenestradavazquez1
+- https://x.com/carmen143763169?s=11&t=imABrZUr4K5GpTkPbNpWkQ
+- https://www.instagram.com/mariadelcarmenestradavazquez/profilecard/?igsh=dTE4YTRndTc2cDVt
+- https://www.tiktok.com/@maria_del_carmen.19?_r=1&_d=eeg767giime7ed&sec_uid=MS4wLjABAAAAssAfrpXunrDE5Ja3D1m3cUyGTYVGvOSZYUEs5NUeWqgQKi5AiA-j9SDzZg9wsV3k&share_author_id=7263832632194466821&sharer_langu
+
+
+## Cursos
+
+- Curso para generar espacios libres de violencia, impartido por la Escuela Judicial del Poder Judicial de la Federación,Curso Género como herramienta para la igualdad
+- Tercera edición (Jurisdiccional), impartido por la Escuela Judicial,Diplomado en derecho constitucional y amparo, impartido por el entonces Instituto de la Judicatura Federal,Curso sobre transparencia, elaboración de versiones públicas, acceso a la información y protección de datos personales,Diplomado Teoría y praxis del derecho penal, impartido por el Instituto Iberoamericano de Derecho Penal, A
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53032/10
+
+
+## Trayectoria Academica
+
+- Cursé la licenciatura en la Universidad del Valle de México, así como la Maestría en Derecho Civil con alto rendimiento
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque tengo formación de servidora pública y conozco las necesidades requeridas para un mejor funcionamiento judicial
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Hoy en día la función jurisdiccional se encuentra atascada y lo cierto es que debe existir una reestructura respecto a la forma tradicional de intervenir en los asuntos públicos para lograr que los órganos jurisdiccionales se conviertan en un espacio abierto al que puedan acceder mexicanos de todos los ámbitos sociales y logren obtener una verdadera aplicación de la justicia, recuperar la confianza que se ha perdido en el Poder Judicial de la Federación
+
+
+## Vision sobre la Imparticion de Justicia
+
+Actualmente hay una nueva era en la impartición de justicia y lo cierto es que se debe hacer un cambio para que exista un acercamiento social en cuanto al tema jurídico que existe en México, por ende, se deben utilizar nuevos mecanismos en la labor jurisdiccional para lograr un cambio potencialmente efectivo y contundente que permita a toda persona acceder a un sistema que garantice la igualdad y la protección de sus derechos, de ahí que sin dejar de lado a todos los sectores de la población
+
+
+## Propuestas
+
+- Transitar a que todos los trámites sean en línea, a fin de contribuir a la eliminación del uso de papel. Así, desde nuestra trinchera propiciaremos una cultura del cuidado al medio ambiente.
+- Acercamiento a los justiciables, para que haya una comunicación respetuosa y clara, a efecto de que exista un acompañamiento durante la tramitación de los asuntos que se promuevan.
+- Sentencias más fluidas, de fácil comprensión, evitando tecnicismos pues así se logrará que el trabajo sea más ágil sin dejar de lado la eficacia y análisis de cada asunto en particular.
+

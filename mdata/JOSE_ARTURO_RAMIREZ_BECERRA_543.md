@@ -1,0 +1,79 @@
+Nombre Candidato: JOSE ARTURO RAMIREZ BECERRA
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Administrativo, Derecho Constitucional, Derecho Fiscal, Derecho de Amparo, Derechos Humanos, Especialista en Derecho., Formación Judicial, Igualdad de Género, Licenciatura en Derecho, Maestría en Derecho, Radiodifusión, Telecomunicaciones
+Tags Propósito: Acceso a la justicia, Derechos humanos, Desconocimiento protocolos, Digitalización, Discapacidad, Eficiencia, Fin del nepotismo, Formación judicial, IA en justicia., Inteligencia artificial, Jornadas justas, Justicia, Mérito, Niñez, Perspectiva de género, Protección judicial, Protección judicial ampliada, Pueblos indígenas, Sensibilización, Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Arturo Ramirez Becerra es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose desde el Poder Ejecutivo Federal en la Ciudad de México. Cuenta con Maestría en Derecho y especialización en diversas áreas legales, incluyendo constitucional, derechos humanos y amparo. Su formación complementaria incluye diplomados en Derechos Humanos y Radiodifusión, así como cursos de actualización en derecho de amparo y temas relacionados con la igualdad y la prevención de la violencia.
+
+El candidato basa su motivación en el deseo de asegurar una justicia accesible y transparente, proponiendo un sistema judicial más cercano a la ciudadanía, eficiente mediante el uso de tecnologías como la Inteligencia Artificial, y sensible a grupos vulnerables. Sus propuestas incluyen la implementación de sistemas electrónicos y cursos obligatorios para funcionarios judiciales en temas de perspectiva de infancia, discapacidad y género, además de promover foros de información para la población sobre sus derechos.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://facebook.com/ramirezbecerrajosearturo
+- https://www.instagram.com/ramirezbecerrajosearturo
+- https://youtube.com/@ramirezbecerrajosearturo
+- https://www.tiktok.com/@ramirezbecerrajosearturo
+
+
+## Cursos
+
+- Diplomado en Derechos Humanos por la Universidad Iberoamericana
+- ,Diplomado en Radiodifusión y Telecomunicaciones por la Universidad Panamericana
+- ,Curso de actualización en derecho de amparo, impartido por la Universidad Panamericana en  de 2013
+- ,Curso para generar espacios libres de violencia, en la Escuela Federal de Formación Judicial
+- ,Curso Género como herramienta para la igualdad, en la Escuela Federal de Formación Judicial
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55137/10
+
+
+## Trayectoria Academica
+
+- Licenciado y Maestro en derecho, especialista en derecho constitucional, Der
+- Humanos, amparo, administrativo y fiscal
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero que la gente reciba la justicia verdadera y limpia, que vino a buscar a un tribunal y que vean mi puerta abierta
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El juzgador debe ser cercano a la ciudadanía, no más despotismo y maltrato de los jueces y magistrados; es necesario terminar con el nepotismo, amiguismo y el compadrazgo; que las personas entren por mérito a trabajar, que no valga más el apellido, que el esfuerzo y los estudios, no más maltratos al personal de juzgados y tribunales, ni jornadas extenuantes, todos merecen jornadas justas y tener una vida en familia, tenemos que impulsar el uso de la IA para facilitar la labor jurisdiccional.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Se debe cambiar a un modelo en el que se valoren los derechos humanos y su progresividad, dejando de lado los formalismos absurdos que sólo se usan para darle carpetazo a un asunto, pero sin resolver el fondo; además el juzgador debe ser sensible a las personas que necesitan que se amplíe la protección judicial, es decir, niños, personas con discapacidad, pueblos y comunidades indígenas etc., porque si bien existen protocolos de actuación, los juzgadores los desconocen o no son sensibles al tema
+
+
+## Propuestas
+
+- Promover e implementar el uso electrónico del sistema judicial, así como de la inteligencia artificial a las labores jurisdiccionales que se llevan en un órgano impartidor de justicia, desde las áreas de trámite, hasta los secretarios proyectistas, pues no es inventar el hilo negro, sólo usar programas que ya existen para economizar tiempos y facilitar la labor, tales como la síntesis de información, que sería más simple con archivos electrónicos y programas computacionales de IA.
+- Promover conferencias y foros con temas de interés general, donde sean convocados otros funcionarios, de tal manera que sirvan como jornada para informar a la población sobre sus derechos y cómo ejercerlos. El juzgador no solo está para resolver asuntos, sino para ayudar a la población.
+- Impulsar la impartición de cursos obligatorios para magistrados, jueces y secretarios de tribunal, en los que se den a conocer los protocolos de actuación para juzgar con perspectiva de infancia, discapacidad, de género etc., que a la fecha existen y sus alcances, así como algunos asuntos en los que se haya hecho buen uso de éstos; de igual manera, promover la sensibilización e importancia de estos temas.
+

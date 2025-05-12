@@ -1,0 +1,73 @@
+Nombre Candidato: JOSE LUIS PINEDA DIAZ
+Cargo: Juezas/es de Distrito
+Entidad: QUINTANA ROO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: jpinedadiaz@yahoo.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Licenciatura
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho, Excelencia académica., Graduación, Licenciatura, Promedio más alto, Titulación automática
+Tags Propósito: Acceso a la Justicia, Amparo, Confianza Ciudadana, Constitución, Derechos Humanos, Eficiencia, Estado de Derecho, Gobernanza, Impunidad, Justicia, Protección de Derechos, Realidad Social, Rendición de Cuentas, Seguridad, Transformación., Transparencia
+
+
+## Descripción del Candidato 
+
+Jose Luis Pineda Diaz es candidato a Jueces/es de Distrito en Quintana Roo, postulándose por el Poder Legislativo Federal. Cuenta con licenciatura en Derecho, obteniendo la titulación automática por su alto promedio. Motiva su candidatura a este cargo público por su experiencia previa en funciones similares, buscando aportar a la administración de justicia.
+
+Su visión se centra en una justicia cercana, transparente y transformadora, con propuestas que incluyen el combate a la impunidad, evitar el uso indebido del amparo y promover un Poder Judicial abierto para recuperar la confianza ciudadana.  Se compromete a juzgar considerando tanto la Constitución como la realidad social. Su curriculum vitae completo está disponible en el enlace proporcionado.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/joseluispinedaqr/
+- https://www.instagram.com/
+- https://www.youtube.com/@JoseLuisPinedaDiaz
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/54578/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho, graduandome como el promedio más alto de mi generación y obteniendo la titulación automática
+
+
+## Motivo para buscar el Cargo Publico
+
+En diversas ocasiones he ocupado cargos públicos, y ser juez es un cargo al que por mi experiencia puedo aportar mucho.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+MI VISIÓN: Justicia cercana, transparente y garante: Un Poder Judicial que escucha, protege y transforma PROPUESTAS: 1. Acceso a la justicia sin barreras. 2. Protección firme de derechos humanos. 3. Transparencia radical y rendición de cuentas. 4. Eficiencia sin sacrificar profesionalismo. COMPROMISO PÚBLICO Juzgaré con la Constitución en una mano y la realidad social en la otra. Mi tribunal no será un laberinto de papeles, sino un espacio para cada ciudadano sin importar su origen.
+
+
+## Vision sobre la Imparticion de Justicia
+
+VISIÓN SOBRE LA IMPARTICIÓN DE JUSTICIA: Una justicia cercana, transparente y transformadora: Donde cada sentencia no solo resuelva conflictos, sino que active derechos, dignifique personas y fortalezca la confianza en el Estado de Derecho.
+
+
+## Propuestas
+
+- Combate a la impunidad: No habrá casos archivados y sin impulso procesal.
+- Crisis de seguridad:  cualquier uso faccioso del amparo para proteger a grupos u otorgar privilegios. La Constitución no es un escudo para la injusticia.
+- Desconfianza ciudadana: Dentro de la ley promoveré como modelo de gobernanza un Poder Judicial abierto. Que la gente vea cómo trabajamos y entienda que la justicia no es un privilegio, sino un derecho.
+

@@ -1,0 +1,72 @@
+Nombre Candidato: CARLOS ALBERTO TERAN
+Cargo: Juezas/es de Distrito
+Entidad: TAMAULIPAS
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: No proporcionó
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Derecho Penal, Derecho Procesal Penal, Derechos Humanos, Diplomado., Doctorado, Ejecución Penal, Juicio de Amparo, Licenciatura en Ciencias Jurídicas, Maestría, Proceso Penal Acusatorio
+Tags Propósito: acceso a la justicia, administración de justicia, desahogo de agenda, diferimiento., eficiencia, funcionarios idóneos, imparcialidad, justicia, ley, mecanismos de solución de controversias, principios constitucionales, profesionalismo, recursos humanos, recursos materiales, resolución alternativa de conflictos, seguridad jurídica, suspensión condicional del proceso, transparencia
+
+
+## Descripción del Candidato 
+
+Carlos Alberto Terán es candidato a Juez/a de Distrito en Tamaulipas, postulado por el Poder Legislativo Federal. Cuenta con estudios de Doctorado en Derecho Penal, complementados por diversos diplomados y cursos en materia de proceso penal acusatorio, derechos humanos y juicio de amparo. Su motivación para buscar el cargo es servir a la ciudadanía y hacer cumplir la ley.
+
+Su visión sobre la función jurisdiccional y la impartición de justicia se centra en la profesionalidad, confiabilidad, transparencia e imparcialidad de los órganos jurisdiccionales, buscando garantizar el acceso oportuno a la justicia y la seguridad jurídica. Sus propuestas incluyen la canalización de casos susceptibles a acuerdos reparatorios a centros de solución de controversias y solicitar a la parte acusada, cuando sea procedente, que plantee la suspensión condicional del proceso en la audiencia, con el objetivo de optimizar recursos y agilizar la agenda judicial.
+
+
+## Poder que postula
+
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18YLU6gvNf/?mibextid=wwXIfr
+- https://www.instagram.com/carlos_teran86/?fbclid=IwY2xjawJVN6pleHRuA2FlbQIxMAABHZtohEyCvxE6y_woepihQcideDy5asa25snmSb8ZJGk0R-B6Lj3JqRKPEA_aem_jgc5h2FERLbgNQ4WW4vrmA#
+
+
+## Cursos
+
+- Diplomado Proceso Penal Acusatorio y Oral,Diplomado sobre Proceso Penal Acusatorio y Oral,Curso de Actualización Sobre Ejecución Penal,Diplomado La Suprema Corte y los Derechos Humanos,Diplomado Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55236/11
+
+
+## Trayectoria Academica
+
+- Licenciado en Ciencia Jurídicas, Maestro en Derecho Procesal Penal y Doctor en Derecho Penal
+
+
+## Motivo para buscar el Cargo Publico
+
+Para servir a la ciudadanía desde un órgano de la administración de justicia y poder hacer cumplir la ley.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+El actuar por parte de los órganos jurisdiccionales debe ser profesional, confiable, transparente e imparcial, permitiendo con ello acceso oportuno a la justicia y que se garantice la seguridad jurídica de los justiciables.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Los órganos jurisdiccionales deben estar integrados por funcionarios idóneos y eficientes, que actúen conforme a las disposiciones que les son vinculantes, conducirse con apego a los principios constitucionales y legales, debiendo ser transparentes, imparciales e independientes; para lograr un acceso oportuno a la justicia y garantizar la seguridad jurídica de los justiciables.
+
+
+## Propuestas
+
+- Que al momento de acordar la recepción de la solicitud de audiencia inicial, cuando el hecho y la clasificación jurídica se relacione a un delito que se puede resolver a través de un acuerdo reparatorio, en lugar de señalar fecha y hora para la celebración de esta, se deberá proveer que las partes sean canalizados al centro de mecanismos de solución de controversias, con el fin de desahogar la agenda de la audiencia; además que, con ello se ahorrará recursos materiales y humanos.
+- Que al momento de acordar la recepción de la acusación se solicite a la parte acusada solo en el caso de ser procedente la suspensión condicional del proceso, que trate de acudir a la audiencia con el planteamiento en el caso de que sea su intención sea solicitarla, ello con el fin de evitar el diferimiento, con el fin de desahogar la agenda; además que, con ello se ahorrará recursos materiales y humanos.
+- No proporcionó
+

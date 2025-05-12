@@ -1,0 +1,74 @@
+Nombre Candidato: CHRIS SINHUE MOLINA ARAGON
+Cargo: Juezas/es de Distrito
+Entidad: MORELOS
+Sexo: HOMBRE
+Telefono: 5532102996
+Correo Electronico: cs.molina874r@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Acceso a la Información, Administración, Administración Pública Federal, Archivos Públicos, Ciencias Políticas, Ciencias Sociales, Clasificación de Información, Contabilidad, Derecho, Desclasificación de Información, Discrepancia Fiscal, Doctorado, IFAI, Impuestos, Licenciatura., Maestría, Transparencia
+Tags Propósito: Acceso a la justicia, Auditoría, Capacitación, Confianza ciudadana, Debido proceso, Derechos humanos, Digitalización, Eficacia, Estado de derecho, Expedientes digitales, Imparcialidad, Independencia judicial, Justicia, Modernización, Morelos, Protección de datos, Rendición de cuentas, Resolución de conflictos, Tecnología, Transparencia, Zonas rurales, Ética judicial.
+
+
+## Descripción del Candidato 
+
+CHRIS SINHUE MOLINA ARAGON es candidato a Jueces/as de Distrito en Morelos, postulándose a través del Poder Ejecutivo Federal. Cuenta con estudios concluidos de Doctorado y una trayectoria académica que incluye la Licenciatura en Derecho, Maestría en Impuestos, Ciencias Políticas y Sociales.  Su motivación para buscar el cargo es servir con justicia, imparcialidad y compromiso para fortalecer el Estado de Derecho en Morelos.
+
+Su visión para la función jurisdiccional y la impartición de justicia se centra en la independencia, imparcialidad, eficacia y accesibilidad, promoviendo la modernización del sistema judicial, la capacitación continua y el uso de tecnologías. Sus propuestas incluyen la digitalización y agilización de procesos judiciales, el fortalecimiento de la capacitación de jueces y personal judicial, y el aumento de la transparencia y rendición de cuentas en el sistema judicial.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/18X2PVKKNJ/?mibextid=wwXIfr
+- https://x.com/cmolina019?s=11&t=fW5fKUH4rTkCmyoRsXGNOg
+- https://www.instagram.com/sinhue.molina?igsh=MTdvaThvMnY2d3MwYw3D3D&utm_source=qr
+
+
+## Cursos
+
+- Introducción a la Ley Federal de Transparencia y Acceso a la Información Pública Gubernamental, IFAI,Clasificación y desclasificación de la información, IFAI,Organización y Conservación de los Archivos de las Dependencias y Entidades de la Administración Pública Federal, IFAI,Discrepancia Fiscal, Instituto Morelense de Contabilidad, S
+- C
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53871/11
+
+
+## Trayectoria Academica
+
+- LICENCIADO EN DERECHO, MAESTRO EN IMPUESTOS, CIENCIAS POLÍTICAS Y SOCIALES Y DOCTOR EN ADMINISTRACIÓN
+
+
+## Motivo para buscar el Cargo Publico
+
+Quiero servir con justicia, imparcialidad y compromiso para fortalecer el Estado de derecho en Morelos.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Una función jurisdiccional basada en la independencia, imparcialidad y eficacia, garantizando acceso a la justicia pronta y expedita. Mi visión es fortalecer la confianza ciudadana en el Poder Judicial, aplicando la ley con rigor y equidad, sin influencias externas. Promoveré la modernización del sistema judicial, la capacitación constante y el uso de tecnología para agilizar procesos, asegurando resoluciones justas y transparentes en beneficio de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+Una impartición de justicia accesible, eficaz y transparente, donde cada persona reciba una resolución justa y en tiempo razonable. Promoveré un sistema ágil, como juez independiente y capacitado, garantizando el debido proceso y la protección de derechos humanos. La justicia debe ser cercana a la ciudadanía, con uso de tecnología y perspectiva de género, fortaleciendo la confianza en el Poder Judicial y consolidando el Estado de derecho en Morelos.
+
+
+## Propuestas
+
+- Digitalización y agilización de procesos judiciales: Implementar plataformas electrónicas seguras para la gestión de casos, que permitan a los ciudadanos presentar escritos y recibir notificaciones de manera remota. Esto reducirá la carga de trabajo en las oficinas judiciales, optimizando tiempos de respuesta y garantizando un acceso más eficiente y rápido a la justicia, especialmente en zonas rurales, eliminando barreras físicas y administrativas.
+- Capacitación continua de jueces y personal judicial: Establecer programas de formación y actualización constante para jueces, secretarios y personal judicial en temas clave como derechos humanos, resolución de conflictos, tecnología jurídica y ética judicial. Esto garantizará decisiones más fundamentadas y equitativas, adaptadas a los avances sociales y tecnológicos, mejorando la calidad de la impartición de justicia y fortaleciendo la confianza en el sistema judicial.
+- Fortalecimiento de la transparencia y rendición de cuentas: Crear plataformas digitales donde se puedan consultar los expedientes de los casos, con la debida protección de datos personales, para que los ciudadanos puedan seguir el avance de sus juicios. Además, establecer auditorías periódicas y mecanismos de revisión para garantizar que las decisiones judiciales se tomen de manera imparcial, promoviendo la transparencia, la rendición de cuentas y la confianza en la justicia.
+

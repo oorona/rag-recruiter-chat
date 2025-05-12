@@ -1,0 +1,74 @@
+Nombre Candidato: OSMAR ABRAHAM LARA PIÑON
+Cargo: Juezas/es de Distrito
+Entidad: CHIHUAHUA
+Sexo: HOMBRE
+Telefono: 6141009333
+Correo Electronico: a_lara7@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Doctorado
+Estatus Escolaridad: Concluido
+Tags Educación: Administración de Justicia, Constitución, Derecho, Doctorado, Especialización, Formación., Juicio de Amparo, Justicia Constitucional, Maestría, Poder Judicial de la Federación, Procuración, Secretarios Judiciales
+Tags Propósito: Acceso a la Justicia, Derechos Humanos, Desigualdad Social, Dignidad, Eficiencia Judicial, Función Jurisdiccional, Igualdad, Imparcialidad, Justicia Completa, Justicia Social, No Discriminación, Objetividad, Poder Judicial, Pronta Resolución, Realidad Social., Resolución de Conflictos, Sentencias Justas, Servidores Públicos, Vulnerabilidad Social
+
+
+## Descripción del Candidato 
+
+OSMAR ABRAHAM LARA PIÑON es candidato a Juez de Distrito en Chihuahua, postulándose para el Poder Judicial de la Federación y el Poder Legislativo Federal. Cuenta con un doctorado en Derecho, así como maestrías y especialidades en áreas relacionadas con la procuración de justicia y la justicia constitucional. 
+
+Su motivación para buscar el cargo se basa en garantizar el acceso a los derechos humanos sin discriminación. Su visión de la función jurisdiccional se centra en la justicia social y la igualdad, buscando que las sentencias contribuyan a un México más justo y respetuoso de los derechos humanos. Sus propuestas principales son garantizar una justicia accesible, pronta y completa, enfocándose en la comunicación directa con las partes, la eficiencia en la resolución de conflictos y la atención a la problemática social subyacente en cada caso.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+- Poder Legislativo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/abraham.lara7
+- https://x.com/oabrahamlara7
+- https://www.instagram.com/abrahamlara7
+
+
+## Cursos
+
+- Doctorado en Derecho,Maestría en Procuración y Administración de Justicia,Especialidad en Justicia Constitucional, Interpretación y Aplicación de la Constitución,Especialidad, Curso Básico de Formación y Preparación de Secretarios del Poder Judicial de la Federación,Diplomado Juicio de Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53774/11
+
+
+## Trayectoria Academica
+
+- Soy Doctorando en Derecho, Maestro en Procuración y Administración de Justicia y Especialista en Justicia Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Aspiro a ser Juez de Distrito para garantizar que todas las personas gocen de los derechos humanos sin discriminación.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional debe ser un mecanismo de Justicia e igualdad social; es decir, un sistema accesible que no solo solucione problemas de las personas en particular, sino que cambie la realidad social a fin de lograr en cada sentencia un México más justo, igualitario, sin discriminación y respetuoso de los derechos humanos de todas las personas. Por ello, nuestra función como servidores públicos del Poder Judicial debe tener como principal misión garantizar la dignidad de las personas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La impartición de Justicia es una función clave para lograr un México justo, igualitario y sin discriminación. Por lo que todas las sentencias del Poder Judicial Federal deben atender a la problemática social que generó el juicio y optar por la solución que brinde una respuesta rápida, completa y, sobre todo, justa. La confianza que deposite la ciudadanía en las personas que serán electas como Jueces y Juezas sin duda garantizará que cada sentencia que se dicte obedezca al sentir de la sociedad.
+
+
+## Propuestas
+
+- La JUSTICIA debe ser ACCESIBLE para todas las personas, por lo que debe existir un canal de comunicación libre y accesible para que las partes en un asunto puedan expresar directamente su sentir ante el Juez y puedan explicar desde su punto de vista qué fue lo que generó el problema que sufren y qué tipo de solución esperan en la impartición de justicia. Todo ello con un absoluto respeto a los principios de imparcialidad, objetividad, dignidad e igualdad de las partes.
+- La JUSTICIA debe ser PRONTA, por lo que la solución de los conflictos debe respetar los plazos que prevean las leyes. Para ello, el Juez debe realizar todos los esfuerzos posibles a fin de organizar el Juzgado en una forma eficiente, garantizando un uso responsable y profesional de los recursos humanos y materiales disponibles. Asimismo, se deben evitar soluciones pero incompletas que no resuelvan en forma alguno el problema real y de fondo de las personas.
+- La JUSTICIA debe ser COMPLETA, por lo que el Juez debe actuar en forma sensible ante los problemas que llevan a la ciudadanía ante un Juzgado y buscar una solución integral y justa al problema que enfrentan. Para ello, la persona juzgadora debe atender a la realidad social que generó el problema que debe resolver, para lograr que la Justicia se convierta en una herramienta útil para erradicar las desigualdades sociales que afectan en mayor medida a las personas más vulnerables.
+

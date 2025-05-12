@@ -1,0 +1,80 @@
+Nombre Candidato: GIOVANNI AZAEL FIGUEROA MEJIA
+Cargo: Ministra/o Suprema Corte de Justicia de la Nación
+Entidad: NACIONAL
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: Giovanni.figueroa.m7@gmail.com
+Numero de lista en boleta: 43
+Escolaridad: Doctorado
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Autor, Coordinador, Derecho Civil, Derecho Constitucional, Derecho Electoral, Derecho Penal, Derecho Procesal Constitucional, Estudios avanzados., Publicaciones académicas
+Tags Propósito: Accesibilidad, Bienestar Común, Constitución, Derechos Humanos, Empatía, Equidad, Equilibrio de Competencias., Estado de Derecho, Honestidad, Imparcialidad, Inclusión, Justicia, Justicia de Puertas Abiertas, Necesidades Sociales, Ordenamiento Jurídico, Paridad, Reconstrucción PJF, SCJN, Sentencias Humanistas, Transparencia, Vulnerabilidad
+
+
+## Descripción del Candidato 
+
+Giovanni Azael Figueroa Mejía es candidato a Ministra/o de la Suprema Corte de Justicia de la Nación, postulado por el Poder Ejecutivo Federal bajo el número 43 en la boleta. Cuenta con un doctorado y cédula profesional, complementados por diplomados en diversas áreas del Derecho, incluyendo Constitucional, Procesal, Civil, Penal y Electoral.  Es autor de tres libros, aproximadamente 50 textos académicos y coordinador de 12 obras sobre Derecho Procesal Constitucional.
+
+Su motivación para buscar el cargo es contribuir a la reconstrucción del Poder Judicial Federal y la Suprema Corte de Justicia de la Nación.  Propone dialogar con los Poderes Ejecutivo y Legislativo para fortalecer el estado de derecho, asegurar una integración igualitaria e incluyente en la Corte (promoviendo la paridad y espacios para grupos minoritarios) y fomentar una justicia de puertas abiertas, accesible a la población. Su visión de la función jurisdiccional se centra en la interpretación de la Constitución, la accesibilidad, la transparencia y la empatía con las necesidades sociales, así como en la protección de los derechos, especialmente de los grupos vulnerables.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+https://giovannifigueroa.com.mx/
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/16P57dr2MX/
+- https://x.com/Giovanni_F_M
+- https://www.instagram.com/giovanni.a.mejia.7?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
+- https://www.youtube.com/@giovanni.figueroamejia
+- https://www.tiktok.com/@giovanni.figueroa.mejia?_t=ZM-8v3C92CSw10&_r=1
+- https://www.linkedin.com/in/giovanni-a-figueroa-mejía-317988340
+
+
+## Cursos
+
+- Diplomado de Estudios Avanzados en Derecho Constitucional
+- ,Diplomado en Derecho Procesal Constitucional
+- ,Diplomado en Derecho Civil
+- ,Diplomado en Derecho Penal
+- ,Diplomado en Derecho Electoral
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/240/6
+
+
+## Trayectoria Academica
+
+- Autor de 3 libros, cerca de 50 textos académicos y coordinador de 12 obras sobre Derecho Procesal Constitucional
+
+
+## Motivo para buscar el Cargo Publico
+
+Porque quiero contribuir con mi país en la reconstrucción del PJF y porque sé la labor que ahora debe desempeñar la SCJN
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Es indispensable que la nueva Suprema Corte se integre con perfiles que conozcan y sepan interpretar la Constitución, en particular, y el ordenamiento jurídico, en general; pero, además, que tengan gran disposición para escuchar a la población y empatizar con sus necesidades. Se requiere que la función jurisdiccional sea accesible, transparente y que responda a las inquietudes, valores y aspiraciones de la sociedad.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La Suprema Corte debe proteger los derechos de toda la población, especialmente de los más vulnerables; garantizar que las leyes respeten la Constitución y los tratados internacionales; y velar por el equilibrio de competencias entre autoridades. Para ello, sus integrantes deben ser imparciales y honestos, y emitir sentencias claras y humanistas que contribuyan a la conformación de un renovado sistema de justicia equitativo y sensible a las necesidades sociales.
+
+
+## Propuestas
+
+- Dialogar constantemente con los poderes Ejecutivo y Legislativo para fortalecer juntos el estado de Derecho, el bienestar común y la protección de derechos humanos.
+- Asegurar una integración igualitaria e incluyente en la Suprema Corte mediante el impulso de la paridad entre hombres y mujeres, así como con la apertura de espacios de trabajo para grupos minoritarios.
+- Impulsar una justicia de puertas abiertas donde la población pueda hacer llegar sus opiniones y propuestas para atender las necesidades sociales.
+

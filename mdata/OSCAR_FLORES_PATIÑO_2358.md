@@ -1,0 +1,85 @@
+Nombre Candidato: OSCAR FLORES PATIÑO
+Cargo: Juezas/es de Distrito
+Entidad: CIUDAD DE MEXICO
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: oscarflorespatino2025@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Argumentación Jurídica, Derecho Concursal, Derechos Humanos, Formación Judicial., Igualdad de Género, Juicio de Amparo, Licenciatura en Derecho, Maestría en Derecho de Amparo, Suprema Corte de Justicia de la Nación, UNAM, Universidad Tepantlato, Universidad de Alicante
+Tags Propósito: SISE, acceso a la justicia, burocracia, capacitación, corrupción, digitalización, eficiencia, equidad, expedientes, imparcialidad, independencia judicial, integridad, justicia, lenguaje claro, modernización, modernización procesos judiciales., protocolos de seguridad, transparencia, ética
+
+
+## Descripción del Candidato 
+
+Oscar Flores Patiño es candidato a Juez/a de Distrito en la Ciudad de México, postulándose a través del Poder Judicial de la Federación. Cuenta con Maestría en Derecho de Amparo (Universidad Tepantlato) y una Licenciatura en Derecho (UNAM), complementadas con diversos diplomados en áreas como Derechos Humanos, Juicio de Amparo, Derecho Concursal, Argumentación Jurídica y perspectiva de género, impartidos por la Suprema Corte de Justicia de la Nación y otras instituciones.
+
+Su motivación para buscar el cargo se basa en su experiencia laboral dentro del Poder Judicial, identificando áreas de oportunidad para la actualización de la institución.  Su visión se centra en una función jurisdiccional que combine conocimiento legal con decisiones justas y éticas, considerando el contexto social.  Sus propuestas incluyen fortalecer la independencia judicial y combatir la corrupción, digitalizar y modernizar los procesos judiciales, y agilizar la integración de expedientes con un lenguaje accesible para los justiciables.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/oscarflorespatino2025
+- https://www.x.com/OsFPatino2025
+- https://www.instagram.com/oscarflorespatino2025
+- https://www.youtube.com/OscarFloresPatiño
+- https://www.tiktok.com/oscarflorespatino2
+- https://www.threads.com/oscarflorespatino2025
+
+
+## Cursos
+
+- Diplomado La Suprema Corte y los Derechos Humanos
+- impartido por la Suprema Corte de Justicia de la Nación,Diplomado Juicio de Amparo
+- (Modalidad Virtual)
+- Impartido por la Suprema Corte de Justicia de la Nación
+- ,Diplomado de Derecho Concursal, impartido por la hoy Escuela Federal de Formación Judicial
+- ,Curso Género como Herramienta para la Igualdad
+- Octava Edición, impartido por la Escuela Federal de Formación Judicial
+- ,Diplomado en Argumentación Jurídica
+- Universidad de Alicante
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52908/11
+
+
+## Trayectoria Academica
+
+- Licenciatura en Derecho
+- (UNAM); Maestría en Derecho de Amparo (Universidad Tepantlato)
+
+
+## Motivo para buscar el Cargo Publico
+
+Con base en mi experiencia laboral en el poder judicial, sé qué se necesita cambiar para actualizar a la institución.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+La función jurisdiccional no solo requiere una profunda comprensión de la ley, sino también el valor para tomar decisiones justas y éticas, considerando las necesidades y reclamos reales de la gente, teniendo siempre en cuenta la realidad social; contexto que tengo claro y puedo atender gracias a mi formación académica, experiencia profesional y compromiso con la justicia, pilares que sustentan mis aptitudes para desempeñar el papel de juez de distrito con integridad, preparación y vocación.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia es uno de los pilares fundamentales de cualquier sociedad civilizada; los juzgadores como guardianes y garantes de ese pilar, tienen un inquebrantable compromiso con la sociedad para su obtención, lo cual evidentemente puede lograrse con imparcialidad y equidad el emitir sus fallos, razones por las que estoy convencido de que con mi experiencia, dedicación y habilidades puedo contribuir significativamente a la evolución del sistema judicial.
+
+
+## Propuestas
+
+- Fortalecer la independencia judicial y combatir la corrupción a través de las siguientes medidas: actuar en todo momento con autonomía, libre de presiones políticas o intereses particulares. Mostrar transparencia en todo momento en temas de fiscalización tendentes de dilucidar posibles actos de corrupción. Gestionar la creación de protocolos de seguridad para juzgadores que blinden la independencia judicial, así como la creación de reconocimientos que ayuden a disuadir malas prácticas.
+- Digitalización y modernización de los procesos judiciales; ello, con la intención de reducir la carga burocrática, agilizando trámites y mejorando el acceso a la justicia, para lo cual se gestionará a la evolución y perfeccionamiento del SISE, para que este sea más amigable en su uso y consulta, tanto para los servidores públicos como para los justiciables, por lo que éstos últimos recibirán capacitación constante en el uso de tales plataformas digitales.
+- Agilizar la integración de los expedientes y utilización de lenguaje sencillo en todas las actuaciones judiciales, con lo cual se garantizará el acceso a la justicia pronta y expedita así como que las personas que acudan al juicio puedan comprender sin necesidad de su abogado, su situación real en el proceso así como los determinaciones del juez , facilitándose así la comunicación del juez con el gobernado y sus peticiones.
+

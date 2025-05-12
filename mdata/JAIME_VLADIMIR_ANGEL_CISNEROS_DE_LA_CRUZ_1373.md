@@ -1,0 +1,73 @@
+Nombre Candidato: JAIME VLADIMIR ANGEL CISNEROS DE LA CRUZ
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: NUEVO LEON
+Sexo: HOMBRE
+Telefono: 8111788211
+Correo Electronico: vladicisner@gmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Cédula profesional
+Tags Educación: Actualización., Administración de Justicia, Derecho Fiscal, Derecho Tributario, Derecho de Amparo, Derechos Humanos, Diplomado, Especialidad, Juzgado de Distrito, Maestría, Poder Judicial Federal, Tribunal Colegiado de Circuito
+Tags Propósito: Accesibilidad, Celeridad, Ciudadanos, Eficiencia, Justicia, Legalidad, Plazos, Problemas ciudadanos., Resolución
+
+
+## Descripción del Candidato 
+
+Jaime Vladimir Ángel Cisneros de la Cruz es candidato a Magistrado de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal en Nuevo León. Cuenta con Maestría y cédula profesional, complementada con diversas especialidades y diplomados en áreas como Derecho de Amparo, Fiscal, Tributario y Derechos Humanos. Su trayectoria se ha desarrollado dentro del Poder Judicial Federal, desempeñando cargos como Secretario de Tribunal Colegiado de Circuito y Secretario de Juzgado de Distrito.
+
+El candidato motiva su postulación en la necesidad de acercar la justicia a los ciudadanos, priorizando la aplicación de la justicia por encima de la legalidad. Su visión de la función jurisdiccional se centra en la accesibilidad y la resolución oportuna de los asuntos, proponiendo fallar en plazos breves y evitar la prolongación indefinida de los casos, priorizando la justicia sobre la simple legalidad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/jaimevladimirangel?rdid=YCkr6mFEQMbF9YRX&share_url=https3A2F2Fwww.facebook.com2Fshare2F1ASAWDpzSr2F#
+- https://x.com/jaime_vladimir?t=p-5ZbEnWN_czroaKTrOnPQ&s=08
+- https://www.tiktok.com/@jaimevladimirangel?_t=ZM-8v67aODIhN7&_r=1
+
+
+## Cursos
+
+- Maestria en Derecho de Amparo Maestria en derecho Fiscal Especialidad en Derecho Tributario Especialidad en Derechos,Especiliadad en Administración de Justicia Especilialidad en derechos humanos Especialidad en derecho tibutario,Diplomado en derechos humanos, diplomado en derecho fiscal, Especialidad en derecho tributario, curso de actualización,Derechos humanos, Fiscal, Tributario, Amparo
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/52953/10
+
+
+## Trayectoria Academica
+
+- Dentro del Poder Judicial Federal Secretario de Tribunal Colegiado de Circuito y Secretario de Juzgado de Distrito
+
+
+## Motivo para buscar el Cargo Publico
+
+La justicia necesita estar mas cerca de los ciudadanos, la justicia debe ser aplicada por sobre la legalidad.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Debe ser mas accesible a los ciudadanos, fallar en plazos que establece la ley y estar mas cerca de los ciudadanos entender sus problemas.
+
+
+## Vision sobre la Imparticion de Justicia
+
+resolver los asuntos en plazos breves
+
+
+## Propuestas
+
+- resolver en plazos que marca la ley (breves)
+- fallar los asuntos con justicia sobre legalidad
+- evitar que los asuntos duren mucho tiempo sin resoverlos
+

@@ -1,0 +1,75 @@
+Nombre Candidato: RUBEN LOPEZ ALONSO
+Cargo: Magistraturas de Tribunales Colegiados de Circuito
+Entidad: BAJA CALIFORNIA
+Sexo: HOMBRE
+Telefono: No proporcionó
+Correo Electronico: rlopezal@cjf.gob.mx
+Numero de lista en boleta: *No especificado*
+Escolaridad: Maestría
+Estatus Escolaridad: Título profesional
+Tags Educación: Derecho, Derecho Procesal Constitucional, INDEPAC, Licenciatura, Maestría, Universidad Autónoma de Baja California
+Tags Propósito: Accesibilidad, Burocracia, Confianza, Corrupción, Derechos, Dilación, Eficiencia, Escrutinio público., Evaluación, Igualdad, Imparcialidad, Impunidad, Justicia, Justicia social, Legitimidad, Rendición de cuentas, Simplificación, Transparencia, Voto popular
+
+
+## Descripción del Candidato 
+
+RUBEN LOPEZ ALONSO es candidato a un cargo en las Magistraturas de Tribunales Colegiados de Circuito, postulándose a través del Poder Ejecutivo Federal en Baja California. Cuenta con una trayectoria académica que incluye la Licenciatura en Derecho por la Universidad Autónoma de Baja California y una Maestría en Derecho Procesal Constitucional por INDEPAC. 
+
+Su motivación principal para buscar el cargo es restaurar la confianza en el sistema jurídico mexicano. Propone una depuración del esquema jurisdiccional para agilizar las sentencias, garantizar el acceso a la justicia con enfoque en la justicia social, y establecer un sistema de rendición de cuentas para los jueces y magistrados, incluyendo la evaluación y la presentación de informes a la sociedad.
+
+
+## Poder que postula
+
+- Poder Ejecutivo Federal
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- http://www.facebook.com/kgy2k
+- https://x.com/kopyghost
+- http://www.instagram.com/kopyghost
+- https://www.tiktok.com/@kopyghost
+
+
+## Cursos
+
+- No proporcionó
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/53696/10
+
+
+## Trayectoria Academica
+
+- Lic
+- en Derecho por la Universidad Autónoma de Baja California y Maestría en Derecho Procesal Constitucional por INDEPAC
+
+
+## Motivo para buscar el Cargo Publico
+
+Mi compromiso para con la sociedad es lograr que tengan plena confianza en el sistema jurídico mexicano.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+En este país, donde la percepción de la justicia implica impunidad y corrupción, en esta nueva etapa de la función jurisdiccional debe enfocarse, fundamentalmente, en reconstruir la confianza del pueblo, trasparentando la justicia siendo efectiva, accesible e igual para todos, sin privilegios o retrasos injustificados, misma que deberá ser objeto de rendición de cuentas, a fin de que el sistema judicial sea accesible, eficiente y confiable, resolviendo los asuntos de manera pronta y expedita.
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia en México, como derecho fundamental de la sociedad, debe ser imparcial, eficiente y trasparente, haciendo de ello un derecho real y efectivo, sin corrupción o burocracia, para lo cual, se privilegiará la simplificación de las sentencias para darle claridad y sencillez, sin tanto tecnisimo, lo cual se logra a través de la elección de jueces mediante el voto popular, lo que permitirá fortalecer y legitimar el sistema jurídico mexicano y el compromiso único con la sociedad.
+
+
+## Propuestas
+
+- Depuración escalonada del actual esquema jurisdiccional, con el propósito de romper con la dilación excesiva y burocrática de las sentencias dictadas por los tribunales del país; el cumplimiento de dicha tarea es sencilla, se requiere identificar los problemas jurídicos y darles una respuesta exhaustiva, completa y sencilla, cuyo entendimiento sea general y no solamente para los abogados, a fin de reestablecer la confianza y legitimar nuevamente el sistema jurídico en el país.
+- Justicia Social: Garantizar la equidad en el acceso a la justicia, igualdad ante la ley y asegurar que todos tengan acceso a un sistema judicial que proteja sus derechos, que castigue delitos y atienda sus causas, promoviendo soluciones integrales a problemas como la violencia, la corrupción y la impunidad, eliminen privilegios y garanticen el acceso equitativo a los recursos.
+- Rendición de cuentas. La rendición de cuentas en un sistema jurídico donde los jueces y magistrados son elegidos por votación popular debe ser un pilar fundamental para garantizar que la justicia se administre de manera imparcial, eficiente y en beneficio de la sociedad; por ello, será fundamental que todos los juzgadores seamos evaluados para sujetarnos al escrutinio del ente correspondiente así como la rendición de informes periódicos a la sociedad y mostrar los avances logrados.
+

@@ -1,0 +1,76 @@
+Nombre Candidato: FREDDY TINOCO ISLAS
+Cargo: Juezas/es de Distrito
+Entidad: GUERRERO
+Sexo: HOMBRE
+Telefono: 5544613673
+Correo Electronico: lowesparta@hotmail.com
+Numero de lista en boleta: *No especificado*
+Escolaridad: Especialidad
+Estatus Escolaridad: Concluido
+Tags Educación: Actuario, Derecho y Medicina, Experto., Gestión Judicial, Juicios, Logística Administrativa, Poder Judicial de la Federación, Secretarios Judiciales, Sentencias, Tribunales Federales
+Tags Propósito: acceso a la justicia, certeza jurídica, cumplimiento de sentencias, derechos de los investigados., derechos humanos, experiencia judicial, funcionarios públicos, impunidad, investigación, justicia, justicia pronta y eficaz, ley, protección de los ciudadanos, protección de víctimas, rendición de cuentas, salud, seguridad, servicios públicos, transparencia judicial, verdad legal
+
+
+## Descripción del Candidato 
+
+Freddy Tinoco Islas es candidato a Juez/a de Distrito en Guerrero, postulándose a través del Poder Judicial de la Federación. Cuenta con especialidad concluida y ha realizado diversos cursos de formación en áreas como gestión judicial, actuación del Poder Judicial, y análisis jurídico-médico. Su trayectoria profesional se centra en la experiencia en Tribunales Federales, enfocándose en la dictadura de sentencias.
+
+Motivado por la necesidad de erradicar la impunidad y garantizar el acceso a la justicia para todos, Tinoco Islas propone un enfoque judicial proactivo, con énfasis en la protección de los derechos de los ciudadanos por encima de intereses gubernamentales. Sus propuestas incluyen asegurar el castigo de los delitos, la transparencia en los juicios respetando la privacidad, el cumplimiento de las sentencias que protejan los derechos humanos y la resolución oportuna de juicios y investigaciones, buscando informar a las partes involucradas y evitar la incertidumbre.
+
+
+## Poder que postula
+
+- Poder Judicial de la Federación
+
+
+## Pagina Web
+
+No proporcionó
+
+
+## Redes Sociales
+
+- https://www.facebook.com/share/1EGfiSCmPk/
+- https://www.instagram.com/freddy.tinoco.islas?igsh=MTVybHByZzk2Z2V3Yw==
+- https://youtube.com/@freddytinoco-xb5gi?si=5RWgb_JzG2FMQ1Tz
+- https://www.tiktok.com/@alfred.rey8?_t=ZM-8v2vpdHAW6Z&_r=1
+
+
+## Cursos
+
+- EXAMEN DE APTITUD ORDINARIO PARA ACTUARIO DEL PODER JUDICIAL DE LA FEDERACIÓN,CURSO AL PUESTO DE ENCARGADO DE DESPACHO LOGISTICO Y ADMINISTRATIVO PARA LOS CENTROS DE JUSTICIA PENAL FEDERAL,CURSO AUXILIAR DE GESTIÓN JUDICIAL DE LOS CENTROS DE JUSTICIA PENAL FEDERAL
+- ,SEMINARIO TITULADO IMPLICACIONES DEL DERECHO EN LA MEDICINA ANÁLISIS DE CASOS PRÁCTICOS IMPARTIDO POR LA SUPREMA CORTE,CURSO DE FORMACIÓN Y PREPARACIÓN DE SECRETARIOS DEL PODER JUDICIAL DE LA FEDERACIÓN
+- ESTUDIOS DE ESPECIALIDAD
+
+
+## Curriculum Vitae
+
+https://candidaturaspoderjudicial.ine.mx/detalleCandidato/55523/11
+
+
+## Trayectoria Academica
+
+- Soy experto en juicios, pues laboró en los Tribunales Federales y se dictar sentencias justas y claras, pues es mi labor
+
+
+## Motivo para buscar el Cargo Publico
+
+No debe haber impunidad. Quiero que la justicia sea para todos y no solo para algunos. Juez cerca y que los escuche.
+
+
+## Vision sobre la Funcion Jurisdiccional
+
+Quien imparte justicia, debe tener experiencia judicial en los Tribunales Federales, pues para impartir justicia, no solo se necesita hablar bonito, creer que con promesas, despensas, dinero o palabras al aire, se hará justicia, Pues México necesita un juez que tenga vocación y no tenga miedo de proteger al que lo necesita; y, si le dicen al juez que está afectando al gobierno, este diga firmemente que la ley cuida a las personas y que el gobierno está obligado también a proteger a los mexicanos
+
+
+## Vision sobre la Imparticion de Justicia
+
+La justicia debe ser un valor fundamental, no una cosa de miedo. Pues creo que yo o cualquier Juez debe no solamente castigar; si no proteger a la gente que lo necesita; por eso desde mi lugar y mi profesión, estoy convencido que quienes más deben de importar para la ley, son los mexicanos y no, las autoridades. Siempre en favor de los Mexicanos y siempre viendo porque no se cometan injusticias y que todos tengamos acceso a todos los servicios públicos, como el de la salud y seguridad
+
+
+## Propuestas
+
+- No voy a permitir que queden sin castigo las personas que verdaderamente cometan delitos y no permitiré injusticias y explicaré de forma oficiosa o a petición de la sociedad cualquier juicio, para que conozcan la verdad. Respetando los derechos y datos personales de las partes. En mi competencia castigare sin duda a cualquier funcionario público o a sus actos cuando cometan delitos o estén desapegados de la ley
+- No voy a permitir que las autoridades no acaten las sentencias que tengan como prioridad proteger los derechos humanos de las personas. Como por ejemplo cuando yo les ordene que los atiendan de forma médica o si necesitan operaciones que lo hagan. De no hacerlo de manera oportuna, yo me presentare de forma personal y requeriré el cumplimiento de la sentencia, con las medidas de apremio y con los requerimientos ante los superiores que correspondan.
+- No permitiré que juicios e investigaciones estén guardados. Si hay datos contundentes, que se investigue y si no lo hay, que se emita la resolución legal que corresponda. Pues la víctima debe conocer la verdad legal y el investigado no debe de tener incertidumbre de su asunto, También ello sucederá en los juicios que están sin avanzar y no se les determina nada, Pues justicia no solo es castigar; si no informar si se concluye, continua, si existen beneficios, inocencia o anulación de sentencia.
+
